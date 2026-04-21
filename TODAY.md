@@ -1,132 +1,168 @@
-# Meme Feed — 2026-04-22 06:17
+# Meme Feed — 2026-04-22 06:18
 
-**Total:** 21 memes | Click any image to view full size, right-click to save
-
----
-
-## The new wave of ethno-fascism
-![The new wave of ethno-fascism](20260422-001-the-new-wave-of-ethno-fascism/image.jpg)
-**Score:** 128 | **Source:** reddit/r/WhitePeopleTwitter | [View Source](https://redd.it/1sra1wn)
+**Total:** 27 memes | Click any image to view full size, right-click to save
 
 ---
 
-## Kash Patel has filed $250 million defamation lawsuit against the Atlantic. Disco
-![Kash Patel has filed $250 million defama](20260422-002-kash-patel-has-filed-250-million-defamat/image.jpg)
-**Score:** 11,953 | **Source:** reddit/r/WhitePeopleTwitter | [View Source](https://redd.it/1sqry19)
+## Ohio starting the speedrun to Gilead by introducing bill to ban women from weari
+![Ohio starting the speedrun to Gilead by ](20260422-001-ohio-starting-the-speedrun-to-gilead-by-/image.jpg)
+**Score:** 749 | **Source:** reddit/r/WhitePeopleTwitter | [View Source](https://redd.it/1srwbjg)
 
 ---
 
-## Leave the whales alone
-![Leave the whales alone](20260422-001-leave-the-whales-alone/image.jpg)
-**Score:** 19,183 | **Source:** reddit/r/BlackPeopleTwitter | [View Source](https://redd.it/1sfbf09)
+## This a celly, that's a tool
+![This a celly, that's a tool](20260422-001-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 4,390 | **Source:** reddit/r/BlackPeopleTwitter | [View Source](https://redd.it/1srdbtw)
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260422-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,401 | **Source:** reddit/r/BlackPeopleTwitter | [View Source](https://redd.it/1slkzex)
+## Key contributor to 1st Amendment rights
+![Key contributor to 1st Amendment rights](20260422-002-key-contributor-to-1st-amendment-rights/image.jpg)
+**Score:** 5,698 | **Source:** reddit/r/BlackPeopleTwitter | [View Source](https://redd.it/1spiuor)
 
 ---
 
-## Idk how to flirt...
-![Idk how to flirt...](20260422-001-idk-how-to-flirt/image.jpg)
-**Score:** 4,233 | **Source:** reddit/r/memes | [View Source](https://redd.it/1sqnxcc)
+## me_irl
+![me_irl](20260422-001-me_irl/image.jpg)
+**Score:** 43,373 | **Source:** reddit/r/me_irl | [View Source](https://redd.it/1sp27xe)
+
+---
+
+## How would you have explained it to a 6-year-old?
+![How would you have explained it to a 6-y](20260422-001-how-would-you-have-explained-it-to-a-6-y/image.jpg)
+**Score:** 1,377 | **Source:** reddit/r/funny | [View Source](https://redd.it/1sq5afg)
+
+---
+
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260422-001-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,178 | **Source:** reddit/r/facepalm | [View Source](https://redd.it/1s01fo2)
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260422-001-well-did-they-accept-or-not/image.jpg)
+![Well? Did they accept or not?](20260422-002-well-did-they-accept-or-not/image.jpg)
 **Score:** 830 | **Source:** reddit/r/facepalm | [View Source](https://redd.it/1sf3dve)
 
 ---
 
-## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
-![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260422-001-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
-**Score:** 770 | **Source:** reddit/r/technicallythetruth | [View Source](https://redd.it/1sr4ba9)
+## The detective didn't find it
+![The detective didn't find it](20260422-001-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,594 | **Source:** reddit/r/technicallythetruth | [View Source](https://redd.it/1smh9kr)
 
 ---
 
-## The perfect combination of heading and Reddit mobile jank
-![The perfect combination of heading and R](20260422-002-the-perfect-combination-of-heading-and-r/image.jpg)
-**Score:** 232 | **Source:** reddit/r/technicallythetruth | [View Source](https://redd.it/1rramym)
+## Being shot with a depleted uranium bullet can't be good
+![Being shot with a depleted uranium bulle](20260422-002-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+**Score:** 502 | **Source:** reddit/r/technicallythetruth | [View Source](https://redd.it/1rsl06y)
 
 ---
 
-## Dippers shadow in this episode of Gravity Falls
-![Dippers shadow in this episode of Gravit](20260422-001-dippers-shadow-in-this-episode-of-gravit/image.jpg)
-**Score:** 1,087 | **Source:** reddit/r/suspiciouslyspecific | [View Source](https://redd.it/14m5r8l)
+## My friend sent me this photo
+![My friend sent me this photo](20260422-001-my-friend-sent-me-this-photo/image.jpg)
+**Score:** 849 | **Source:** reddit/r/suspiciouslyspecific | [View Source](https://redd.it/1kwzyo9)
 
 ---
 
-## Sus adventures
-![Sus adventures](20260422-002-sus-adventures/image.jpg)
-**Score:** 138 | **Source:** reddit/r/suspiciouslyspecific | [View Source](https://redd.it/14n8fsz)
+## Futabu anyone ???
+![Futabu anyone ???](20260422-001-futabu-anyone/image.jpg)
+**Score:** 1,879 | **Source:** reddit/r/HolUp | [View Source](https://redd.it/1sqozop)
 
 ---
 
-## HOW do you f*ck that up?
-![HOW do you f*ck that up?](20260422-001-how-do-you-fck-that-up/image.jpg)
-**Score:** 3,002 | **Source:** reddit/r/HolUp | [View Source](https://redd.it/1smgolu)
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260422-002-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 609 | **Source:** reddit/r/HolUp | [View Source](https://redd.it/1snjr10)
 
 ---
 
-## Title
-![Title](20260422-002-title/image.jpg)
-**Score:** 570 | **Source:** reddit/r/HolUp | [View Source](https://redd.it/1siy6o7)
+## howDoISoftLaunch
+![howDoISoftLaunch](20260422-001-howdoisoftlaunch/image.jpg)
+**Score:** 3,519 | **Source:** reddit/r/ProgrammerHumor | [View Source](https://redd.it/1sma5o2)
 
 ---
 
-## friendsOutsideOfTechLolCopilotIsDumbFriendsInTechIJustBoughtIodineTablets
-![friendsOutsideOfTechLolCopilotIsDumbFrie](20260422-001-friendsoutsideoftechlolcopilotisdumbfrie/image.jpg)
-**Score:** 1,406 | **Source:** reddit/r/ProgrammerHumor | [View Source](https://redd.it/1srkmix)
+## Bad time to be a graphic designer
+![Bad time to be a graphic designer](20260422-001-bad-time-to-be-a-graphic-designer/image.jpg)
+**Score:** 1,929 | **Source:** reddit/r/AdviceAnimals | [View Source](https://redd.it/1sldn3e)
 
 ---
 
-## what are your thoughts
-![what are your thoughts](20260422-001-what-are-your-thoughts/image.jpg)
-**Score:** 327 | **Source:** reddit/r/AdviceAnimals | [View Source](https://redd.it/1sl8jfn)
+## Gas prices are still going up and I may not be able to drive to work
+![Gas prices are still going up and I may ](20260422-002-gas-prices-are-still-going-up-and-i-may-/image.jpg)
+**Score:** 583 | **Source:** reddit/r/AdviceAnimals | [View Source](https://redd.it/1smjtio)
 
 ---
 
-## The best feeling in the world to start the weekend
-![The best feeling in the world to start t](20260422-001-the-best-feeling-in-the-world-to-start-t/image.jpg)
-**Score:** 8,026 | **Source:** reddit/r/wholesomememes | [View Source](https://redd.it/1rtqskm)
+## Be Kind 🤗🤗
+![Be Kind 🤗🤗](20260422-001-be-kind/image.jpg)
+**Score:** 3,368 | **Source:** reddit/r/wholesomememes | [View Source](https://redd.it/1rnh8zj)
 
 ---
 
-## Great stuff
-![Great stuff](20260422-002-great-stuff/image.jpg)
-**Score:** 426 | **Source:** reddit/r/wholesomememes | [View Source](https://redd.it/1spqop3)
+## small reminder that people are still showing up for each other!
+![small reminder that people are still sho](20260422-002-small-reminder-that-people-are-still-sho/image.jpg)
+**Score:** 4,938 | **Source:** reddit/r/wholesomememes | [View Source](https://redd.it/1sh3t8h)
 
 ---
 
-## Tomorrow is propeller beanie
-![Tomorrow is propeller beanie](20260422-001-tomorrow-is-propeller-beanie/image.jpg)
-**Score:** 345 | **Source:** reddit/r/boneachingjuice | [View Source](https://redd.it/16b1qm9)
+## Big dreams about big voyages require big balloons.
+![Big dreams about big voyages require big](20260422-001-big-dreams-about-big-voyages-require-big/image.jpg)
+**Score:** 235 | **Source:** reddit/r/boneachingjuice | [View Source](https://redd.it/1meag5x)
 
 ---
 
-## They would've gotten better results with a freshly-baked pie
-![They would've gotten better results with](20260422-002-they-wouldve-gotten-better-results-with-/image.jpg)
-**Score:** 330 | **Source:** reddit/r/boneachingjuice | [View Source](https://redd.it/1c5ib3d)
+## He made a good choice
+![He made a good choice](20260422-002-he-made-a-good-choice/image.jpg)
+**Score:** 1,215 | **Source:** reddit/r/boneachingjuice | [View Source](https://redd.it/13x788l)
 
 ---
 
-## They grow up so fast
-![They grow up so fast](20260422-001-they-grow-up-so-fast/image.jpg)
-**Score:** 101 | **Source:** reddit/r/trippinthroughtime | [View Source](https://redd.it/1qj7hrc)
+## Kids these days can’t read
+![Kids these days can’t read](20260422-003-kids-these-days-cant-read/image.jpg)
+**Score:** 1,736 | **Source:** reddit/r/boneachingjuice | [View Source](https://redd.it/17eqcrd)
 
 ---
 
-## This pisses me off so much at work
-![This pisses me off so much at work](20260422-002-this-pisses-me-off-so-much-at-work/image.jpg)
-**Score:** 956 | **Source:** reddit/r/trippinthroughtime | [View Source](https://redd.it/1riw20h)
+## Cheapest flowers
+![Cheapest flowers](20260422-001-cheapest-flowers/image.jpg)
+**Score:** 400 | **Source:** reddit/r/trippinthroughtime | [View Source](https://redd.it/1rmd15v)
 
 ---
 
-## Demonic business
-![Demonic business](20260422-003-demonic-business/image.jpg)
-**Score:** 1,849 | **Source:** reddit/r/trippinthroughtime | [View Source](https://redd.it/1qq7gm2)
+## What a life
+![What a life](20260422-002-what-a-life/image.jpg)
+**Score:** 2,062 | **Source:** reddit/r/trippinthroughtime | [View Source](https://redd.it/1r3lb4z)
+
+---
+
+## Hey, I just met you, and you are crazy, so here's an Uber.--Don't call me, baby.
+![Hey, I just met you, and you are crazy, ](20260422-003-hey-i-just-met-you-and-you-are-crazy-so-/image.jpg)
+**Score:** 645 | **Source:** reddit/r/trippinthroughtime | [View Source](https://redd.it/1qsqssi)
+
+---
+
+## Dream big
+![Dream big](20260422-001-dream-big/image.jpg)
+**Score:** 3,990 | **Source:** reddit/r/dankmemes | [View Source](https://redd.it/1sqcvqu)
+
+---
+
+## it's a peaceful life
+![it's a peaceful life](20260422-002-its-a-peaceful-life/image.jpg)
+**Score:** 2,158 | **Source:** reddit/r/dankmemes | [View Source](https://redd.it/1sov0c6)
+
+---
+
+## Ahhhh
+![Ahhhh](20260422-003-ahhhh/image.jpg)
+**Score:** 302 | **Source:** reddit/r/dankmemes | [View Source](https://redd.it/1sqjpkr)
+
+---
+
+## the wikipedia entry has over 2300 words
+![the wikipedia entry has over 2300 words](20260422-004-the-wikipedia-entry-has-over-2300-words/image.jpg)
+**Score:** 2,678 | **Source:** reddit/r/memes | [View Source](https://redd.it/1srkqkr)
 
 ---
 

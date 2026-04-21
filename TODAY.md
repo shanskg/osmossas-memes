@@ -1,30 +1,30 @@
-# Meme Feed — 2026-04-22 05:23
+# Meme Feed — 2026-04-22 06:04
 
 **Total:** 43 memes | Click any image to view full size, right-click to save
 
 ---
 
-## What a pathetic old man.
-![What a pathetic old man.](20260422-alt-001-what-a-pathetic-old-man/image.jpg)
-**Score:** 1,158 | **Source:** reddit/r/WhitePeopleTwitter | [View Source](https://redd.it/1sr1ji3)
+## call your representatives
+![call your representatives](20260422-alt-001-call-your-representatives/image.jpg)
+**Score:** 122 | **Source:** reddit/r/WhitePeopleTwitter | [View Source](https://redd.it/1srtkfu)
 
 ---
 
-## Dollar Tree doesn't announce price increase under Donald Trump
-![Dollar Tree doesn't announce price incre](20260422-alt-002-dollar-tree-doesnt-announce-price-increa/image.jpg)
-**Score:** 7,111 | **Source:** reddit/r/WhitePeopleTwitter | [View Source](https://redd.it/1sr5ytc)
+## Awward pause
+![Awward pause](20260422-alt-002-awward-pause/image.jpg)
+**Score:** 319 | **Source:** reddit/r/WhitePeopleTwitter | [View Source](https://redd.it/1sqscgt)
 
 ---
 
-## world leaders need to drop more carrots and less bombs. Thank you Australia.
-![world leaders need to drop more carrots ](20260422-alt-003-world-leaders-need-to-drop-more-carrots-/image.jpg)
-**Score:** 1,446 | **Source:** reddit/r/WhitePeopleTwitter | [View Source](https://redd.it/1sras0w)
+## Replaced her dad with daddy Trump.
+![Replaced her dad with daddy Trump.](20260422-alt-003-replaced-her-dad-with-daddy-trump/image.jpg)
+**Score:** 246 | **Source:** reddit/r/WhitePeopleTwitter | [View Source](https://redd.it/1sry2as)
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260422-alt-001-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,401 | **Source:** reddit/r/BlackPeopleTwitter | [View Source](https://redd.it/1slkzex)
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260422-alt-001-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,070 | **Source:** reddit/r/BlackPeopleTwitter | [View Source](https://redd.it/1skvvw0)
 
 ---
 
@@ -34,57 +34,51 @@
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260422-alt-003-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,277 | **Source:** reddit/r/BlackPeopleTwitter | [View Source](https://redd.it/1sok8g4)
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260422-alt-003-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,401 | **Source:** reddit/r/BlackPeopleTwitter | [View Source](https://redd.it/1slkzex)
 
 ---
 
 ## me_irl
 ![me_irl](20260422-alt-001-me_irl/image.jpg)
-**Score:** 34 | **Source:** reddit/r/me_irl | [View Source](https://redd.it/1srt8ly)
+**Score:** 1,878 | **Source:** reddit/r/me_irl | [View Source](https://redd.it/1srbibu)
 
 ---
 
 ## me_irl
 ![me_irl](20260422-alt-002-me_irl/image.jpg)
-**Score:** 271 | **Source:** reddit/r/me_irl | [View Source](https://redd.it/1sqp83q)
+**Score:** 15 | **Source:** reddit/r/me_irl | [View Source](https://redd.it/1srytts)
 
 ---
 
-## Capcom: "Have Kids" (Fucking Genius!)
-![Capcom: "Have Kids" (Fucking Genius!)](20260422-alt-001-capcom-have-kids-fucking-genius/image.jpg)
-**Score:** 288 | **Source:** reddit/r/memes | [View Source](https://redd.it/1srrlj3)
+## Don't disturb me pls
+![Don't disturb me pls](20260422-alt-001-dont-disturb-me-pls/image.jpg)
+**Score:** 9 | **Source:** reddit/r/memes | [View Source](https://redd.it/1srufm2)
 
 ---
 
-## Unlimited enshittification
-![Unlimited enshittification](20260422-alt-002-unlimited-enshittification/image.jpg)
-**Score:** 15,109 | **Source:** reddit/r/memes | [View Source](https://redd.it/1sr6phd)
+## just my hair leaving me one strand at a time
+![just my hair leaving me one strand at a ](20260422-alt-002-just-my-hair-leaving-me-one-strand-at-a-/image.jpg)
+**Score:** 127 | **Source:** reddit/r/memes | [View Source](https://redd.it/1srfu18)
 
 ---
 
-## The vending machines at my college keep messing up so I made this.
-![The vending machines at my college keep ](20260422-alt-003-the-vending-machines-at-my-college-keep-/image.jpg)
-**Score:** 8 | **Source:** reddit/r/memes | [View Source](https://redd.it/1srrhos)
+## just my hair leaving me one strand at a time
+![just my hair leaving me one strand at a ](20260422-alt-003-just-my-hair-leaving-me-one-strand-at-a-/image.jpg)
+**Score:** 127 | **Source:** reddit/r/memes | [View Source](https://redd.it/1srfu18)
 
 ---
 
-## European vs American car
-![European vs American car](20260422-alt-001-european-vs-american-car/image.jpg)
-**Score:** 0 | **Source:** reddit/r/funny | [View Source](https://redd.it/1sqau8m)
+## That's exactly what a copper would say
+![That's exactly what a copper would say](20260422-alt-001-thats-exactly-what-a-copper-would-say/image.jpg)
+**Score:** 1,874 | **Source:** reddit/r/funny | [View Source](https://redd.it/1sruod5)
 
 ---
 
-## European vs American car
-![European vs American car](20260422-alt-002-european-vs-american-car/image.jpg)
-**Score:** 0 | **Source:** reddit/r/funny | [View Source](https://redd.it/1sqau8m)
-
----
-
-## European vs American car
-![European vs American car](20260422-alt-003-european-vs-american-car/image.jpg)
-**Score:** 0 | **Source:** reddit/r/funny | [View Source](https://redd.it/1sqau8m)
+## This whole situation reflects poorly on everyone involved
+![This whole situation reflects poorly on ](20260422-alt-002-this-whole-situation-reflects-poorly-on-/image.jpg)
+**Score:** 1,589 | **Source:** reddit/r/funny | [View Source](https://redd.it/1spzjmn)
 
 ---
 
@@ -94,75 +88,81 @@
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260422-alt-002-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,138 | **Source:** reddit/r/facepalm | [View Source](https://redd.it/1r6r371)
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260422-alt-002-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,178 | **Source:** reddit/r/facepalm | [View Source](https://redd.it/1s01fo2)
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260422-alt-003-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,138 | **Source:** reddit/r/facepalm | [View Source](https://redd.it/1r6r371)
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260422-alt-003-well-did-they-accept-or-not/image.jpg)
+**Score:** 830 | **Source:** reddit/r/facepalm | [View Source](https://redd.it/1sf3dve)
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260422-alt-001-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,066 | **Source:** reddit/r/technicallythetruth | [View Source](https://redd.it/1sl9fiq)
+## Well, I came and I c*me too...
+![Well, I came and I c*me too...](20260422-alt-001-well-i-came-and-i-cme-too/image.jpg)
+**Score:** 1,954 | **Source:** reddit/r/technicallythetruth | [View Source](https://redd.it/1sr33pw)
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260422-alt-002-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 502 | **Source:** reddit/r/technicallythetruth | [View Source](https://redd.it/1rsl06y)
+## He did NOT dodge a bullet
+![He did NOT dodge a bullet](20260422-alt-002-he-did-not-dodge-a-bullet/image.jpg)
+**Score:** 42,255 | **Source:** reddit/r/technicallythetruth | [View Source](https://redd.it/1rsxj8w)
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260422-alt-003-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 502 | **Source:** reddit/r/technicallythetruth | [View Source](https://redd.it/1rsl06y)
+## He did NOT dodge a bullet
+![He did NOT dodge a bullet](20260422-alt-003-he-did-not-dodge-a-bullet/image.jpg)
+**Score:** 42,255 | **Source:** reddit/r/technicallythetruth | [View Source](https://redd.it/1rsxj8w)
 
 ---
 
-## Among Us animated series by Owen Dennis (Infinity Train) coming soon
-![Among Us animated series by Owen Dennis ](20260422-alt-001-among-us-animated-series-by-owen-dennis-/image.jpg)
-**Score:** 28 | **Source:** reddit/r/suspiciouslyspecific | [View Source](https://redd.it/14kjwmf)
+## Dippers shadow in this episode of Gravity Falls
+![Dippers shadow in this episode of Gravit](20260422-alt-001-dippers-shadow-in-this-episode-of-gravit/image.jpg)
+**Score:** 1,087 | **Source:** reddit/r/suspiciouslyspecific | [View Source](https://redd.it/14m5r8l)
+
+---
+
+## Dippers shadow in this episode of Gravity Falls
+![Dippers shadow in this episode of Gravit](20260422-alt-002-dippers-shadow-in-this-episode-of-gravit/image.jpg)
+**Score:** 1,087 | **Source:** reddit/r/suspiciouslyspecific | [View Source](https://redd.it/14m5r8l)
 
 ---
 
 ## Animegus
-![Animegus](20260422-alt-002-animegus/image.jpg)
+![Animegus](20260422-alt-003-animegus/image.jpg)
 **Score:** 324 | **Source:** reddit/r/suspiciouslyspecific | [View Source](https://redd.it/1geb9bh)
 
 ---
 
-## Masturbate &amp; jog at the same time
-![Masturbate &amp; jog at the same time](20260422-alt-001-masturbate-amp-jog-at-the-same-time/image.jpg)
-**Score:** 50 | **Source:** reddit/r/oddlyspecific | [View Source](https://redd.it/1sr8yrb)
-
----
-
-## Masturbate &amp; jog at the same time
-![Masturbate &amp; jog at the same time](20260422-alt-002-masturbate-amp-jog-at-the-same-time/image.jpg)
-**Score:** 50 | **Source:** reddit/r/oddlyspecific | [View Source](https://redd.it/1sr8yrb)
-
----
-
 ## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260422-alt-003-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
+![If I go to a cookout and bite a hot dog ](20260422-alt-001-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
 **Score:** 176 | **Source:** reddit/r/oddlyspecific | [View Source](https://redd.it/1sqlfrg)
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260422-alt-001-ai-is-everywhere/image.jpg)
-**Score:** 806 | **Source:** reddit/r/HolUp | [View Source](https://redd.it/1sqku3h)
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260422-alt-002-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 352 | **Source:** reddit/r/oddlyspecific | [View Source](https://redd.it/1sr69b5)
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260422-alt-002-ai-is-everywhere/image.jpg)
-**Score:** 806 | **Source:** reddit/r/HolUp | [View Source](https://redd.it/1sqku3h)
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260422-alt-003-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 352 | **Source:** reddit/r/oddlyspecific | [View Source](https://redd.it/1sr69b5)
+
+---
+
+## Darker and darker
+![Darker and darker](20260422-alt-001-darker-and-darker/image.jpg)
+**Score:** 282 | **Source:** reddit/r/HolUp | [View Source](https://redd.it/1sk7onq)
+
+---
+
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260422-alt-002-an-augmented-reality-sandbox/image.jpg)
+**Score:** 599 | **Source:** reddit/r/HolUp | [View Source](https://redd.it/1sm8bdq)
 
 ---
 
@@ -172,93 +172,93 @@
 
 ---
 
-## cursed_fap
-![cursed_fap](20260422-alt-001-cursed_fap/image.jpg)
-**Score:** 392 | **Source:** reddit/r/cursedcomments | [View Source](https://redd.it/1sq0iqd)
-
----
-
-## Cursed_rhyme
-![Cursed_rhyme](20260422-alt-002-cursed_rhyme/image.jpg)
-**Score:** 2,429 | **Source:** reddit/r/cursedcomments | [View Source](https://redd.it/1sndzis)
-
----
-
 ## Cursed Suicide
-![Cursed Suicide](20260422-alt-003-cursed-suicide/image.jpg)
+![Cursed Suicide](20260422-alt-001-cursed-suicide/image.jpg)
 **Score:** 72 | **Source:** reddit/r/cursedcomments | [View Source](https://redd.it/1sryhgo)
 
 ---
 
-## Stephen King level insult
-![Stephen King level insult](20260422-alt-001-stephen-king-level-insult/image.jpg)
-**Score:** 16,463 | **Source:** reddit/r/rareinsults | [View Source](https://redd.it/1sgykx7)
+## cursed_soup
+![cursed_soup](20260422-alt-002-cursed_soup/image.jpg)
+**Score:** 197 | **Source:** reddit/r/cursedcomments | [View Source](https://redd.it/1slaa27)
 
 ---
 
-## Stephen King level insult
-![Stephen King level insult](20260422-alt-002-stephen-king-level-insult/image.jpg)
-**Score:** 16,463 | **Source:** reddit/r/rareinsults | [View Source](https://redd.it/1sgykx7)
+## Cursed_sex superglue
+![Cursed_sex superglue](20260422-alt-003-cursed_sex-superglue/image.jpg)
+**Score:** 92 | **Source:** reddit/r/cursedcomments | [View Source](https://redd.it/1sji4sd)
 
 ---
 
-## I wholeheartedly agree with cmoked
-![I wholeheartedly agree with cmoked](20260422-alt-003-i-wholeheartedly-agree-with-cmoked/image.jpg)
-**Score:** 138 | **Source:** reddit/r/rareinsults | [View Source](https://redd.it/1sbl6b9)
+## At least he's resilient!
+![At least he's resilient!](20260422-alt-001-at-least-hes-resilient/image.jpg)
+**Score:** 1,612 | **Source:** reddit/r/rareinsults | [View Source](https://redd.it/1sfwk6f)
 
 ---
 
-## evil fuckups are not less evil due to their fuck-ups
-![evil fuckups are not less evil due to th](20260422-alt-001-evil-fuckups-are-not-less-evil-due-to-th/image.jpg)
-**Score:** 1,000 | **Source:** reddit/r/MurderedByWords | [View Source](https://redd.it/1sg31m9)
+## On a post asking the dumbest shit you did when you were horny
+![On a post asking the dumbest shit you di](20260422-alt-002-on-a-post-asking-the-dumbest-shit-you-di/image.jpg)
+**Score:** 5,582 | **Source:** reddit/r/rareinsults | [View Source](https://redd.it/1settu3)
 
 ---
 
-## Any church will do...
-![Any church will do...](20260422-alt-002-any-church-will-do/image.jpg)
-**Score:** 2,748 | **Source:** reddit/r/MurderedByWords | [View Source](https://redd.it/1sfqifj)
+## On a post asking the dumbest shit you did when you were horny
+![On a post asking the dumbest shit you di](20260422-alt-003-on-a-post-asking-the-dumbest-shit-you-di/image.jpg)
+**Score:** 5,582 | **Source:** reddit/r/rareinsults | [View Source](https://redd.it/1settu3)
 
 ---
 
-## Any church will do...
-![Any church will do...](20260422-alt-003-any-church-will-do/image.jpg)
-**Score:** 2,748 | **Source:** reddit/r/MurderedByWords | [View Source](https://redd.it/1sfqifj)
+## MAGA woman forgets that the internet never forgets
+![MAGA woman forgets that the internet nev](20260422-alt-001-maga-woman-forgets-that-the-internet-nev/image.jpg)
+**Score:** 3,738 | **Source:** reddit/r/MurderedByWords | [View Source](https://redd.it/1skj51z)
 
 ---
 
-## Just making things up for no reason
-![Just making things up for no reason](20260422-alt-001-just-making-things-up-for-no-reason/image.jpg)
-**Score:** 3,024 | **Source:** reddit/r/clevercomebacks | [View Source](https://redd.it/1soai6z)
+## MAGA woman forgets that the internet never forgets
+![MAGA woman forgets that the internet nev](20260422-alt-002-maga-woman-forgets-that-the-internet-nev/image.jpg)
+**Score:** 3,738 | **Source:** reddit/r/MurderedByWords | [View Source](https://redd.it/1skj51z)
 
 ---
 
-## Just making things up for no reason
-![Just making things up for no reason](20260422-alt-002-just-making-things-up-for-no-reason/image.jpg)
-**Score:** 3,024 | **Source:** reddit/r/clevercomebacks | [View Source](https://redd.it/1soai6z)
+## The Pope called for peace and MAGA lost it
+![The Pope called for peace and MAGA lost ](20260422-alt-003-the-pope-called-for-peace-and-maga-lost-/image.jpg)
+**Score:** 4,651 | **Source:** reddit/r/MurderedByWords | [View Source](https://redd.it/1shrzyn)
 
 ---
 
-## This is one of the funniest comeback, History will never be stolen .
-![This is one of the funniest comeback, Hi](20260422-alt-003-this-is-one-of-the-funniest-comeback-his/image.jpg)
-**Score:** 2,114 | **Source:** reddit/r/clevercomebacks | [View Source](https://redd.it/1sobzp9)
+## Yeah why aren't we talking about that.
+![Yeah why aren't we talking about that.](20260422-alt-001-yeah-why-arent-we-talking-about-that/image.jpg)
+**Score:** 11,564 | **Source:** reddit/r/clevercomebacks | [View Source](https://redd.it/1srbzq0)
 
 ---
 
-## sketchyGrapeSiteCookies
-![sketchyGrapeSiteCookies](20260422-alt-001-sketchygrapesitecookies/image.jpg)
-**Score:** 1,500 | **Source:** reddit/r/ProgrammerHumor | [View Source](https://redd.it/1sqii9s)
+## 'Reduced details' is a new one
+!['Reduced details' is a new one](20260422-alt-002-reduced-details-is-a-new-one/image.jpg)
+**Score:** 836 | **Source:** reddit/r/clevercomebacks | [View Source](https://redd.it/1soh5sm)
 
 ---
 
-## theAiBubbleIsSlowlyBursting
-![theAiBubbleIsSlowlyBursting](20260422-alt-002-theaibubbleisslowlybursting/image.jpg)
-**Score:** 0 | **Source:** reddit/r/ProgrammerHumor | [View Source](https://redd.it/1sriurz)
+## Takes from kids, lectures on faith
+![Takes from kids, lectures on faith](20260422-alt-003-takes-from-kids-lectures-on-faith/image.jpg)
+**Score:** 2,243 | **Source:** reddit/r/clevercomebacks | [View Source](https://redd.it/1so7x6s)
 
 ---
 
-## theAiBubbleIsSlowlyBursting
-![theAiBubbleIsSlowlyBursting](20260422-alt-003-theaibubbleisslowlybursting/image.jpg)
-**Score:** 0 | **Source:** reddit/r/ProgrammerHumor | [View Source](https://redd.it/1sriurz)
+## whenCopilotBingesTheOffice
+![whenCopilotBingesTheOffice](20260422-alt-001-whencopilotbingestheoffice/image.jpg)
+**Score:** 2 | **Source:** reddit/r/ProgrammerHumor | [View Source](https://redd.it/1sqmgf5)
+
+---
+
+## golangProblems
+![golangProblems](20260422-alt-002-golangproblems/image.jpg)
+**Score:** 27 | **Source:** reddit/r/ProgrammerHumor | [View Source](https://redd.it/1srudo5)
+
+---
+
+## golangProblems
+![golangProblems](20260422-alt-003-golangproblems/image.jpg)
+**Score:** 27 | **Source:** reddit/r/ProgrammerHumor | [View Source](https://redd.it/1srudo5)
 
 ---
 

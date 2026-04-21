@@ -3,7 +3,9 @@
   "source": "imgflip",
   "source_url": "https://imgflip.com",
   "score": 200,
+  "num_comments": 0,
+  "subreddit": "imgflip",
   "image_path": "20260422-alt-007-always-has-been/image.jpg",
-  "scraped_at": "2026-04-22T04:54:09.681200",
+  "scraped_at": "2026-04-22T05:05:22.094091",
   "status": "pending"
 }

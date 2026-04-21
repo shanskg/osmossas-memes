@@ -3,7 +3,9 @@
   "source": "imgflip",
   "source_url": "https://imgflip.com",
   "score": 300,
+  "num_comments": 0,
+  "subreddit": "imgflip",
   "image_path": "20260422-alt-006-left-exit-12-off-ramp/image.jpg",
-  "scraped_at": "2026-04-22T04:54:09.299226",
+  "scraped_at": "2026-04-22T05:05:21.728397",
   "status": "pending"
 }

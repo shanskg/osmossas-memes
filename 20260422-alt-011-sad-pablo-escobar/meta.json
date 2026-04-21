@@ -3,7 +3,9 @@
   "source": "imgflip",
   "source_url": "https://imgflip.com",
   "score": 300,
+  "num_comments": 0,
+  "subreddit": "imgflip",
   "image_path": "20260422-alt-011-sad-pablo-escobar/image.jpg",
-  "scraped_at": "2026-04-22T04:54:11.124267",
+  "scraped_at": "2026-04-22T05:05:23.537902",
   "status": "pending"
 }

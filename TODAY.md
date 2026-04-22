@@ -4,106 +4,106 @@
 
 ---
 
-## It keeps happening.
-![It keeps happening.](20260422-001-it-keeps-happening/image.jpg)
-**Score:** 264 | **Source:** reddit/r/WhitePeopleTwitter
+## Leave the whales alone
+![Leave the whales alone](20260422-001-leave-the-whales-alone/image.jpg)
+**Score:** 19,183 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## At this point, it may even be a genetic trait
-![At this point, it may even be a genetic ](20260422-002-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
-**Score:** 7,025 | **Source:** reddit/r/BlackPeopleTwitter
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260422-002-well-did-they-accept-or-not/image.jpg)
+**Score:** 829 | **Source:** reddit/r/facepalm
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260422-003-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,143 | **Source:** reddit/r/facepalm
-
----
-
-## The perfect combination of heading and Reddit mobile jank
-![The perfect combination of heading and R](20260422-004-the-perfect-combination-of-heading-and-r/image.jpg)
-**Score:** 231 | **Source:** reddit/r/technicallythetruth
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260422-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,177 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260422-005-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+![Being shot with a depleted uranium bulle](20260422-004-being-shot-with-a-depleted-uranium-bulle/image.jpg)
 **Score:** 499 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Don't do that
-![Don't do that](20260422-006-dont-do-that/image.jpg)
-**Score:** 344 | **Source:** reddit/r/oddlyspecific
+## The detective didn't find it
+![The detective didn't find it](20260422-005-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,653 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260422-007-futabu-anyone/image.jpg)
-**Score:** 1,958 | **Source:** reddit/r/HolUp
+## You guys like my website?
+![You guys like my website?](20260422-006-you-guys-like-my-website/image.jpg)
+**Score:** 76 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260422-008-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 251 | **Source:** reddit/r/dankmemes
+## The Hash-Slinging Slasher
+![The Hash-Slinging Slasher](20260422-007-the-hash-slinging-slasher/image.jpg)
+**Score:** 431 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## i personally think even 67 fails in comparison
-![i personally think even 67 fails in comp](20260422-009-i-personally-think-even-67-fails-in-comp/image.jpg)
-**Score:** 7,905 | **Source:** reddit/r/memes
-
----
-
-## i'm scared
-![i'm scared](20260422-010-im-scared/image.jpg)
-**Score:** 13,733 | **Source:** reddit/r/memes
+## AI is everywhere
+![AI is everywhere](20260422-008-ai-is-everywhere/image.jpg)
+**Score:** 839 | **Source:** reddit/r/HolUp
 
 ---
 
 ## And Whitehouse press conferences too.
-![And Whitehouse press conferences too.](20260422-011-and-whitehouse-press-conferences-too/image.jpg)
+![And Whitehouse press conferences too.](20260422-009-and-whitehouse-press-conferences-too/image.jpg)
 **Score:** 219 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Idk how to flirt...
-![Idk how to flirt...](20260422-012-idk-how-to-flirt/image.jpg)
+![Idk how to flirt...](20260422-010-idk-how-to-flirt/image.jpg)
 **Score:** 4,261 | **Source:** reddit/r/memes
 
 ---
 
 ## Is it really necessary?
-![Is it really necessary?](20260422-013-is-it-really-necessary/image.jpg)
+![Is it really necessary?](20260422-011-is-it-really-necessary/image.jpg)
 **Score:** 3,458 | **Source:** reddit/r/memes
 
 ---
 
 ## the wikipedia entry has over 2300 words
-![the wikipedia entry has over 2300 words](20260422-014-the-wikipedia-entry-has-over-2300-words/image.jpg)
+![the wikipedia entry has over 2300 words](20260422-012-the-wikipedia-entry-has-over-2300-words/image.jpg)
 **Score:** 3,298 | **Source:** reddit/r/memes
 
 ---
 
 ## IT: ‘Your password must include 12 characters, a symbol, and a sacrifice.’
 Me:
-![IT: ‘Your password must include 12 chara](20260422-015-it-your-password-must-include-12-charact/image.jpg)
+![IT: ‘Your password must include 12 chara](20260422-013-it-your-password-must-include-12-charact/image.jpg)
 **Score:** 2,021 | **Source:** reddit/r/memes
 
 ---
 
 ## r/bald in a nutshell
-![r/bald in a nutshell](20260422-016-rbald-in-a-nutshell/image.jpg)
+![r/bald in a nutshell](20260422-014-rbald-in-a-nutshell/image.jpg)
 **Score:** 4,476 | **Source:** reddit/r/memes
 
 ---
 
 ## Let's get straight to the business - it's open during stock hours
-![Let's get straight to the business - it'](20260422-017-lets-get-straight-to-the-business-its-op/image.jpg)
+![Let's get straight to the business - it'](20260422-015-lets-get-straight-to-the-business-its-op/image.jpg)
 **Score:** 254 | **Source:** reddit/r/dankmemes
+
+---
+
+## i'm scared
+![i'm scared](20260422-016-im-scared/image.jpg)
+**Score:** 13,733 | **Source:** reddit/r/memes
+
+---
+
+## i personally think even 67 fails in comparison
+![i personally think even 67 fails in comp](20260422-017-i-personally-think-even-67-fails-in-comp/image.jpg)
+**Score:** 7,905 | **Source:** reddit/r/memes
 
 ---
 

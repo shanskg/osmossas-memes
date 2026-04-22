@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-23 02:10
+# Meme Feed — 2026-04-23 02:21
 
-**Total:** 20 memes | Refresh every 10 min
-
----
-
-## The call is coming from outside the house
-![The call is coming from outside the hous](20260423-001-the-call-is-coming-from-outside-the-hous/image.jpg)
-**Score:** 5,019 | **Source:** reddit/r/WhitePeopleTwitter
+**Total:** 17 memes | Refresh every 10 min
 
 ---
 
-## Civil war the moment the other side fights back with the same tactic.
-![Civil war the moment the other side figh](20260423-002-civil-war-the-moment-the-other-side-figh/image.jpg)
-**Score:** 177 | **Source:** reddit/r/WhitePeopleTwitter
+## Interesting...
+![Interesting...](20260423-001-interesting/image.jpg)
+**Score:** 4,387 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260423-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,069 | **Source:** reddit/r/BlackPeopleTwitter
+## I don't think you're crazy.
+![I don't think you're crazy.](20260423-002-i-dont-think-youre-crazy/image.jpg)
+**Score:** 2,608 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## Leave the whales alone
+![Leave the whales alone](20260423-003-leave-the-whales-alone/image.jpg)
+**Score:** 19,178 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -34,92 +34,74 @@
 
 ---
 
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260423-006-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,145 | **Source:** reddit/r/facepalm
+
+---
+
+## The detective didn't find it
+![The detective didn't find it](20260423-007-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,762 | **Source:** reddit/r/technicallythetruth
+
+---
+
 ## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260423-006-i-cast-stairs-wrong-subreddit/image.jpg)
+![I cast stairs... Wrong subReddit](20260423-008-i-cast-stairs-wrong-subreddit/image.jpg)
 **Score:** 2,419 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260423-007-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 66 | **Source:** reddit/r/oddlyspecific
+## Don't do that
+![Don't do that](20260423-009-dont-do-that/image.jpg)
+**Score:** 336 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260423-008-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 206 | **Source:** reddit/r/oddlyspecific
-
----
-
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260423-009-an-augmented-reality-sandbox/image.jpg)
-**Score:** 604 | **Source:** reddit/r/HolUp
-
----
-
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260423-010-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,443 | **Source:** reddit/r/dankmemes
-
----
-
-## Is it really necessary?
-![Is it really necessary?](20260423-011-is-it-really-necessary/image.jpg)
-**Score:** 4,049 | **Source:** reddit/r/memes
-
----
-
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260423-012-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 306 | **Source:** reddit/r/dankmemes
-
----
-
-## *deeply inhales smog*
-![*deeply inhales smog*](20260423-013-deeply-inhales-smog/image.jpg)
-**Score:** 1,107 | **Source:** reddit/r/memes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260423-014-dont-disturb-me/image.jpg)
-**Score:** 924 | **Source:** reddit/r/dankmemes
-
----
-
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-015-send-nudes-its-safe/image.jpg)
-**Score:** 220 | **Source:** reddit/r/memes
-
----
-
-## So true....
-![So true....](20260423-016-so-true/image.jpg)
-**Score:** 14,943 | **Source:** reddit/r/memes
-
----
-
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260423-017-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 58 | **Source:** reddit/r/dankmemes
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260423-010-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,326 | **Source:** reddit/r/HolUp
 
 ---
 
 ## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260423-018-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 296 | **Source:** reddit/r/dankmemes
+![excuse me pardon me coming thru](20260423-011-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 293 | **Source:** reddit/r/dankmemes
 
 ---
 
-## i'm scared
-![i'm scared](20260423-019-im-scared/image.jpg)
-**Score:** 14,605 | **Source:** reddit/r/memes
+## 5G human radar
+![5G human radar](20260423-012-5g-human-radar/image.jpg)
+**Score:** 366 | **Source:** reddit/r/memes
 
 ---
 
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260423-020-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 6,492 | **Source:** reddit/r/memes
+## A responsible Doctor
+![A responsible Doctor](20260423-013-a-responsible-doctor/image.jpg)
+**Score:** 2,440 | **Source:** reddit/r/memes
+
+---
+
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-014-send-nudes-its-safe/image.jpg)
+**Score:** 304 | **Source:** reddit/r/memes
+
+---
+
+## my virginity is safe(r)
+![my virginity is safe(r)](20260423-015-my-virginity-is-safer/image.jpg)
+**Score:** 57 | **Source:** reddit/r/memes
+
+---
+
+## *deeply inhales smog*
+![*deeply inhales smog*](20260423-016-deeply-inhales-smog/image.jpg)
+**Score:** 1,430 | **Source:** reddit/r/memes
+
+---
+
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260423-017-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 2,985 | **Source:** reddit/r/memes
 
 ---

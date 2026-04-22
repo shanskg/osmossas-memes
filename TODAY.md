@@ -1,65 +1,119 @@
-# Meme Feed — 2026-04-23 00:10
+# Meme Feed — 2026-04-23 00:20
 
-**Total:** 10 memes | Refresh every 10 min
-
----
-
-## He's really on top
-![He's really on top](20260423-001-hes-really-on-top/image.jpg)
-**Score:** 1,932 | **Source:** reddit/r/BlackPeopleTwitter
+**Total:** 19 memes | Refresh every 10 min
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260423-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,066 | **Source:** reddit/r/BlackPeopleTwitter
+## Counter terrorists win
+![Counter terrorists win](20260423-001-counter-terrorists-win/image.jpg)
+**Score:** 5,849 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260423-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,359 | **Source:** reddit/r/facepalm
+## They have the self-awareness of a wet fart.
+![They have the self-awareness of a wet fa](20260423-002-they-have-the-self-awareness-of-a-wet-fa/image.jpg)
+**Score:** 86 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## Leave the whales alone
+![Leave the whales alone](20260423-003-leave-the-whales-alone/image.jpg)
+**Score:** 19,180 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## This a celly, that's a tool
+![This a celly, that's a tool](20260423-004-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,204 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260423-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,178 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260423-004-another-reminder-of-were-not-a-cult/image.jpg)
+![Another reminder of 'We're not a cult."](20260423-006-another-reminder-of-were-not-a-cult/image.jpg)
 **Score:** 4,136 | **Source:** reddit/r/facepalm
 
 ---
 
-## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
-![Oh Oracle, How Will I Die? Surrounded By](20260423-005-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
-**Score:** 3,922 | **Source:** reddit/r/technicallythetruth
+## The detective didn't find it
+![The detective didn't find it](20260423-007-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,744 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260423-006-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 503 | **Source:** reddit/r/technicallythetruth
-
----
-
-## among oose
-![among oose](20260423-007-among-oose/image.jpg)
-**Score:** 519 | **Source:** reddit/r/suspiciouslyspecific
+## He did NOT dodge a bullet
+![He did NOT dodge a bullet](20260423-008-he-did-not-dodge-a-bullet/image.jpg)
+**Score:** 42,246 | **Source:** reddit/r/technicallythetruth
 
 ---
 
 ## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260423-008-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
+![If I go to a cookout and bite a hot dog ](20260423-009-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
 **Score:** 202 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260423-009-ai-is-everywhere/image.jpg)
-**Score:** 886 | **Source:** reddit/r/HolUp
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260423-010-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 373 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260423-011-an-augmented-reality-sandbox/image.jpg)
+**Score:** 605 | **Source:** reddit/r/HolUp
+
+---
+
+## Clankers ruin it once again
+![Clankers ruin it once again](20260423-012-clankers-ruin-it-once-again/image.jpg)
+**Score:** 391 | **Source:** reddit/r/dankmemes
+
+---
+
+## I'm from very old era, if you know you know
+![I'm from very old era, if you know you k](20260423-013-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+**Score:** 6,492 | **Source:** reddit/r/memes
+
+---
+
+## And Whitehouse press conferences too.
+![And Whitehouse press conferences too.](20260423-014-and-whitehouse-press-conferences-too/image.jpg)
+**Score:** 226 | **Source:** reddit/r/dankmemes
+
+---
+
+## So true....
+![So true....](20260423-015-so-true/image.jpg)
+**Score:** 14,943 | **Source:** reddit/r/memes
+
+---
+
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-016-send-nudes-its-safe/image.jpg)
+**Score:** 220 | **Source:** reddit/r/memes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260423-017-you-okay-babe/image.jpg)
+**Score:** 20,319 | **Source:** reddit/r/dankmemes
+
+---
+
+## Is it really necessary?
+![Is it really necessary?](20260423-018-is-it-really-necessary/image.jpg)
+**Score:** 4,049 | **Source:** reddit/r/memes
 
 ---
 
 ## *deeply inhales smog*
-![*deeply inhales smog*](20260423-010-deeply-inhales-smog/image.jpg)
-**Score:** 738 | **Source:** reddit/r/memes
+![*deeply inhales smog*](20260423-019-deeply-inhales-smog/image.jpg)
+**Score:** 1,107 | **Source:** reddit/r/memes
 
 ---

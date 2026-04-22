@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-22 23:11
+# Meme Feed — 2026-04-22 23:21
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Civil war the moment the other side fights back with the same tactic.
-![Civil war the moment the other side figh](20260422-001-civil-war-the-moment-the-other-side-figh/image.jpg)
-**Score:** 155 | **Source:** reddit/r/WhitePeopleTwitter
+## Who is "they"?
+![Who is "they"?](20260422-001-who-is-they/image.jpg)
+**Score:** 61 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## call your representatives
-![call your representatives](20260422-002-call-your-representatives/image.jpg)
-**Score:** 253 | **Source:** reddit/r/WhitePeopleTwitter
+## Leave the whales alone
+![Leave the whales alone](20260422-002-leave-the-whales-alone/image.jpg)
+**Score:** 19,180 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -34,27 +34,27 @@
 
 ---
 
-## geometry sus
-![geometry sus](20260422-006-geometry-sus/image.jpg)
-**Score:** 79 | **Source:** reddit/r/suspiciouslyspecific
+## Among who?
+![Among who?](20260422-006-among-who/image.jpg)
+**Score:** 3,788 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Look at this track in F-zero (1991, SNES)
-![Look at this track in F-zero (1991, SNES](20260422-007-look-at-this-track-in-f-zero-1991-snes/image.jpg)
-**Score:** 73 | **Source:** reddit/r/suspiciouslyspecific
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260422-007-an-augmented-reality-sandbox/image.jpg)
+**Score:** 605 | **Source:** reddit/r/HolUp
 
 ---
 
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260422-008-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,325 | **Source:** reddit/r/HolUp
+## r/bald in a nutshell
+![r/bald in a nutshell](20260422-008-rbald-in-a-nutshell/image.jpg)
+**Score:** 7,317 | **Source:** reddit/r/memes
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260422-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 622 | **Source:** reddit/r/HolUp
+## Lets go im safe
+![Lets go im safe](20260422-009-lets-go-im-safe/image.jpg)
+**Score:** 525 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -64,62 +64,62 @@
 
 ---
 
-## Weird behavior
-![Weird behavior](20260422-011-weird-behavior/image.jpg)
-**Score:** 85 | **Source:** reddit/r/dankmemes
+## *deeply inhales smog*
+![*deeply inhales smog*](20260422-011-deeply-inhales-smog/image.jpg)
+**Score:** 738 | **Source:** reddit/r/memes
 
 ---
 
-## r/bald in a nutshell
-![r/bald in a nutshell](20260422-012-rbald-in-a-nutshell/image.jpg)
-**Score:** 7,317 | **Source:** reddit/r/memes
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260422-012-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 163 | **Source:** reddit/r/memes
 
 ---
 
-## Now we mememaxxing
-![Now we mememaxxing](20260422-013-now-we-mememaxxing/image.jpg)
-**Score:** 724 | **Source:** reddit/r/dankmemes
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260422-013-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 286 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Is it really necessary?
-![Is it really necessary?](20260422-014-is-it-really-necessary/image.jpg)
-**Score:** 4,019 | **Source:** reddit/r/memes
+## i personally think even 67 fails in comparison
+![i personally think even 67 fails in comp](20260422-014-i-personally-think-even-67-fails-in-comp/image.jpg)
+**Score:** 7,974 | **Source:** reddit/r/memes
 
 ---
 
-## So true....
-![So true....](20260422-015-so-true/image.jpg)
-**Score:** 14,946 | **Source:** reddit/r/memes
+## It's in the blood
+![It's in the blood](20260422-015-its-in-the-blood/image.jpg)
+**Score:** 261 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260422-016-dont-disturb-me/image.jpg)
-**Score:** 903 | **Source:** reddit/r/dankmemes
-
----
-
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260422-017-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 6,431 | **Source:** reddit/r/memes
-
----
-
-## what a wild ride
-![what a wild ride](20260422-018-what-a-wild-ride/image.jpg)
-**Score:** 2,980 | **Source:** reddit/r/dankmemes
-
----
-
-## Lets go im safe
-![Lets go im safe](20260422-019-lets-go-im-safe/image.jpg)
-**Score:** 525 | **Source:** reddit/r/dankmemes
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260422-016-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,435 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Let's get straight to the business - it's open during stock hours
-![Let's get straight to the business - it'](20260422-020-lets-get-straight-to-the-business-its-op/image.jpg)
+![Let's get straight to the business - it'](20260422-017-lets-get-straight-to-the-business-its-op/image.jpg)
 **Score:** 263 | **Source:** reddit/r/dankmemes
+
+---
+
+## Send nudes. It's safe
+![Send nudes. It's safe](20260422-018-send-nudes-its-safe/image.jpg)
+**Score:** 118 | **Source:** reddit/r/memes
+
+---
+
+## A responsible Doctor
+![A responsible Doctor](20260422-019-a-responsible-doctor/image.jpg)
+**Score:** 2,419 | **Source:** reddit/r/memes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260422-020-you-okay-babe/image.jpg)
+**Score:** 20,278 | **Source:** reddit/r/dankmemes
 
 ---

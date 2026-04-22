@@ -1,114 +1,115 @@
-# Meme Feed — 2026-04-22 19:21
+# Meme Feed — 2026-04-22 19:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## There is no library. He just pocketed the money and produced AI slop of a 'conce
-![There is no library. He just pocketed th](20260422-001-there-is-no-library-he-just-pocketed-the/image.jpg)
-**Score:** 670 | **Source:** reddit/r/WhitePeopleTwitter
+## None of the things on that wall actually happened lol
+![None of the things on that wall actually](20260422-001-none-of-the-things-on-that-wall-actually/image.jpg)
+**Score:** 1,701 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## skins vs skins
-![skins vs skins](20260422-002-skins-vs-skins/image.jpg)
-**Score:** 1,019 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260422-003-well-did-they-accept-or-not/image.jpg)
-**Score:** 827 | **Source:** reddit/r/facepalm
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260422-002-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,140 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260422-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260422-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,360 | **Source:** reddit/r/facepalm
 
 ---
 
-## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
-![Oh Oracle, How Will I Die? Surrounded By](20260422-005-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
-**Score:** 3,924 | **Source:** reddit/r/technicallythetruth
+## He didn't sound like much of anything in there
+![He didn't sound like much of anything in](20260422-004-he-didnt-sound-like-much-of-anything-in-/image.jpg)
+**Score:** 1,836 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## outperforming the inflation rate
-![outperforming the inflation rate](20260422-006-outperforming-the-inflation-rate/image.jpg)
-**Score:** 65,007 | **Source:** reddit/r/technicallythetruth
+## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
+![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260422-005-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
+**Score:** 9,215 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## I'm too lazy to take a picture, so I made a drawing more time consuming but anyw
-![I'm too lazy to take a picture, so I mad](20260422-007-im-too-lazy-to-take-a-picture-so-i-made-/image.jpg)
-**Score:** 214 | **Source:** reddit/r/suspiciouslyspecific
+## it’s everywhere
+![it’s everywhere](20260422-006-its-everywhere/image.jpg)
+**Score:** 101 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260422-008-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 200 | **Source:** reddit/r/oddlyspecific
+## Don't do that
+![Don't do that](20260422-007-dont-do-that/image.jpg)
+**Score:** 342 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260422-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 613 | **Source:** reddit/r/HolUp
+## House at a lake with mountains, 1910
+![House at a lake with mountains, 1910](20260422-008-house-at-a-lake-with-mountains-1910/image.jpg)
+**Score:** 4,347 | **Source:** reddit/r/HolUp
 
 ---
 
-## Clankers ruin it once again
-![Clankers ruin it once again](20260422-010-clankers-ruin-it-once-again/image.jpg)
-**Score:** 392 | **Source:** reddit/r/dankmemes
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260422-009-an-augmented-reality-sandbox/image.jpg)
+**Score:** 606 | **Source:** reddit/r/HolUp
 
 ---
 
-## We all have gone through ts
-![We all have gone through ts](20260422-011-we-all-have-gone-through-ts/image.jpg)
-**Score:** 359 | **Source:** reddit/r/memes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260422-012-dont-disturb-me/image.jpg)
-**Score:** 777 | **Source:** reddit/r/dankmemes
-
----
-
-## i personally think even 67 fails in comparison
-![i personally think even 67 fails in comp](20260422-013-i-personally-think-even-67-fails-in-comp/image.jpg)
-**Score:** 7,958 | **Source:** reddit/r/memes
+## I Don't know why this trend exists, and at this point I'm afraid to ask
+![I Don't know why this trend exists, and ](20260422-010-i-dont-know-why-this-trend-exists-and-at/image.jpg)
+**Score:** 51 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## So true....
-![So true....](20260422-014-so-true/image.jpg)
+![So true....](20260422-011-so-true/image.jpg)
 **Score:** 14,915 | **Source:** reddit/r/memes
 
 ---
 
 ## Now we mememaxxing
-![Now we mememaxxing](20260422-015-now-we-mememaxxing/image.jpg)
+![Now we mememaxxing](20260422-012-now-we-mememaxxing/image.jpg)
 **Score:** 709 | **Source:** reddit/r/dankmemes
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260422-016-you-okay-babe/image.jpg)
-**Score:** 20,080 | **Source:** reddit/r/dankmemes
+## Clankers ruin it once again
+![Clankers ruin it once again](20260422-013-clankers-ruin-it-once-again/image.jpg)
+**Score:** 392 | **Source:** reddit/r/dankmemes
 
 ---
 
-## r/bald in a nutshell
-![r/bald in a nutshell](20260422-017-rbald-in-a-nutshell/image.jpg)
-**Score:** 6,708 | **Source:** reddit/r/memes
+## Don't disturb me
+![Don't disturb me](20260422-014-dont-disturb-me/image.jpg)
+**Score:** 777 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I Don't know why this trend exists, and at this point I'm afraid to ask
-![I Don't know why this trend exists, and ](20260422-018-i-dont-know-why-this-trend-exists-and-at/image.jpg)
-**Score:** 51 | **Source:** reddit/r/dankmemes
+## i'm scared
+![i'm scared](20260422-015-im-scared/image.jpg)
+**Score:** 14,393 | **Source:** reddit/r/memes
+
+---
+
+## I'm from very old era, if you know you know
+![I'm from very old era, if you know you k](20260422-016-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+**Score:** 6,126 | **Source:** reddit/r/memes
+
+---
+
+## IT: ‘Your password must include 12 characters, a symbol, and a sacrifice.’
+Me:
+![IT: ‘Your password must include 12 chara](20260422-017-it-your-password-must-include-12-charact/image.jpg)
+**Score:** 2,057 | **Source:** reddit/r/memes
+
+---
+
+## We all have gone through ts
+![We all have gone through ts](20260422-018-we-all-have-gone-through-ts/image.jpg)
+**Score:** 359 | **Source:** reddit/r/memes
 
 ---
 

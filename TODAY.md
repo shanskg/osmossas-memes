@@ -1,12 +1,12 @@
-# Meme Feed — 2026-04-22 18:10
+# Meme Feed — 2026-04-22 18:21
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Scream it from the rooftops
-![Scream it from the rooftops](20260422-001-scream-it-from-the-rooftops/image.jpg)
-**Score:** 2,389 | **Source:** reddit/r/WhitePeopleTwitter
+## They always vote 'no' on those anti-gerrymandering bills
+![They always vote 'no' on those anti-gerr](20260422-001-they-always-vote-no-on-those-anti-gerrym/image.jpg)
+**Score:** 180 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
@@ -16,110 +16,111 @@
 
 ---
 
-## Leave the whales alone
-![Leave the whales alone](20260422-003-leave-the-whales-alone/image.jpg)
-**Score:** 19,184 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
 ## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260422-004-another-reminder-of-were-not-a-cult/image.jpg)
+![Another reminder of 'We're not a cult."](20260422-003-another-reminder-of-were-not-a-cult/image.jpg)
 **Score:** 4,142 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260422-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260422-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,362 | **Source:** reddit/r/facepalm
 
 ---
 
-## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
-![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260422-006-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
-**Score:** 9,041 | **Source:** reddit/r/technicallythetruth
+## He did NOT dodge a bullet
+![He did NOT dodge a bullet](20260422-005-he-did-not-dodge-a-bullet/image.jpg)
+**Score:** 42,251 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## How did none of you notice this?
-![How did none of you notice this?](20260422-007-how-did-none-of-you-notice-this/image.jpg)
-**Score:** 1,077 | **Source:** reddit/r/suspiciouslyspecific
+## The detective didn't find it
+![The detective didn't find it](20260422-006-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,704 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260422-008-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 374 | **Source:** reddit/r/oddlyspecific
+## Don't do that
+![Don't do that](20260422-007-dont-do-that/image.jpg)
+**Score:** 340 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## House at a lake with mountains, 1910
-![House at a lake with mountains, 1910](20260422-009-house-at-a-lake-with-mountains-1910/image.jpg)
-**Score:** 4,341 | **Source:** reddit/r/HolUp
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260422-008-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,328 | **Source:** reddit/r/HolUp
 
 ---
 
-## r/bald in a nutshell
-![r/bald in a nutshell](20260422-010-rbald-in-a-nutshell/image.jpg)
-**Score:** 6,293 | **Source:** reddit/r/memes
+## Clankers ruin it once again
+![Clankers ruin it once again](20260422-009-clankers-ruin-it-once-again/image.jpg)
+**Score:** 392 | **Source:** reddit/r/dankmemes
 
 ---
 
-## well hello
-![well hello](20260422-011-well-hello/image.jpg)
-**Score:** 6,413 | **Source:** reddit/r/dankmemes
+## i'm scared
+![i'm scared](20260422-010-im-scared/image.jpg)
+**Score:** 14,393 | **Source:** reddit/r/memes
 
 ---
 
-## what a wild ride
-![what a wild ride](20260422-012-what-a-wild-ride/image.jpg)
-**Score:** 2,974 | **Source:** reddit/r/dankmemes
+## I'm from very old era, if you know you know
+![I'm from very old era, if you know you k](20260422-011-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+**Score:** 6,126 | **Source:** reddit/r/memes
 
 ---
 
-## i personally think even 67 fails in comparison
-![i personally think even 67 fails in comp](20260422-013-i-personally-think-even-67-fails-in-comp/image.jpg)
-**Score:** 7,949 | **Source:** reddit/r/memes
-
----
-
-## it's a peaceful life
-![it's a peaceful life](20260422-014-its-a-peaceful-life/image.jpg)
-**Score:** 2,159 | **Source:** reddit/r/dankmemes
+## So hard to do.
+![So hard to do.](20260422-012-so-hard-to-do/image.jpg)
+**Score:** 1,494 | **Source:** reddit/r/memes
 
 ---
 
 ## A responsible Doctor
-![A responsible Doctor](20260422-015-a-responsible-doctor/image.jpg)
-**Score:** 2,389 | **Source:** reddit/r/memes
+![A responsible Doctor](20260422-013-a-responsible-doctor/image.jpg)
+**Score:** 2,409 | **Source:** reddit/r/memes
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260422-016-dont-disturb-me/image.jpg)
-**Score:** 708 | **Source:** reddit/r/dankmemes
+## We all have gone through ts
+![We all have gone through ts](20260422-014-we-all-have-gone-through-ts/image.jpg)
+**Score:** 359 | **Source:** reddit/r/memes
 
 ---
 
-## just my hair leaving me one strand at a time
-![just my hair leaving me one strand at a ](20260422-017-just-my-hair-leaving-me-one-strand-at-a-/image.jpg)
-**Score:** 137 | **Source:** reddit/r/memes
+## IT: ‘Your password must include 12 characters, a symbol, and a sacrifice.’
+Me:
+![IT: ‘Your password must include 12 chara](20260422-015-it-your-password-must-include-12-charact/image.jpg)
+**Score:** 2,057 | **Source:** reddit/r/memes
 
 ---
 
-## So true....
-![So true....](20260422-018-so-true/image.jpg)
-**Score:** 14,902 | **Source:** reddit/r/memes
+## *deeply inhales smog*
+![*deeply inhales smog*](20260422-016-deeply-inhales-smog/image.jpg)
+**Score:** 120 | **Source:** reddit/r/memes
+
+---
+
+## i personally think even 67 fails in comparison
+![i personally think even 67 fails in comp](20260422-017-i-personally-think-even-67-fails-in-comp/image.jpg)
+**Score:** 7,958 | **Source:** reddit/r/memes
+
+---
+
+## I Don't know why this trend exists, and at this point I'm afraid to ask
+![I Don't know why this trend exists, and ](20260422-018-i-dont-know-why-this-trend-exists-and-at/image.jpg)
+**Score:** 51 | **Source:** reddit/r/dankmemes
+
+---
+
+## the wikipedia entry has over 2300 words
+![the wikipedia entry has over 2300 words](20260422-019-the-wikipedia-entry-has-over-2300-words/image.jpg)
+**Score:** 4,056 | **Source:** reddit/r/memes
 
 ---
 
 ## You Okay Babe?
-![You Okay Babe?](20260422-019-you-okay-babe/image.jpg)
-**Score:** 19,946 | **Source:** reddit/r/dankmemes
-
----
-
-## Now we mememaxxing
-![Now we mememaxxing](20260422-020-now-we-mememaxxing/image.jpg)
-**Score:** 704 | **Source:** reddit/r/dankmemes
+![You Okay Babe?](20260422-020-you-okay-babe/image.jpg)
+**Score:** 20,080 | **Source:** reddit/r/dankmemes
 
 ---

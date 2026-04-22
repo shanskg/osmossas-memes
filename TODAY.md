@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-23 04:10
+# Meme Feed — 2026-04-23 04:21
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Scream it from the rooftops
-![Scream it from the rooftops](20260423-001-scream-it-from-the-rooftops/image.jpg)
-**Score:** 4,278 | **Source:** reddit/r/WhitePeopleTwitter
+## He's really on top
+![He's really on top](20260423-001-hes-really-on-top/image.jpg)
+**Score:** 1,933 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Leave the whales alone
-![Leave the whales alone](20260423-002-leave-the-whales-alone/image.jpg)
-**Score:** 19,175 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260423-003-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,399 | **Source:** reddit/r/BlackPeopleTwitter
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260423-002-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,140 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260423-004-well-did-they-accept-or-not/image.jpg)
+![Well? Did they accept or not?](20260423-003-well-did-they-accept-or-not/image.jpg)
 **Score:** 833 | **Source:** reddit/r/facepalm
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260423-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,368 | **Source:** reddit/r/facepalm
+## To be fair an Avocado is just Guacamole in ball form.
+![To be fair an Avocado is just Guacamole ](20260423-004-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
+**Score:** 10,070 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## He didn't sound like much of anything in there
-![He didn't sound like much of anything in](20260423-006-he-didnt-sound-like-much-of-anything-in-/image.jpg)
-**Score:** 1,838 | **Source:** reddit/r/technicallythetruth
+## You guys like my website?
+![You guys like my website?](20260423-005-you-guys-like-my-website/image.jpg)
+**Score:** 75 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260423-007-i-cast-stairs-wrong-subreddit/image.jpg)
-**Score:** 2,423 | **Source:** reddit/r/technicallythetruth
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260423-006-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 383 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## found an old notebook from 6th grade
-![found an old notebook from 6th grade](20260423-008-found-an-old-notebook-from-6th-grade/image.jpg)
-**Score:** 5,699 | **Source:** reddit/r/suspiciouslyspecific
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260423-007-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 67 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## My local children's Emergency Department doesn't treat Testicular Pain
-![My local children's Emergency Department](20260423-009-my-local-childrens-emergency-department-/image.jpg)
-**Score:** 50 | **Source:** reddit/r/oddlyspecific
+## AI is everywhere
+![AI is everywhere](20260423-008-ai-is-everywhere/image.jpg)
+**Score:** 890 | **Source:** reddit/r/HolUp
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260423-010-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 617 | **Source:** reddit/r/HolUp
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260423-009-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 84 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260423-011-dont-disturb-me/image.jpg)
-**Score:** 930 | **Source:** reddit/r/dankmemes
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260423-010-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 292 | **Source:** reddit/r/dankmemes
 
 ---
 
-## A responsible Doctor
-![A responsible Doctor](20260423-012-a-responsible-doctor/image.jpg)
-**Score:** 2,440 | **Source:** reddit/r/memes
-
----
-
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260423-013-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 6,499 | **Source:** reddit/r/memes
-
----
-
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260423-014-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 304 | **Source:** reddit/r/dankmemes
-
----
-
-## my virginity is safe(r)
-![my virginity is safe(r)](20260423-015-my-virginity-is-safer/image.jpg)
-**Score:** 57 | **Source:** reddit/r/memes
+## what a wild ride
+![what a wild ride](20260423-011-what-a-wild-ride/image.jpg)
+**Score:** 2,982 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Weird behavior
-![Weird behavior](20260423-016-weird-behavior/image.jpg)
-**Score:** 87 | **Source:** reddit/r/dankmemes
+![Weird behavior](20260423-012-weird-behavior/image.jpg)
+**Score:** 92 | **Source:** reddit/r/dankmemes
+
+---
+
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260423-013-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 4,375 | **Source:** reddit/r/memes
+
+---
+
+## *deeply inhales smog*
+![*deeply inhales smog*](20260423-014-deeply-inhales-smog/image.jpg)
+**Score:** 1,805 | **Source:** reddit/r/memes
+
+---
+
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-015-send-nudes-its-safe/image.jpg)
+**Score:** 387 | **Source:** reddit/r/memes
+
+---
+
+## Is it really necessary?
+![Is it really necessary?](20260423-016-is-it-really-necessary/image.jpg)
+**Score:** 4,061 | **Source:** reddit/r/memes
+
+---
+
+## And Whitehouse press conferences too.
+![And Whitehouse press conferences too.](20260423-017-and-whitehouse-press-conferences-too/image.jpg)
+**Score:** 226 | **Source:** reddit/r/dankmemes
+
+---
+
+## my virginity is safe(r)
+![my virginity is safe(r)](20260423-018-my-virginity-is-safer/image.jpg)
+**Score:** 68 | **Source:** reddit/r/memes
 
 ---
 
 ## Lets go im safe
-![Lets go im safe](20260423-017-lets-go-im-safe/image.jpg)
-**Score:** 663 | **Source:** reddit/r/dankmemes
+![Lets go im safe](20260423-019-lets-go-im-safe/image.jpg)
+**Score:** 710 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Let's get straight to the business - it's open during stock hours
-![Let's get straight to the business - it'](20260423-018-lets-get-straight-to-the-business-its-op/image.jpg)
-**Score:** 261 | **Source:** reddit/r/dankmemes
-
----
-
-## r/bald in a nutshell
-![r/bald in a nutshell](20260423-019-rbald-in-a-nutshell/image.jpg)
-**Score:** 7,515 | **Source:** reddit/r/memes
-
----
-
-## It's in the blood
-![It's in the blood](20260423-020-its-in-the-blood/image.jpg)
-**Score:** 263 | **Source:** reddit/r/dankmemes
+## i'm scared
+![i'm scared](20260423-020-im-scared/image.jpg)
+**Score:** 14,686 | **Source:** reddit/r/memes
 
 ---

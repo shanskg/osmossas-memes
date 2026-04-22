@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-23 00:20
+# Meme Feed — 2026-04-23 00:30
 
-**Total:** 19 memes | Refresh every 10 min
-
----
-
-## Counter terrorists win
-![Counter terrorists win](20260423-001-counter-terrorists-win/image.jpg)
-**Score:** 5,849 | **Source:** reddit/r/WhitePeopleTwitter
+**Total:** 15 memes | Refresh every 10 min
 
 ---
 
-## They have the self-awareness of a wet fart.
-![They have the self-awareness of a wet fa](20260423-002-they-have-the-self-awareness-of-a-wet-fa/image.jpg)
-**Score:** 86 | **Source:** reddit/r/WhitePeopleTwitter
+## Gee, wonder who those 'very upset' people are.
+![Gee, wonder who those 'very upset' peopl](20260423-001-gee-wonder-who-those-very-upset-people-a/image.jpg)
+**Score:** 516 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260423-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,066 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -22,98 +22,74 @@
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260423-004-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,204 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260423-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,178 | **Source:** reddit/r/facepalm
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260423-006-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,136 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260423-005-well-did-they-accept-or-not/image.jpg)
+**Score:** 829 | **Source:** reddit/r/facepalm
 
 ---
 
-## The detective didn't find it
-![The detective didn't find it](20260423-007-the-detective-didnt-find-it/image.jpg)
-**Score:** 33,744 | **Source:** reddit/r/technicallythetruth
+## 125 per hour in Oregon
+![125 per hour in Oregon](20260423-006-125-per-hour-in-oregon/image.jpg)
+**Score:** 12,635 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## He did NOT dodge a bullet
-![He did NOT dodge a bullet](20260423-008-he-did-not-dodge-a-bullet/image.jpg)
-**Score:** 42,246 | **Source:** reddit/r/technicallythetruth
+## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
+![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260423-007-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
+**Score:** 1,036 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260423-009-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 202 | **Source:** reddit/r/oddlyspecific
+## Look at this track in F-zero (1991, SNES)
+![Look at this track in F-zero (1991, SNES](20260423-008-look-at-this-track-in-f-zero-1991-snes/image.jpg)
+**Score:** 73 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260423-010-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 373 | **Source:** reddit/r/oddlyspecific
+## Among who?
+![Among who?](20260423-009-among-who/image.jpg)
+**Score:** 3,788 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260423-011-an-augmented-reality-sandbox/image.jpg)
-**Score:** 605 | **Source:** reddit/r/HolUp
-
----
-
-## Clankers ruin it once again
-![Clankers ruin it once again](20260423-012-clankers-ruin-it-once-again/image.jpg)
-**Score:** 391 | **Source:** reddit/r/dankmemes
-
----
-
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260423-013-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 6,492 | **Source:** reddit/r/memes
-
----
-
-## And Whitehouse press conferences too.
-![And Whitehouse press conferences too.](20260423-014-and-whitehouse-press-conferences-too/image.jpg)
-**Score:** 226 | **Source:** reddit/r/dankmemes
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260423-010-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 66 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## So true....
-![So true....](20260423-015-so-true/image.jpg)
+![So true....](20260423-011-so-true/image.jpg)
 **Score:** 14,943 | **Source:** reddit/r/memes
 
 ---
 
 ## Send nudes. It's safe
-![Send nudes. It's safe](20260423-016-send-nudes-its-safe/image.jpg)
+![Send nudes. It's safe](20260423-012-send-nudes-its-safe/image.jpg)
 **Score:** 220 | **Source:** reddit/r/memes
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260423-017-you-okay-babe/image.jpg)
-**Score:** 20,319 | **Source:** reddit/r/dankmemes
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260423-013-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 1,210 | **Source:** reddit/r/memes
 
 ---
 
-## Is it really necessary?
-![Is it really necessary?](20260423-018-is-it-really-necessary/image.jpg)
-**Score:** 4,049 | **Source:** reddit/r/memes
+## Now we mememaxxing
+![Now we mememaxxing](20260423-014-now-we-mememaxxing/image.jpg)
+**Score:** 734 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## *deeply inhales smog*
-![*deeply inhales smog*](20260423-019-deeply-inhales-smog/image.jpg)
+![*deeply inhales smog*](20260423-015-deeply-inhales-smog/image.jpg)
 **Score:** 1,107 | **Source:** reddit/r/memes
 
 ---

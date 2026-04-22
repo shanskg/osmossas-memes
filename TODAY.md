@@ -1,84 +1,84 @@
-# Meme Feed — 2026-04-23 02:21
+# Meme Feed — 2026-04-23 02:30
 
-**Total:** 17 memes | Refresh every 10 min
-
----
-
-## Interesting...
-![Interesting...](20260423-001-interesting/image.jpg)
-**Score:** 4,387 | **Source:** reddit/r/WhitePeopleTwitter
+**Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## I don't think you're crazy.
-![I don't think you're crazy.](20260423-002-i-dont-think-youre-crazy/image.jpg)
-**Score:** 2,608 | **Source:** reddit/r/WhitePeopleTwitter
+## He's really on top
+![He's really on top](20260423-001-hes-really-on-top/image.jpg)
+**Score:** 1,932 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Leave the whales alone
-![Leave the whales alone](20260423-003-leave-the-whales-alone/image.jpg)
+![Leave the whales alone](20260423-002-leave-the-whales-alone/image.jpg)
 **Score:** 19,178 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260423-004-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,402 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260423-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,364 | **Source:** reddit/r/facepalm
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260423-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,180 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260423-006-another-reminder-of-were-not-a-cult/image.jpg)
+![Another reminder of 'We're not a cult."](20260423-004-another-reminder-of-were-not-a-cult/image.jpg)
 **Score:** 4,145 | **Source:** reddit/r/facepalm
 
 ---
 
-## The detective didn't find it
-![The detective didn't find it](20260423-007-the-detective-didnt-find-it/image.jpg)
-**Score:** 33,762 | **Source:** reddit/r/technicallythetruth
+## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
+![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260423-005-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
+**Score:** 1,053 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260423-008-i-cast-stairs-wrong-subreddit/image.jpg)
-**Score:** 2,419 | **Source:** reddit/r/technicallythetruth
+## Being shot with a depleted uranium bullet can't be good
+![Being shot with a depleted uranium bulle](20260423-006-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+**Score:** 500 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Don't do that
-![Don't do that](20260423-009-dont-do-that/image.jpg)
-**Score:** 336 | **Source:** reddit/r/oddlyspecific
+## it’s everywhere
+![it’s everywhere](20260423-007-its-everywhere/image.jpg)
+**Score:** 103 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260423-010-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,326 | **Source:** reddit/r/HolUp
+## You guys like my website?
+![You guys like my website?](20260423-008-you-guys-like-my-website/image.jpg)
+**Score:** 77 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260423-009-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 379 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## Darker and darker
+![Darker and darker](20260423-010-darker-and-darker/image.jpg)
+**Score:** 283 | **Source:** reddit/r/HolUp
+
+---
+
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260423-011-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 69 | **Source:** reddit/r/dankmemes
+
+---
+
+## Is it really necessary?
+![Is it really necessary?](20260423-012-is-it-really-necessary/image.jpg)
+**Score:** 4,059 | **Source:** reddit/r/memes
 
 ---
 
 ## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260423-011-excuse-me-pardon-me-coming-thru/image.jpg)
+![excuse me pardon me coming thru](20260423-013-excuse-me-pardon-me-coming-thru/image.jpg)
 **Score:** 293 | **Source:** reddit/r/dankmemes
-
----
-
-## 5G human radar
-![5G human radar](20260423-012-5g-human-radar/image.jpg)
-**Score:** 366 | **Source:** reddit/r/memes
-
----
-
-## A responsible Doctor
-![A responsible Doctor](20260423-013-a-responsible-doctor/image.jpg)
-**Score:** 2,440 | **Source:** reddit/r/memes
 
 ---
 
@@ -88,20 +88,38 @@
 
 ---
 
+## Don't disturb me
+![Don't disturb me](20260423-015-dont-disturb-me/image.jpg)
+**Score:** 930 | **Source:** reddit/r/dankmemes
+
+---
+
+## It's in the blood
+![It's in the blood](20260423-016-its-in-the-blood/image.jpg)
+**Score:** 263 | **Source:** reddit/r/dankmemes
+
+---
+
+## A responsible Doctor
+![A responsible Doctor](20260423-017-a-responsible-doctor/image.jpg)
+**Score:** 2,440 | **Source:** reddit/r/memes
+
+---
+
+## 5G human radar
+![5G human radar](20260423-018-5g-human-radar/image.jpg)
+**Score:** 366 | **Source:** reddit/r/memes
+
+---
+
+## Weird behavior
+![Weird behavior](20260423-019-weird-behavior/image.jpg)
+**Score:** 87 | **Source:** reddit/r/dankmemes
+
+---
+
 ## my virginity is safe(r)
-![my virginity is safe(r)](20260423-015-my-virginity-is-safer/image.jpg)
+![my virginity is safe(r)](20260423-020-my-virginity-is-safer/image.jpg)
 **Score:** 57 | **Source:** reddit/r/memes
-
----
-
-## *deeply inhales smog*
-![*deeply inhales smog*](20260423-016-deeply-inhales-smog/image.jpg)
-**Score:** 1,430 | **Source:** reddit/r/memes
-
----
-
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-017-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 2,985 | **Source:** reddit/r/memes
 
 ---

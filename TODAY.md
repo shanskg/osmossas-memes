@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-22 18:31
+# Meme Feed — 2026-04-22 18:41
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## world leaders need to drop more carrots and less bombs. Thank you Australia.
-![world leaders need to drop more carrots ](20260422-001-world-leaders-need-to-drop-more-carrots-/image.jpg)
-**Score:** 1,471 | **Source:** reddit/r/WhitePeopleTwitter
+## None of the things on that wall actually happened lol
+![None of the things on that wall actually](20260422-001-none-of-the-things-on-that-wall-actually/image.jpg)
+**Score:** 1,703 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260422-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,072 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## skins vs skins
-![skins vs skins](20260422-002-skins-vs-skins/image.jpg)
+![skins vs skins](20260422-003-skins-vs-skins/image.jpg)
 **Score:** 1,014 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260422-003-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,406 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -28,94 +28,94 @@
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260422-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,362 | **Source:** reddit/r/facepalm
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260422-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,179 | **Source:** reddit/r/facepalm
 
 ---
 
-## The detective didn't find it
-![The detective didn't find it](20260422-006-the-detective-didnt-find-it/image.jpg)
-**Score:** 33,704 | **Source:** reddit/r/technicallythetruth
+## Some inflation is good
+![Some inflation is good](20260422-006-some-inflation-is-good/image.jpg)
+**Score:** 15,676 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Dippers shadow in this episode of Gravity Falls
-![Dippers shadow in this episode of Gravit](20260422-007-dippers-shadow-in-this-episode-of-gravit/image.jpg)
-**Score:** 1,089 | **Source:** reddit/r/suspiciouslyspecific
+## I cast stairs... Wrong subReddit
+![I cast stairs... Wrong subReddit](20260422-007-i-cast-stairs-wrong-subreddit/image.jpg)
+**Score:** 2,369 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260422-008-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,328 | **Source:** reddit/r/HolUp
+## The Great Amongball...
+![The Great Amongball...](20260422-008-the-great-amongball/image.jpg)
+**Score:** 80 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## r/bald in a nutshell
-![r/bald in a nutshell](20260422-009-rbald-in-a-nutshell/image.jpg)
-**Score:** 6,708 | **Source:** reddit/r/memes
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260422-009-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 374 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260422-010-dont-disturb-me/image.jpg)
-**Score:** 777 | **Source:** reddit/r/dankmemes
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260422-010-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 614 | **Source:** reddit/r/HolUp
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260422-011-you-okay-babe/image.jpg)
-**Score:** 20,080 | **Source:** reddit/r/dankmemes
+## House at a lake with mountains, 1910
+![House at a lake with mountains, 1910](20260422-011-house-at-a-lake-with-mountains-1910/image.jpg)
+**Score:** 4,341 | **Source:** reddit/r/HolUp
 
 ---
 
-## Is it really necessary?
-![Is it really necessary?](20260422-012-is-it-really-necessary/image.jpg)
-**Score:** 3,913 | **Source:** reddit/r/memes
+## Clankers ruin it once again
+![Clankers ruin it once again](20260422-012-clankers-ruin-it-once-again/image.jpg)
+**Score:** 392 | **Source:** reddit/r/dankmemes
+
+---
+
+## A responsible Doctor
+![A responsible Doctor](20260422-013-a-responsible-doctor/image.jpg)
+**Score:** 2,409 | **Source:** reddit/r/memes
 
 ---
 
 ## IT: ‘Your password must include 12 characters, a symbol, and a sacrifice.’
 Me:
-![IT: ‘Your password must include 12 chara](20260422-013-it-your-password-must-include-12-charact/image.jpg)
+![IT: ‘Your password must include 12 chara](20260422-014-it-your-password-must-include-12-charact/image.jpg)
 **Score:** 2,057 | **Source:** reddit/r/memes
 
 ---
 
-## I Don't know why this trend exists, and at this point I'm afraid to ask
-![I Don't know why this trend exists, and ](20260422-014-i-dont-know-why-this-trend-exists-and-at/image.jpg)
-**Score:** 51 | **Source:** reddit/r/dankmemes
-
----
-
-## Clankers ruin it once again
-![Clankers ruin it once again](20260422-015-clankers-ruin-it-once-again/image.jpg)
-**Score:** 392 | **Source:** reddit/r/dankmemes
-
----
-
-## We all have gone through ts
-![We all have gone through ts](20260422-016-we-all-have-gone-through-ts/image.jpg)
-**Score:** 359 | **Source:** reddit/r/memes
-
----
-
-## Now we mememaxxing
-![Now we mememaxxing](20260422-017-now-we-mememaxxing/image.jpg)
-**Score:** 709 | **Source:** reddit/r/dankmemes
+## You Okay Babe?
+![You Okay Babe?](20260422-015-you-okay-babe/image.jpg)
+**Score:** 20,080 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260422-018-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+![I'm from very old era, if you know you k](20260422-016-im-from-very-old-era-if-you-know-you-kno/image.jpg)
 **Score:** 6,126 | **Source:** reddit/r/memes
 
 ---
 
-## A responsible Doctor
-![A responsible Doctor](20260422-019-a-responsible-doctor/image.jpg)
-**Score:** 2,409 | **Source:** reddit/r/memes
+## So hard to do.
+![So hard to do.](20260422-017-so-hard-to-do/image.jpg)
+**Score:** 1,494 | **Source:** reddit/r/memes
+
+---
+
+## i'm scared
+![i'm scared](20260422-018-im-scared/image.jpg)
+**Score:** 14,393 | **Source:** reddit/r/memes
+
+---
+
+## the wikipedia entry has over 2300 words
+![the wikipedia entry has over 2300 words](20260422-019-the-wikipedia-entry-has-over-2300-words/image.jpg)
+**Score:** 4,056 | **Source:** reddit/r/memes
 
 ---
 

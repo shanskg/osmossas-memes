@@ -1,95 +1,125 @@
-# Meme Feed — 2026-04-23 00:30
+# Meme Feed — 2026-04-23 00:41
 
-**Total:** 15 memes | Refresh every 10 min
-
----
-
-## Gee, wonder who those 'very upset' people are.
-![Gee, wonder who those 'very upset' peopl](20260423-001-gee-wonder-who-those-very-upset-people-a/image.jpg)
-**Score:** 516 | **Source:** reddit/r/WhitePeopleTwitter
+**Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260423-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,066 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Leave the whales alone
-![Leave the whales alone](20260423-003-leave-the-whales-alone/image.jpg)
-**Score:** 19,180 | **Source:** reddit/r/BlackPeopleTwitter
+## Claiming Virginia is "under hostile occupation" because a vote didn't go your wa
+![Claiming Virginia is "under hostile occu](20260423-001-claiming-virginia-is-under-hostile-occup/image.jpg)
+**Score:** 430 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260423-002-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,178 | **Source:** reddit/r/facepalm
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260423-005-well-did-they-accept-or-not/image.jpg)
-**Score:** 829 | **Source:** reddit/r/facepalm
+## To be fair an Avocado is just Guacamole in ball form.
+![To be fair an Avocado is just Guacamole ](20260423-003-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
+**Score:** 10,071 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## 125 per hour in Oregon
-![125 per hour in Oregon](20260423-006-125-per-hour-in-oregon/image.jpg)
-**Score:** 12,635 | **Source:** reddit/r/technicallythetruth
+## He's in there somewhere
+![He's in there somewhere](20260423-004-hes-in-there-somewhere/image.jpg)
+**Score:** 1,530 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
-![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260423-007-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
-**Score:** 1,036 | **Source:** reddit/r/technicallythetruth
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260423-005-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,325 | **Source:** reddit/r/HolUp
 
 ---
 
-## Look at this track in F-zero (1991, SNES)
-![Look at this track in F-zero (1991, SNES](20260423-008-look-at-this-track-in-f-zero-1991-snes/image.jpg)
-**Score:** 73 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## Among who?
-![Among who?](20260423-009-among-who/image.jpg)
-**Score:** 3,788 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260423-010-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 66 | **Source:** reddit/r/oddlyspecific
-
----
-
-## So true....
-![So true....](20260423-011-so-true/image.jpg)
-**Score:** 14,943 | **Source:** reddit/r/memes
-
----
-
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-012-send-nudes-its-safe/image.jpg)
-**Score:** 220 | **Source:** reddit/r/memes
-
----
-
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-013-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 1,210 | **Source:** reddit/r/memes
-
----
-
-## Now we mememaxxing
-![Now we mememaxxing](20260423-014-now-we-mememaxxing/image.jpg)
-**Score:** 734 | **Source:** reddit/r/dankmemes
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260423-006-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 622 | **Source:** reddit/r/HolUp
 
 ---
 
 ## *deeply inhales smog*
-![*deeply inhales smog*](20260423-015-deeply-inhales-smog/image.jpg)
+![*deeply inhales smog*](20260423-007-deeply-inhales-smog/image.jpg)
 **Score:** 1,107 | **Source:** reddit/r/memes
+
+---
+
+## Clankers ruin it once again
+![Clankers ruin it once again](20260423-008-clankers-ruin-it-once-again/image.jpg)
+**Score:** 391 | **Source:** reddit/r/dankmemes
+
+---
+
+## r/bald in a nutshell
+![r/bald in a nutshell](20260423-009-rbald-in-a-nutshell/image.jpg)
+**Score:** 7,439 | **Source:** reddit/r/memes
+
+---
+
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-010-send-nudes-its-safe/image.jpg)
+**Score:** 220 | **Source:** reddit/r/memes
+
+---
+
+## I'm from very old era, if you know you know
+![I'm from very old era, if you know you k](20260423-011-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+**Score:** 6,492 | **Source:** reddit/r/memes
+
+---
+
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260423-012-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 306 | **Source:** reddit/r/dankmemes
+
+---
+
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260423-013-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 58 | **Source:** reddit/r/dankmemes
+
+---
+
+## And Whitehouse press conferences too.
+![And Whitehouse press conferences too.](20260423-014-and-whitehouse-press-conferences-too/image.jpg)
+**Score:** 226 | **Source:** reddit/r/dankmemes
+
+---
+
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260423-015-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 296 | **Source:** reddit/r/dankmemes
+
+---
+
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260423-016-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,443 | **Source:** reddit/r/dankmemes
+
+---
+
+## So true....
+![So true....](20260423-017-so-true/image.jpg)
+**Score:** 14,943 | **Source:** reddit/r/memes
+
+---
+
+## Weird behavior
+![Weird behavior](20260423-018-weird-behavior/image.jpg)
+**Score:** 88 | **Source:** reddit/r/dankmemes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260423-019-you-okay-babe/image.jpg)
+**Score:** 20,319 | **Source:** reddit/r/dankmemes
+
+---
+
+## Let's get straight to the business - it's open during stock hours
+![Let's get straight to the business - it'](20260423-020-lets-get-straight-to-the-business-its-op/image.jpg)
+**Score:** 261 | **Source:** reddit/r/dankmemes
 
 ---

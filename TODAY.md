@@ -1,12 +1,12 @@
-# Meme Feed — 2026-04-23 05:10
+# Meme Feed — 2026-04-23 05:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Ohio starting the speedrun to Gilead by introducing bill to ban women from weari
-![Ohio starting the speedrun to Gilead by ](20260423-001-ohio-starting-the-speedrun-to-gilead-by-/image.jpg)
-**Score:** 8,595 | **Source:** reddit/r/WhitePeopleTwitter
+## Gee, wonder who those 'very upset' people are.
+![Gee, wonder who those 'very upset' peopl](20260423-001-gee-wonder-who-those-very-upset-people-a/image.jpg)
+**Score:** 521 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
@@ -16,9 +16,9 @@
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260423-003-well-did-they-accept-or-not/image.jpg)
-**Score:** 833 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260423-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,364 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -28,98 +28,98 @@
 
 ---
 
-## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
-![Oh Oracle, How Will I Die? Surrounded By](20260423-005-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
-**Score:** 3,928 | **Source:** reddit/r/technicallythetruth
+## The perfect combination of heading and Reddit mobile jank
+![The perfect combination of heading and R](20260423-005-the-perfect-combination-of-heading-and-r/image.jpg)
+**Score:** 230 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Super rich or bus driver?
-![Super rich or bus driver?](20260423-006-super-rich-or-bus-driver/image.jpg)
-**Score:** 31,001 | **Source:** reddit/r/technicallythetruth
+## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
+![It's anthropomorphism because nature has](20260423-006-its-anthropomorphism-because-nature-has-/image.jpg)
+**Score:** 57 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Sus adventures
-![Sus adventures](20260423-007-sus-adventures/image.jpg)
-**Score:** 134 | **Source:** reddit/r/suspiciouslyspecific
+## Dippers shadow in this episode of Gravity Falls
+![Dippers shadow in this episode of Gravit](20260423-007-dippers-shadow-in-this-episode-of-gravit/image.jpg)
+**Score:** 1,091 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## It may appear to be anime, but if you take a closer look
-![It may appear to be anime, but if you ta](20260423-008-it-may-appear-to-be-anime-but-if-you-tak/image.jpg)
-**Score:** 381 | **Source:** reddit/r/suspiciouslyspecific
+## Wait what...
+![Wait what...](20260423-008-wait-what/image.jpg)
+**Score:** 608 | **Source:** reddit/r/HolUp
 
 ---
 
-## Don't do that
-![Don't do that](20260423-009-dont-do-that/image.jpg)
-**Score:** 340 | **Source:** reddit/r/oddlyspecific
-
----
-
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260423-010-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 67 | **Source:** reddit/r/oddlyspecific
-
----
-
-## Futabu anyone ???
-![Futabu anyone ???](20260423-011-futabu-anyone/image.jpg)
-**Score:** 2,118 | **Source:** reddit/r/HolUp
-
----
-
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-012-send-nudes-its-safe/image.jpg)
-**Score:** 387 | **Source:** reddit/r/memes
-
----
-
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-013-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 4,375 | **Source:** reddit/r/memes
-
----
-
-## And Whitehouse press conferences too.
-![And Whitehouse press conferences too.](20260423-014-and-whitehouse-press-conferences-too/image.jpg)
-**Score:** 226 | **Source:** reddit/r/dankmemes
-
----
-
-## You Okay Babe?
-![You Okay Babe?](20260423-015-you-okay-babe/image.jpg)
-**Score:** 20,379 | **Source:** reddit/r/dankmemes
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260423-009-an-augmented-reality-sandbox/image.jpg)
+**Score:** 597 | **Source:** reddit/r/HolUp
 
 ---
 
 ## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260423-016-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+![An unfortunate name for an aircraft comp](20260423-010-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
 **Score:** 1,447 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260423-017-dont-disturb-me/image.jpg)
-**Score:** 936 | **Source:** reddit/r/dankmemes
+## Lets go im safe
+![Lets go im safe](20260423-011-lets-go-im-safe/image.jpg)
+**Score:** 710 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Is it really necessary?
-![Is it really necessary?](20260423-018-is-it-really-necessary/image.jpg)
-**Score:** 4,061 | **Source:** reddit/r/memes
+## There goes another one
+![There goes another one](20260423-012-there-goes-another-one/image.jpg)
+**Score:** 61 | **Source:** reddit/r/dankmemes
+
+---
+
+## Clankers ruin it once again
+![Clankers ruin it once again](20260423-013-clankers-ruin-it-once-again/image.jpg)
+**Score:** 396 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## *deeply inhales smog*
-![*deeply inhales smog*](20260423-019-deeply-inhales-smog/image.jpg)
+![*deeply inhales smog*](20260423-014-deeply-inhales-smog/image.jpg)
 **Score:** 1,805 | **Source:** reddit/r/memes
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260423-020-lets-go-im-safe/image.jpg)
-**Score:** 710 | **Source:** reddit/r/dankmemes
+## Is it really necessary?
+![Is it really necessary?](20260423-015-is-it-really-necessary/image.jpg)
+**Score:** 4,061 | **Source:** reddit/r/memes
+
+---
+
+## Weird behavior
+![Weird behavior](20260423-016-weird-behavior/image.jpg)
+**Score:** 92 | **Source:** reddit/r/dankmemes
+
+---
+
+## And Whitehouse press conferences too.
+![And Whitehouse press conferences too.](20260423-017-and-whitehouse-press-conferences-too/image.jpg)
+**Score:** 226 | **Source:** reddit/r/dankmemes
+
+---
+
+## i'm scared
+![i'm scared](20260423-018-im-scared/image.jpg)
+**Score:** 14,686 | **Source:** reddit/r/memes
+
+---
+
+## I'm from very old era, if you know you know
+![I'm from very old era, if you know you k](20260423-019-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+**Score:** 6,514 | **Source:** reddit/r/memes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260423-020-dont-disturb-me/image.jpg)
+**Score:** 936 | **Source:** reddit/r/dankmemes
 
 ---

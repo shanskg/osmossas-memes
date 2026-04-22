@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-23 06:50
+# Meme Feed — 2026-04-23 07:00
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## At this point, it may even be a genetic trait
-![At this point, it may even be a genetic ](20260423-001-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
-**Score:** 7,027 | **Source:** reddit/r/BlackPeopleTwitter
+## Claiming Virginia is "under hostile occupation" because a vote didn't go your wa
+![Claiming Virginia is "under hostile occu](20260423-001-claiming-virginia-is-under-hostile-occup/image.jpg)
+**Score:** 458 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260423-002-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,459 | **Source:** reddit/r/BlackPeopleTwitter
+## Leave the whales alone
+![Leave the whales alone](20260423-002-leave-the-whales-alone/image.jpg)
+**Score:** 19,178 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -22,57 +22,57 @@
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,177 | **Source:** reddit/r/facepalm
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260423-004-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,144 | **Source:** reddit/r/facepalm
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260423-005-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,068 | **Source:** reddit/r/technicallythetruth
+## 125 per hour in Oregon
+![125 per hour in Oregon](20260423-005-125-per-hour-in-oregon/image.jpg)
+**Score:** 12,642 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The perfect combination of heading and Reddit mobile jank
-![The perfect combination of heading and R](20260423-006-the-perfect-combination-of-heading-and-r/image.jpg)
-**Score:** 231 | **Source:** reddit/r/technicallythetruth
+## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
+![Oh Oracle, How Will I Die? Surrounded By](20260423-006-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
+**Score:** 3,929 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Johnny SusStar
-![Johnny SusStar](20260423-007-johnny-susstar/image.jpg)
-**Score:** 76 | **Source:** reddit/r/suspiciouslyspecific
+## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
+![If I go to a cookout and bite a hot dog ](20260423-007-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
+**Score:** 205 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## found an old notebook from 6th grade
-![found an old notebook from 6th grade](20260423-008-found-an-old-notebook-from-6th-grade/image.jpg)
-**Score:** 5,696 | **Source:** reddit/r/suspiciouslyspecific
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260423-008-an-augmented-reality-sandbox/image.jpg)
+**Score:** 602 | **Source:** reddit/r/HolUp
 
 ---
 
-## Wait what...
-![Wait what...](20260423-009-wait-what/image.jpg)
-**Score:** 608 | **Source:** reddit/r/HolUp
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-009-send-nudes-its-safe/image.jpg)
+**Score:** 466 | **Source:** reddit/r/memes
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260423-010-futabu-anyone/image.jpg)
-**Score:** 2,118 | **Source:** reddit/r/HolUp
+## There goes another one
+![There goes another one](20260423-010-there-goes-another-one/image.jpg)
+**Score:** 71 | **Source:** reddit/r/dankmemes
 
 ---
 
-## i'm scared
-![i'm scared](20260423-011-im-scared/image.jpg)
-**Score:** 14,729 | **Source:** reddit/r/memes
+## And Whitehouse press conferences too.
+![And Whitehouse press conferences too.](20260423-011-and-whitehouse-press-conferences-too/image.jpg)
+**Score:** 227 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260423-012-lets-go-im-safe/image.jpg)
-**Score:** 776 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260423-012-that-is-the-worst/image.jpg)
+**Score:** 381 | **Source:** reddit/r/memes
 
 ---
 
@@ -82,44 +82,44 @@
 
 ---
 
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-014-send-nudes-its-safe/image.jpg)
-**Score:** 466 | **Source:** reddit/r/memes
-
----
-
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-015-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 5,446 | **Source:** reddit/r/memes
-
----
-
 ## 5G human radar
-![5G human radar](20260423-016-5g-human-radar/image.jpg)
+![5G human radar](20260423-014-5g-human-radar/image.jpg)
 **Score:** 1,250 | **Source:** reddit/r/memes
 
 ---
 
-## That is the worst
-![That is the worst](20260423-017-that-is-the-worst/image.jpg)
-**Score:** 381 | **Source:** reddit/r/memes
-
----
-
-## There goes another one
-![There goes another one](20260423-018-there-goes-another-one/image.jpg)
-**Score:** 71 | **Source:** reddit/r/dankmemes
-
----
-
-## my virginity is safe(r)
-![my virginity is safe(r)](20260423-019-my-virginity-is-safer/image.jpg)
-**Score:** 74 | **Source:** reddit/r/memes
+## r/bald in a nutshell
+![r/bald in a nutshell](20260423-015-rbald-in-a-nutshell/image.jpg)
+**Score:** 7,610 | **Source:** reddit/r/memes
 
 ---
 
 ## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260423-020-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+![I'm from very old era, if you know you k](20260423-016-im-from-very-old-era-if-you-know-you-kno/image.jpg)
 **Score:** 6,533 | **Source:** reddit/r/memes
+
+---
+
+## *deeply inhales smog*
+![*deeply inhales smog*](20260423-017-deeply-inhales-smog/image.jpg)
+**Score:** 2,055 | **Source:** reddit/r/memes
+
+---
+
+## Now we mememaxxing
+![Now we mememaxxing](20260423-018-now-we-mememaxxing/image.jpg)
+**Score:** 736 | **Source:** reddit/r/dankmemes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260423-019-you-okay-babe/image.jpg)
+**Score:** 20,411 | **Source:** reddit/r/dankmemes
+
+---
+
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260423-020-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 5,446 | **Source:** reddit/r/memes
 
 ---

@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-22 11:20
+# Meme Feed — 2026-04-22 11:31
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## It keeps happening.
-![It keeps happening.](20260422-001-it-keeps-happening/image.jpg)
-**Score:** 264 | **Source:** reddit/r/WhitePeopleTwitter
-
----
-
-## Leave the whales alone
-![Leave the whales alone](20260422-002-leave-the-whales-alone/image.jpg)
-**Score:** 19,183 | **Source:** reddit/r/BlackPeopleTwitter
+## Gee, wonder who those 'very upset' people are.
+![Gee, wonder who those 'very upset' peopl](20260422-001-gee-wonder-who-those-very-upset-people-a/image.jpg)
+**Score:** 433 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
 ## skins vs skins
-![skins vs skins](20260422-003-skins-vs-skins/image.jpg)
+![skins vs skins](20260422-002-skins-vs-skins/image.jpg)
 **Score:** 1,018 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260422-003-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,399 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -34,92 +34,92 @@
 
 ---
 
-## Rest in piss
-![Rest in piss](20260422-006-rest-in-piss/image.jpg)
-**Score:** 399 | **Source:** reddit/r/suspiciouslyspecific
+## The detective didn't find it
+![The detective didn't find it](20260422-006-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,653 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260422-007-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 369 | **Source:** reddit/r/oddlyspecific
+## He's in there somewhere
+![He's in there somewhere](20260422-007-hes-in-there-somewhere/image.jpg)
+**Score:** 1,526 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## the wikipedia entry has over 2300 words
-![the wikipedia entry has over 2300 words](20260422-008-the-wikipedia-entry-has-over-2300-words/image.jpg)
-**Score:** 3,298 | **Source:** reddit/r/memes
-
----
-
-## it's a peaceful life
-![it's a peaceful life](20260422-009-its-a-peaceful-life/image.jpg)
-**Score:** 2,160 | **Source:** reddit/r/dankmemes
-
----
-
-## Let's get straight to the business - it's open during stock hours
-![Let's get straight to the business - it'](20260422-010-lets-get-straight-to-the-business-its-op/image.jpg)
-**Score:** 254 | **Source:** reddit/r/dankmemes
-
----
-
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260422-011-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 5,075 | **Source:** reddit/r/memes
-
----
-
-## r/bald in a nutshell
-![r/bald in a nutshell](20260422-012-rbald-in-a-nutshell/image.jpg)
-**Score:** 4,476 | **Source:** reddit/r/memes
-
----
-
-## A responsible Doctor
-![A responsible Doctor](20260422-013-a-responsible-doctor/image.jpg)
-**Score:** 2,291 | **Source:** reddit/r/memes
-
----
-
-## We all have gone through ts
-![We all have gone through ts](20260422-014-we-all-have-gone-through-ts/image.jpg)
-**Score:** 330 | **Source:** reddit/r/memes
-
----
-
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260422-015-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,393 | **Source:** reddit/r/dankmemes
-
----
-
-## So true....
-![So true....](20260422-016-so-true/image.jpg)
-**Score:** 14,718 | **Source:** reddit/r/memes
-
----
-
-## i personally think even 67 fails in comparison
-![i personally think even 67 fails in comp](20260422-017-i-personally-think-even-67-fails-in-comp/image.jpg)
-**Score:** 7,905 | **Source:** reddit/r/memes
-
----
-
-## Now we mememaxxing
-![Now we mememaxxing](20260422-018-now-we-mememaxxing/image.jpg)
-**Score:** 662 | **Source:** reddit/r/dankmemes
+## Just slightly...
+![Just slightly...](20260422-008-just-slightly/image.jpg)
+**Score:** 517 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
 ## You Okay Babe?
-![You Okay Babe?](20260422-019-you-okay-babe/image.jpg)
+![You Okay Babe?](20260422-009-you-okay-babe/image.jpg)
 **Score:** 19,373 | **Source:** reddit/r/dankmemes
 
 ---
 
+## r/bald in a nutshell
+![r/bald in a nutshell](20260422-010-rbald-in-a-nutshell/image.jpg)
+**Score:** 4,476 | **Source:** reddit/r/memes
+
+---
+
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260422-011-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 215 | **Source:** reddit/r/dankmemes
+
+---
+
+## i personally think even 67 fails in comparison
+![i personally think even 67 fails in comp](20260422-012-i-personally-think-even-67-fails-in-comp/image.jpg)
+**Score:** 7,905 | **Source:** reddit/r/memes
+
+---
+
+## i'm scared
+![i'm scared](20260422-013-im-scared/image.jpg)
+**Score:** 13,733 | **Source:** reddit/r/memes
+
+---
+
 ## Don't disturb me
-![Don't disturb me](20260422-020-dont-disturb-me/image.jpg)
+![Don't disturb me](20260422-014-dont-disturb-me/image.jpg)
 **Score:** 483 | **Source:** reddit/r/dankmemes
+
+---
+
+## just my hair leaving me one strand at a time
+![just my hair leaving me one strand at a ](20260422-015-just-my-hair-leaving-me-one-strand-at-a-/image.jpg)
+**Score:** 134 | **Source:** reddit/r/memes
+
+---
+
+## the wikipedia entry has over 2300 words
+![the wikipedia entry has over 2300 words](20260422-016-the-wikipedia-entry-has-over-2300-words/image.jpg)
+**Score:** 3,298 | **Source:** reddit/r/memes
+
+---
+
+## We all have gone through ts
+![We all have gone through ts](20260422-017-we-all-have-gone-through-ts/image.jpg)
+**Score:** 330 | **Source:** reddit/r/memes
+
+---
+
+## It's in the blood
+![It's in the blood](20260422-018-its-in-the-blood/image.jpg)
+**Score:** 238 | **Source:** reddit/r/dankmemes
+
+---
+
+## So true....
+![So true....](20260422-019-so-true/image.jpg)
+**Score:** 14,718 | **Source:** reddit/r/memes
+
+---
+
+## Is it really necessary?
+![Is it really necessary?](20260422-020-is-it-really-necessary/image.jpg)
+**Score:** 3,458 | **Source:** reddit/r/memes
 
 ---

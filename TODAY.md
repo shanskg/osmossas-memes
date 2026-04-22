@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-22 13:41
+# Meme Feed — 2026-04-22 13:50
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Susan Collins (R-ME, 73 years old) is the soul of America?
-![Susan Collins (R-ME, 73 years old) is th](20260422-001-susan-collins-r-me-73-years-old-is-the-s/image.jpg)
-**Score:** 55 | **Source:** reddit/r/WhitePeopleTwitter
+## He's really on top
+![He's really on top](20260422-001-hes-really-on-top/image.jpg)
+**Score:** 1,929 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Art of the deal or something.
-![Art of the deal or something.](20260422-002-art-of-the-deal-or-something/image.jpg)
-**Score:** 118 | **Source:** reddit/r/WhitePeopleTwitter
+## Leave the whales alone
+![Leave the whales alone](20260422-002-leave-the-whales-alone/image.jpg)
+**Score:** 19,185 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -28,39 +28,39 @@
 
 ---
 
-## The detective didn't find it
-![The detective didn't find it](20260422-005-the-detective-didnt-find-it/image.jpg)
-**Score:** 33,669 | **Source:** reddit/r/technicallythetruth
+## Enjoy your hot water
+![Enjoy your hot water](20260422-005-enjoy-your-hot-water/image.jpg)
+**Score:** 969 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Sus adventures
-![Sus adventures](20260422-006-sus-adventures/image.jpg)
-**Score:** 139 | **Source:** reddit/r/suspiciouslyspecific
+## Dippers shadow in this episode of Gravity Falls
+![Dippers shadow in this episode of Gravit](20260422-006-dippers-shadow-in-this-episode-of-gravit/image.jpg)
+**Score:** 1,086 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260422-007-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 371 | **Source:** reddit/r/oddlyspecific
+## Don't do that
+![Don't do that](20260422-007-dont-do-that/image.jpg)
+**Score:** 342 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
+![If I go to a cookout and bite a hot dog ](20260422-008-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
+**Score:** 198 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260422-009-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,328 | **Source:** reddit/r/HolUp
 
 ---
 
 ## House at a lake with mountains, 1910
-![House at a lake with mountains, 1910](20260422-008-house-at-a-lake-with-mountains-1910/image.jpg)
+![House at a lake with mountains, 1910](20260422-010-house-at-a-lake-with-mountains-1910/image.jpg)
 **Score:** 4,334 | **Source:** reddit/r/HolUp
-
----
-
-## Darker and darker
-![Darker and darker](20260422-009-darker-and-darker/image.jpg)
-**Score:** 281 | **Source:** reddit/r/HolUp
-
----
-
-## Let's get straight to the business - it's open during stock hours
-![Let's get straight to the business - it'](20260422-010-lets-get-straight-to-the-business-its-op/image.jpg)
-**Score:** 253 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -70,39 +70,40 @@
 
 ---
 
-## Is it really necessary?
-![Is it really necessary?](20260422-012-is-it-really-necessary/image.jpg)
-**Score:** 3,608 | **Source:** reddit/r/memes
-
----
-
-## it's a peaceful life
-![it's a peaceful life](20260422-013-its-a-peaceful-life/image.jpg)
-**Score:** 2,160 | **Source:** reddit/r/dankmemes
-
----
-
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260422-014-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,410 | **Source:** reddit/r/dankmemes
-
----
-
-## Now we mememaxxing
-![Now we mememaxxing](20260422-015-now-we-mememaxxing/image.jpg)
-**Score:** 674 | **Source:** reddit/r/dankmemes
-
----
-
 ## r/bald in a nutshell
-![r/bald in a nutshell](20260422-016-rbald-in-a-nutshell/image.jpg)
+![r/bald in a nutshell](20260422-012-rbald-in-a-nutshell/image.jpg)
 **Score:** 5,058 | **Source:** reddit/r/memes
 
 ---
 
-## Clankers ruin it once again
-![Clankers ruin it once again](20260422-017-clankers-ruin-it-once-again/image.jpg)
-**Score:** 389 | **Source:** reddit/r/dankmemes
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260422-013-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,410 | **Source:** reddit/r/dankmemes
+
+---
+
+## IT: ‘Your password must include 12 characters, a symbol, and a sacrifice.’
+Me:
+![IT: ‘Your password must include 12 chara](20260422-014-it-your-password-must-include-12-charact/image.jpg)
+**Score:** 2,034 | **Source:** reddit/r/memes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260422-015-dont-disturb-me/image.jpg)
+**Score:** 542 | **Source:** reddit/r/dankmemes
+
+---
+
+## it's a peaceful life
+![it's a peaceful life](20260422-016-its-a-peaceful-life/image.jpg)
+**Score:** 2,160 | **Source:** reddit/r/dankmemes
+
+---
+
+## Is it really necessary?
+![Is it really necessary?](20260422-017-is-it-really-necessary/image.jpg)
+**Score:** 3,608 | **Source:** reddit/r/memes
 
 ---
 
@@ -112,14 +113,14 @@
 
 ---
 
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260422-019-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 257 | **Source:** reddit/r/dankmemes
+## It's in the blood
+![It's in the blood](20260422-019-its-in-the-blood/image.jpg)
+**Score:** 236 | **Source:** reddit/r/dankmemes
 
 ---
 
-## It's in the blood
-![It's in the blood](20260422-020-its-in-the-blood/image.jpg)
-**Score:** 236 | **Source:** reddit/r/dankmemes
+## Now we mememaxxing
+![Now we mememaxxing](20260422-020-now-we-mememaxxing/image.jpg)
+**Score:** 674 | **Source:** reddit/r/dankmemes
 
 ---

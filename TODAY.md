@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-23 06:41
+# Meme Feed — 2026-04-23 06:50
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260423-001-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,072 | **Source:** reddit/r/BlackPeopleTwitter
+## At this point, it may even be a genetic trait
+![At this point, it may even be a genetic ](20260423-001-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+**Score:** 7,027 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260423-002-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,144 | **Source:** reddit/r/facepalm
+## This a celly, that's a tool
+![This a celly, that's a tool](20260423-002-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,459 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -22,45 +22,45 @@
 
 ---
 
-## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260423-004-i-cast-stairs-wrong-subreddit/image.jpg)
-**Score:** 2,425 | **Source:** reddit/r/technicallythetruth
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260423-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,177 | **Source:** reddit/r/facepalm
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260423-005-i-just-opened-youtube/image.jpg)
-**Score:** 8,968 | **Source:** reddit/r/technicallythetruth
+## To be fair an Avocado is just Guacamole in ball form.
+![To be fair an Avocado is just Guacamole ](20260423-005-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
+**Score:** 10,068 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS 
-![GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS ](20260423-006-guys-guys-guys-guys-guys-guys-guys-guys-/image.jpg)
-**Score:** 319 | **Source:** reddit/r/suspiciouslyspecific
+## The perfect combination of heading and Reddit mobile jank
+![The perfect combination of heading and R](20260423-006-the-perfect-combination-of-heading-and-r/image.jpg)
+**Score:** 231 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## He's in there somewhere
-![He's in there somewhere](20260423-007-hes-in-there-somewhere/image.jpg)
-**Score:** 1,530 | **Source:** reddit/r/suspiciouslyspecific
+## Johnny SusStar
+![Johnny SusStar](20260423-007-johnny-susstar/image.jpg)
+**Score:** 76 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Darker and darker
-![Darker and darker](20260423-008-darker-and-darker/image.jpg)
-**Score:** 279 | **Source:** reddit/r/HolUp
+## found an old notebook from 6th grade
+![found an old notebook from 6th grade](20260423-008-found-an-old-notebook-from-6th-grade/image.jpg)
+**Score:** 5,696 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260423-009-dont-disturb-me/image.jpg)
-**Score:** 936 | **Source:** reddit/r/dankmemes
+## Wait what...
+![Wait what...](20260423-009-wait-what/image.jpg)
+**Score:** 608 | **Source:** reddit/r/HolUp
 
 ---
 
-## There goes another one
-![There goes another one](20260423-010-there-goes-another-one/image.jpg)
-**Score:** 71 | **Source:** reddit/r/dankmemes
+## Futabu anyone ???
+![Futabu anyone ???](20260423-010-futabu-anyone/image.jpg)
+**Score:** 2,118 | **Source:** reddit/r/HolUp
 
 ---
 
@@ -70,33 +70,33 @@
 
 ---
 
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260423-012-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 6,533 | **Source:** reddit/r/memes
+## Lets go im safe
+![Lets go im safe](20260423-012-lets-go-im-safe/image.jpg)
+**Score:** 776 | **Source:** reddit/r/dankmemes
 
 ---
 
-## r/bald in a nutshell
-![r/bald in a nutshell](20260423-013-rbald-in-a-nutshell/image.jpg)
-**Score:** 7,610 | **Source:** reddit/r/memes
+## Is it really necessary?
+![Is it really necessary?](20260423-013-is-it-really-necessary/image.jpg)
+**Score:** 4,070 | **Source:** reddit/r/memes
 
 ---
 
-## And Whitehouse press conferences too.
-![And Whitehouse press conferences too.](20260423-014-and-whitehouse-press-conferences-too/image.jpg)
-**Score:** 227 | **Source:** reddit/r/dankmemes
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-014-send-nudes-its-safe/image.jpg)
+**Score:** 466 | **Source:** reddit/r/memes
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260423-015-you-okay-babe/image.jpg)
-**Score:** 20,411 | **Source:** reddit/r/dankmemes
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260423-015-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 5,446 | **Source:** reddit/r/memes
 
 ---
 
-## my virginity is safe(r)
-![my virginity is safe(r)](20260423-016-my-virginity-is-safer/image.jpg)
-**Score:** 74 | **Source:** reddit/r/memes
+## 5G human radar
+![5G human radar](20260423-016-5g-human-radar/image.jpg)
+**Score:** 1,250 | **Source:** reddit/r/memes
 
 ---
 
@@ -106,20 +106,20 @@
 
 ---
 
-## Is it really necessary?
-![Is it really necessary?](20260423-018-is-it-really-necessary/image.jpg)
-**Score:** 4,070 | **Source:** reddit/r/memes
+## There goes another one
+![There goes another one](20260423-018-there-goes-another-one/image.jpg)
+**Score:** 71 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-019-send-nudes-its-safe/image.jpg)
-**Score:** 466 | **Source:** reddit/r/memes
+## my virginity is safe(r)
+![my virginity is safe(r)](20260423-019-my-virginity-is-safer/image.jpg)
+**Score:** 74 | **Source:** reddit/r/memes
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260423-020-lets-go-im-safe/image.jpg)
-**Score:** 776 | **Source:** reddit/r/dankmemes
+## I'm from very old era, if you know you know
+![I'm from very old era, if you know you k](20260423-020-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+**Score:** 6,533 | **Source:** reddit/r/memes
 
 ---

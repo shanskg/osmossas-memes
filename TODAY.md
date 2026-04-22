@@ -1,114 +1,114 @@
-# Meme Feed — 2026-04-22 23:31
+# Meme Feed — 2026-04-22 23:40
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Ohio starting the speedrun to Gilead by introducing bill to ban women from weari
-![Ohio starting the speedrun to Gilead by ](20260422-001-ohio-starting-the-speedrun-to-gilead-by-/image.jpg)
-**Score:** 8,494 | **Source:** reddit/r/WhitePeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260422-001-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,066 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Leave the whales alone
+![Leave the whales alone](20260422-002-leave-the-whales-alone/image.jpg)
+**Score:** 19,180 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260422-003-well-did-they-accept-or-not/image.jpg)
+**Score:** 829 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260422-002-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260422-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,178 | **Source:** reddit/r/facepalm
 
 ---
 
-## Juicy Amogus pics
-![Juicy Amogus pics](20260422-003-juicy-amogus-pics/image.jpg)
-**Score:** 808 | **Source:** reddit/r/suspiciouslyspecific
+## He didn't sound like much of anything in there
+![He didn't sound like much of anything in](20260422-005-he-didnt-sound-like-much-of-anything-in-/image.jpg)
+**Score:** 1,839 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## among oose
-![among oose](20260422-004-among-oose/image.jpg)
-**Score:** 519 | **Source:** reddit/r/suspiciouslyspecific
+## outperforming the inflation rate
+![outperforming the inflation rate](20260422-006-outperforming-the-inflation-rate/image.jpg)
+**Score:** 65,015 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260422-005-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 202 | **Source:** reddit/r/oddlyspecific
+## I'm too lazy to take a picture, so I made a drawing more time consuming but anyw
+![I'm too lazy to take a picture, so I mad](20260422-007-im-too-lazy-to-take-a-picture-so-i-made-/image.jpg)
+**Score:** 210 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Darker and darker
-![Darker and darker](20260422-006-darker-and-darker/image.jpg)
-**Score:** 280 | **Source:** reddit/r/HolUp
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260422-008-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 66 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260422-007-you-okay-babe/image.jpg)
-**Score:** 20,278 | **Source:** reddit/r/dankmemes
+## House at a lake with mountains, 1910
+![House at a lake with mountains, 1910](20260422-009-house-at-a-lake-with-mountains-1910/image.jpg)
+**Score:** 4,345 | **Source:** reddit/r/HolUp
 
 ---
 
-## Clankers ruin it once again
-![Clankers ruin it once again](20260422-008-clankers-ruin-it-once-again/image.jpg)
-**Score:** 390 | **Source:** reddit/r/dankmemes
-
----
-
-## r/bald in a nutshell
-![r/bald in a nutshell](20260422-009-rbald-in-a-nutshell/image.jpg)
-**Score:** 7,317 | **Source:** reddit/r/memes
-
----
-
-## what a wild ride
-![what a wild ride](20260422-010-what-a-wild-ride/image.jpg)
-**Score:** 2,980 | **Source:** reddit/r/dankmemes
-
----
-
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260422-011-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 286 | **Source:** reddit/r/dankmemes
-
----
-
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260422-012-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 6,431 | **Source:** reddit/r/memes
-
----
-
-## Is it really necessary?
-![Is it really necessary?](20260422-013-is-it-really-necessary/image.jpg)
-**Score:** 4,019 | **Source:** reddit/r/memes
+## It's in the blood
+![It's in the blood](20260422-010-its-in-the-blood/image.jpg)
+**Score:** 261 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260422-014-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+![An unfortunate name for an aircraft comp](20260422-011-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
 **Score:** 1,435 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Don't disturb me
-![Don't disturb me](20260422-015-dont-disturb-me/image.jpg)
+![Don't disturb me](20260422-012-dont-disturb-me/image.jpg)
 **Score:** 903 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Weird behavior
-![Weird behavior](20260422-016-weird-behavior/image.jpg)
-**Score:** 85 | **Source:** reddit/r/dankmemes
+## Lets go im safe
+![Lets go im safe](20260422-013-lets-go-im-safe/image.jpg)
+**Score:** 525 | **Source:** reddit/r/dankmemes
 
 ---
 
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260422-017-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 303 | **Source:** reddit/r/dankmemes
+## Let's get straight to the business - it's open during stock hours
+![Let's get straight to the business - it'](20260422-014-lets-get-straight-to-the-business-its-op/image.jpg)
+**Score:** 263 | **Source:** reddit/r/dankmemes
+
+---
+
+## A responsible Doctor
+![A responsible Doctor](20260422-015-a-responsible-doctor/image.jpg)
+**Score:** 2,419 | **Source:** reddit/r/memes
 
 ---
 
 ## So true....
-![So true....](20260422-018-so-true/image.jpg)
+![So true....](20260422-016-so-true/image.jpg)
 **Score:** 14,946 | **Source:** reddit/r/memes
+
+---
+
+## Clankers ruin it once again
+![Clankers ruin it once again](20260422-017-clankers-ruin-it-once-again/image.jpg)
+**Score:** 390 | **Source:** reddit/r/dankmemes
+
+---
+
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260422-018-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 286 | **Source:** reddit/r/dankmemes
 
 ---
 

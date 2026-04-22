@@ -1,72 +1,72 @@
-# Meme Feed — 2026-04-22 14:20
+# Meme Feed — 2026-04-22 14:31
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Interesting...
-![Interesting...](20260422-001-interesting/image.jpg)
-**Score:** 2,853 | **Source:** reddit/r/WhitePeopleTwitter
+## Ohio starting the speedrun to Gilead by introducing bill to ban women from weari
+![Ohio starting the speedrun to Gilead by ](20260422-001-ohio-starting-the-speedrun-to-gilead-by-/image.jpg)
+**Score:** 6,681 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## call your representatives
-![call your representatives](20260422-002-call-your-representatives/image.jpg)
-**Score:** 231 | **Source:** reddit/r/WhitePeopleTwitter
+## They still only care about themselves
+![They still only care about themselves](20260422-002-they-still-only-care-about-themselves/image.jpg)
+**Score:** 582 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## At this point, it may even be a genetic trait
-![At this point, it may even be a genetic ](20260422-003-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
-**Score:** 7,023 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## He's really on top
-![He's really on top](20260422-004-hes-really-on-top/image.jpg)
-**Score:** 1,929 | **Source:** reddit/r/BlackPeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260422-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,073 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260422-005-well-did-they-accept-or-not/image.jpg)
+![Well? Did they accept or not?](20260422-004-well-did-they-accept-or-not/image.jpg)
 **Score:** 827 | **Source:** reddit/r/facepalm
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260422-006-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,362 | **Source:** reddit/r/facepalm
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260422-005-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,410 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Some inflation is good
-![Some inflation is good](20260422-007-some-inflation-is-good/image.jpg)
-**Score:** 15,680 | **Source:** reddit/r/technicallythetruth
+## Dippers shadow in this episode of Gravity Falls
+![Dippers shadow in this episode of Gravit](20260422-006-dippers-shadow-in-this-episode-of-gravit/image.jpg)
+**Score:** 1,086 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## crewmates views on voting out the impostor!
-![crewmates views on voting out the impost](20260422-008-crewmates-views-on-voting-out-the-impost/image.jpg)
-**Score:** 4,485 | **Source:** reddit/r/suspiciouslyspecific
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260422-007-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 371 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260422-009-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 61 | **Source:** reddit/r/oddlyspecific
+## Idk how to flirt...
+![Idk how to flirt...](20260422-008-idk-how-to-flirt/image.jpg)
+**Score:** 4,264 | **Source:** reddit/r/memes
 
 ---
 
-## Darker and darker
-![Darker and darker](20260422-010-darker-and-darker/image.jpg)
-**Score:** 281 | **Source:** reddit/r/HolUp
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260422-009-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 258 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Now we mememaxxing
-![Now we mememaxxing](20260422-011-now-we-mememaxxing/image.jpg)
-**Score:** 693 | **Source:** reddit/r/dankmemes
+## You Okay Babe?
+![You Okay Babe?](20260422-010-you-okay-babe/image.jpg)
+**Score:** 19,777 | **Source:** reddit/r/dankmemes
+
+---
+
+## A responsible Doctor
+![A responsible Doctor](20260422-011-a-responsible-doctor/image.jpg)
+**Score:** 2,372 | **Source:** reddit/r/memes
 
 ---
 
@@ -76,39 +76,39 @@
 
 ---
 
-## A responsible Doctor
-![A responsible Doctor](20260422-013-a-responsible-doctor/image.jpg)
-**Score:** 2,372 | **Source:** reddit/r/memes
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260422-013-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,421 | **Source:** reddit/r/dankmemes
 
 ---
 
-## the wikipedia entry has over 2300 words
-![the wikipedia entry has over 2300 words](20260422-014-the-wikipedia-entry-has-over-2300-words/image.jpg)
-**Score:** 3,718 | **Source:** reddit/r/memes
+## just my hair leaving me one strand at a time
+![just my hair leaving me one strand at a ](20260422-014-just-my-hair-leaving-me-one-strand-at-a-/image.jpg)
+**Score:** 143 | **Source:** reddit/r/memes
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260422-015-dont-disturb-me/image.jpg)
-**Score:** 617 | **Source:** reddit/r/dankmemes
+## it's a peaceful life
+![it's a peaceful life](20260422-015-its-a-peaceful-life/image.jpg)
+**Score:** 2,165 | **Source:** reddit/r/dankmemes
 
 ---
 
-## And Whitehouse press conferences too.
-![And Whitehouse press conferences too.](20260422-016-and-whitehouse-press-conferences-too/image.jpg)
-**Score:** 223 | **Source:** reddit/r/dankmemes
+## Clankers ruin it once again
+![Clankers ruin it once again](20260422-016-clankers-ruin-it-once-again/image.jpg)
+**Score:** 392 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Is it really necessary?
-![Is it really necessary?](20260422-017-is-it-really-necessary/image.jpg)
-**Score:** 3,764 | **Source:** reddit/r/memes
+## i personally think even 67 fails in comparison
+![i personally think even 67 fails in comp](20260422-017-i-personally-think-even-67-fails-in-comp/image.jpg)
+**Score:** 7,929 | **Source:** reddit/r/memes
 
 ---
 
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260422-018-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 246 | **Source:** reddit/r/dankmemes
+## We all have gone through ts
+![We all have gone through ts](20260422-018-we-all-have-gone-through-ts/image.jpg)
+**Score:** 349 | **Source:** reddit/r/memes
 
 ---
 
@@ -118,8 +118,8 @@
 
 ---
 
-## i personally think even 67 fails in comparison
-![i personally think even 67 fails in comp](20260422-020-i-personally-think-even-67-fails-in-comp/image.jpg)
-**Score:** 7,929 | **Source:** reddit/r/memes
+## Weird behavior
+![Weird behavior](20260422-020-weird-behavior/image.jpg)
+**Score:** 61 | **Source:** reddit/r/dankmemes
 
 ---

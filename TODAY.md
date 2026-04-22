@@ -1,4 +1,4 @@
-# Meme Feed — 2026-04-22 18:41
+# Meme Feed — 2026-04-22 18:50
 
 **Total:** 20 memes | Refresh every 10 min
 
@@ -10,15 +10,15 @@
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260422-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,072 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260422-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,406 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## skins vs skins
-![skins vs skins](20260422-003-skins-vs-skins/image.jpg)
-**Score:** 1,014 | **Source:** reddit/r/BlackPeopleTwitter
+## Leave the whales alone
+![Leave the whales alone](20260422-003-leave-the-whales-alone/image.jpg)
+**Score:** 19,184 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -34,93 +34,92 @@
 
 ---
 
-## Some inflation is good
-![Some inflation is good](20260422-006-some-inflation-is-good/image.jpg)
-**Score:** 15,676 | **Source:** reddit/r/technicallythetruth
-
----
-
 ## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260422-007-i-cast-stairs-wrong-subreddit/image.jpg)
+![I cast stairs... Wrong subReddit](20260422-006-i-cast-stairs-wrong-subreddit/image.jpg)
 **Score:** 2,369 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The Great Amongball...
-![The Great Amongball...](20260422-008-the-great-amongball/image.jpg)
-**Score:** 80 | **Source:** reddit/r/suspiciouslyspecific
+## He didn't sound like much of anything in there
+![He didn't sound like much of anything in](20260422-007-he-didnt-sound-like-much-of-anything-in-/image.jpg)
+**Score:** 1,834 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260422-009-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 374 | **Source:** reddit/r/oddlyspecific
+## Among Us Meme
+![Among Us Meme](20260422-008-among-us-meme/image.jpg)
+**Score:** 86 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260422-010-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 614 | **Source:** reddit/r/HolUp
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260422-009-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 63 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## House at a lake with mountains, 1910
-![House at a lake with mountains, 1910](20260422-011-house-at-a-lake-with-mountains-1910/image.jpg)
-**Score:** 4,341 | **Source:** reddit/r/HolUp
-
----
-
-## Clankers ruin it once again
-![Clankers ruin it once again](20260422-012-clankers-ruin-it-once-again/image.jpg)
-**Score:** 392 | **Source:** reddit/r/dankmemes
-
----
-
-## A responsible Doctor
-![A responsible Doctor](20260422-013-a-responsible-doctor/image.jpg)
-**Score:** 2,409 | **Source:** reddit/r/memes
-
----
-
-## IT: ‘Your password must include 12 characters, a symbol, and a sacrifice.’
-Me:
-![IT: ‘Your password must include 12 chara](20260422-014-it-your-password-must-include-12-charact/image.jpg)
-**Score:** 2,057 | **Source:** reddit/r/memes
-
----
-
-## You Okay Babe?
-![You Okay Babe?](20260422-015-you-okay-babe/image.jpg)
-**Score:** 20,080 | **Source:** reddit/r/dankmemes
-
----
-
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260422-016-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 6,126 | **Source:** reddit/r/memes
-
----
-
-## So hard to do.
-![So hard to do.](20260422-017-so-hard-to-do/image.jpg)
-**Score:** 1,494 | **Source:** reddit/r/memes
-
----
-
-## i'm scared
-![i'm scared](20260422-018-im-scared/image.jpg)
-**Score:** 14,393 | **Source:** reddit/r/memes
+## AI is everywhere
+![AI is everywhere](20260422-010-ai-is-everywhere/image.jpg)
+**Score:** 871 | **Source:** reddit/r/HolUp
 
 ---
 
 ## the wikipedia entry has over 2300 words
-![the wikipedia entry has over 2300 words](20260422-019-the-wikipedia-entry-has-over-2300-words/image.jpg)
+![the wikipedia entry has over 2300 words](20260422-011-the-wikipedia-entry-has-over-2300-words/image.jpg)
 **Score:** 4,056 | **Source:** reddit/r/memes
 
 ---
 
-## i personally think even 67 fails in comparison
-![i personally think even 67 fails in comp](20260422-020-i-personally-think-even-67-fails-in-comp/image.jpg)
-**Score:** 7,958 | **Source:** reddit/r/memes
+## I Don't know why this trend exists, and at this point I'm afraid to ask
+![I Don't know why this trend exists, and ](20260422-012-i-dont-know-why-this-trend-exists-and-at/image.jpg)
+**Score:** 51 | **Source:** reddit/r/dankmemes
+
+---
+
+## Clankers ruin it once again
+![Clankers ruin it once again](20260422-013-clankers-ruin-it-once-again/image.jpg)
+**Score:** 392 | **Source:** reddit/r/dankmemes
+
+---
+
+## We all have gone through ts
+![We all have gone through ts](20260422-014-we-all-have-gone-through-ts/image.jpg)
+**Score:** 359 | **Source:** reddit/r/memes
+
+---
+
+## *deeply inhales smog*
+![*deeply inhales smog*](20260422-015-deeply-inhales-smog/image.jpg)
+**Score:** 120 | **Source:** reddit/r/memes
+
+---
+
+## A responsible Doctor
+![A responsible Doctor](20260422-016-a-responsible-doctor/image.jpg)
+**Score:** 2,409 | **Source:** reddit/r/memes
+
+---
+
+## Is it really necessary?
+![Is it really necessary?](20260422-017-is-it-really-necessary/image.jpg)
+**Score:** 3,913 | **Source:** reddit/r/memes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260422-018-dont-disturb-me/image.jpg)
+**Score:** 777 | **Source:** reddit/r/dankmemes
+
+---
+
+## r/bald in a nutshell
+![r/bald in a nutshell](20260422-019-rbald-in-a-nutshell/image.jpg)
+**Score:** 6,708 | **Source:** reddit/r/memes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260422-020-you-okay-babe/image.jpg)
+**Score:** 20,080 | **Source:** reddit/r/dankmemes
 
 ---

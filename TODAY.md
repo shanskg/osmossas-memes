@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-23 02:40
+# Meme Feed — 2026-04-23 02:50
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Art of the deal or something.
-![Art of the deal or something.](20260423-001-art-of-the-deal-or-something/image.jpg)
-**Score:** 312 | **Source:** reddit/r/WhitePeopleTwitter
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260423-001-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,402 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260423-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,402 | **Source:** reddit/r/BlackPeopleTwitter
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260423-002-well-did-they-accept-or-not/image.jpg)
+**Score:** 824 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -22,104 +22,104 @@
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,180 | **Source:** reddit/r/facepalm
+## i just opened youtube
+![i just opened youtube](20260423-004-i-just-opened-youtube/image.jpg)
+**Score:** 8,967 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The perfect combination of heading and Reddit mobile jank
-![The perfect combination of heading and R](20260423-005-the-perfect-combination-of-heading-and-r/image.jpg)
-**Score:** 235 | **Source:** reddit/r/technicallythetruth
+## Being shot with a depleted uranium bullet can't be good
+![Being shot with a depleted uranium bulle](20260423-005-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+**Score:** 500 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260423-006-enjoy-your-hot-water/image.jpg)
-**Score:** 969 | **Source:** reddit/r/technicallythetruth
+## Among Us Meme
+![Among Us Meme](20260423-006-among-us-meme/image.jpg)
+**Score:** 87 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## It's Sabotage
-![It's Sabotage](20260423-007-its-sabotage/image.jpg)
-**Score:** 76 | **Source:** reddit/r/suspiciouslyspecific
+## Johnny SusStar
+![Johnny SusStar](20260423-007-johnny-susstar/image.jpg)
+**Score:** 80 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260423-008-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 206 | **Source:** reddit/r/oddlyspecific
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260423-008-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 379 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260423-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 620 | **Source:** reddit/r/HolUp
+## Don't do that
+![Don't do that](20260423-009-dont-do-that/image.jpg)
+**Score:** 336 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## i'm scared
-![i'm scared](20260423-010-im-scared/image.jpg)
-**Score:** 14,633 | **Source:** reddit/r/memes
-
----
-
-## Lets go im safe
-![Lets go im safe](20260423-011-lets-go-im-safe/image.jpg)
-**Score:** 663 | **Source:** reddit/r/dankmemes
-
----
-
-## Is it really necessary?
-![Is it really necessary?](20260423-012-is-it-really-necessary/image.jpg)
-**Score:** 4,059 | **Source:** reddit/r/memes
-
----
-
-## Weird behavior
-![Weird behavior](20260423-013-weird-behavior/image.jpg)
-**Score:** 87 | **Source:** reddit/r/dankmemes
-
----
-
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260423-014-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 6,499 | **Source:** reddit/r/memes
-
----
-
-## Let's get straight to the business - it's open during stock hours
-![Let's get straight to the business - it'](20260423-015-lets-get-straight-to-the-business-its-op/image.jpg)
-**Score:** 261 | **Source:** reddit/r/dankmemes
+## AI is everywhere
+![AI is everywhere](20260423-010-ai-is-everywhere/image.jpg)
+**Score:** 892 | **Source:** reddit/r/HolUp
 
 ---
 
 ## what a wild ride
-![what a wild ride](20260423-016-what-a-wild-ride/image.jpg)
+![what a wild ride](20260423-011-what-a-wild-ride/image.jpg)
 **Score:** 2,977 | **Source:** reddit/r/dankmemes
 
 ---
 
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260423-012-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 304 | **Source:** reddit/r/dankmemes
+
+---
+
 ## And Whitehouse press conferences too.
-![And Whitehouse press conferences too.](20260423-017-and-whitehouse-press-conferences-too/image.jpg)
+![And Whitehouse press conferences too.](20260423-013-and-whitehouse-press-conferences-too/image.jpg)
 **Score:** 227 | **Source:** reddit/r/dankmemes
 
 ---
 
-## 5G human radar
-![5G human radar](20260423-018-5g-human-radar/image.jpg)
-**Score:** 366 | **Source:** reddit/r/memes
+## Weird behavior
+![Weird behavior](20260423-014-weird-behavior/image.jpg)
+**Score:** 87 | **Source:** reddit/r/dankmemes
 
 ---
 
-## my virginity is safe(r)
-![my virginity is safe(r)](20260423-019-my-virginity-is-safer/image.jpg)
-**Score:** 57 | **Source:** reddit/r/memes
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260423-015-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,438 | **Source:** reddit/r/dankmemes
 
 ---
 
-## A responsible Doctor
-![A responsible Doctor](20260423-020-a-responsible-doctor/image.jpg)
-**Score:** 2,440 | **Source:** reddit/r/memes
+## Now we mememaxxing
+![Now we mememaxxing](20260423-016-now-we-mememaxxing/image.jpg)
+**Score:** 727 | **Source:** reddit/r/dankmemes
+
+---
+
+## i'm scared
+![i'm scared](20260423-017-im-scared/image.jpg)
+**Score:** 14,633 | **Source:** reddit/r/memes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260423-018-you-okay-babe/image.jpg)
+**Score:** 20,369 | **Source:** reddit/r/dankmemes
+
+---
+
+## Is it really necessary?
+![Is it really necessary?](20260423-019-is-it-really-necessary/image.jpg)
+**Score:** 4,059 | **Source:** reddit/r/memes
+
+---
+
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260423-020-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 2,985 | **Source:** reddit/r/memes
 
 ---

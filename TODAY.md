@@ -1,12 +1,12 @@
-# Meme Feed — 2026-04-23 05:00
+# Meme Feed — 2026-04-23 05:10
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Scream it from the rooftops
-![Scream it from the rooftops](20260423-001-scream-it-from-the-rooftops/image.jpg)
-**Score:** 4,278 | **Source:** reddit/r/WhitePeopleTwitter
+## Ohio starting the speedrun to Gilead by introducing bill to ban women from weari
+![Ohio starting the speedrun to Gilead by ](20260423-001-ohio-starting-the-speedrun-to-gilead-by-/image.jpg)
+**Score:** 8,595 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
@@ -28,98 +28,98 @@
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260423-005-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,070 | **Source:** reddit/r/technicallythetruth
+## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
+![Oh Oracle, How Will I Die? Surrounded By](20260423-005-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
+**Score:** 3,928 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
-![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260423-006-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
-**Score:** 9,700 | **Source:** reddit/r/technicallythetruth
+## Super rich or bus driver?
+![Super rich or bus driver?](20260423-006-super-rich-or-bus-driver/image.jpg)
+**Score:** 31,001 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS 
-![GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS ](20260423-007-guys-guys-guys-guys-guys-guys-guys-guys-/image.jpg)
-**Score:** 313 | **Source:** reddit/r/suspiciouslyspecific
+## Sus adventures
+![Sus adventures](20260423-007-sus-adventures/image.jpg)
+**Score:** 134 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## It may appear to be anime, but if you take a closer look
+![It may appear to be anime, but if you ta](20260423-008-it-may-appear-to-be-anime-but-if-you-tak/image.jpg)
+**Score:** 381 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## Don't do that
+![Don't do that](20260423-009-dont-do-that/image.jpg)
+**Score:** 340 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260423-008-the-chance-of-someone-being-able-to-answ/image.jpg)
+![The chance of someone being able to answ](20260423-010-the-chance-of-someone-being-able-to-answ/image.jpg)
 **Score:** 67 | **Source:** reddit/r/oddlyspecific
 
 ---
 
+## Futabu anyone ???
+![Futabu anyone ???](20260423-011-futabu-anyone/image.jpg)
+**Score:** 2,118 | **Source:** reddit/r/HolUp
+
+---
+
 ## Send nudes. It's safe
-![Send nudes. It's safe](20260423-009-send-nudes-its-safe/image.jpg)
+![Send nudes. It's safe](20260423-012-send-nudes-its-safe/image.jpg)
 **Score:** 387 | **Source:** reddit/r/memes
 
 ---
 
-## 5G human radar
-![5G human radar](20260423-010-5g-human-radar/image.jpg)
-**Score:** 809 | **Source:** reddit/r/memes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260423-011-dont-disturb-me/image.jpg)
-**Score:** 936 | **Source:** reddit/r/dankmemes
-
----
-
-## There goes another one
-![There goes another one](20260423-012-there-goes-another-one/image.jpg)
-**Score:** 61 | **Source:** reddit/r/dankmemes
-
----
-
-## Clankers ruin it once again
-![Clankers ruin it once again](20260423-013-clankers-ruin-it-once-again/image.jpg)
-**Score:** 396 | **Source:** reddit/r/dankmemes
-
----
-
-## You Okay Babe?
-![You Okay Babe?](20260423-014-you-okay-babe/image.jpg)
-**Score:** 20,379 | **Source:** reddit/r/dankmemes
-
----
-
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260423-015-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 84 | **Source:** reddit/r/dankmemes
-
----
-
-## r/bald in a nutshell
-![r/bald in a nutshell](20260423-016-rbald-in-a-nutshell/image.jpg)
-**Score:** 7,579 | **Source:** reddit/r/memes
-
----
-
-## Is it really necessary?
-![Is it really necessary?](20260423-017-is-it-really-necessary/image.jpg)
-**Score:** 4,061 | **Source:** reddit/r/memes
-
----
-
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260423-018-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 292 | **Source:** reddit/r/dankmemes
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260423-013-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 4,375 | **Source:** reddit/r/memes
 
 ---
 
 ## And Whitehouse press conferences too.
-![And Whitehouse press conferences too.](20260423-019-and-whitehouse-press-conferences-too/image.jpg)
+![And Whitehouse press conferences too.](20260423-014-and-whitehouse-press-conferences-too/image.jpg)
 **Score:** 226 | **Source:** reddit/r/dankmemes
 
 ---
 
+## You Okay Babe?
+![You Okay Babe?](20260423-015-you-okay-babe/image.jpg)
+**Score:** 20,379 | **Source:** reddit/r/dankmemes
+
+---
+
 ## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260423-020-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+![An unfortunate name for an aircraft comp](20260423-016-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
 **Score:** 1,447 | **Source:** reddit/r/dankmemes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260423-017-dont-disturb-me/image.jpg)
+**Score:** 936 | **Source:** reddit/r/dankmemes
+
+---
+
+## Is it really necessary?
+![Is it really necessary?](20260423-018-is-it-really-necessary/image.jpg)
+**Score:** 4,061 | **Source:** reddit/r/memes
+
+---
+
+## *deeply inhales smog*
+![*deeply inhales smog*](20260423-019-deeply-inhales-smog/image.jpg)
+**Score:** 1,805 | **Source:** reddit/r/memes
+
+---
+
+## Lets go im safe
+![Lets go im safe](20260423-020-lets-go-im-safe/image.jpg)
+**Score:** 710 | **Source:** reddit/r/dankmemes
 
 ---

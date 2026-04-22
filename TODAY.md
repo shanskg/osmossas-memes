@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-23 00:50
+# Meme Feed — 2026-04-23 01:01
 
-**Total:** 16 memes | Refresh every 10 min
-
----
-
-## The call is coming from outside the house
-![The call is coming from outside the hous](20260423-001-the-call-is-coming-from-outside-the-hous/image.jpg)
-**Score:** 5,000 | **Source:** reddit/r/WhitePeopleTwitter
+**Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Ohio starting the speedrun to Gilead by introducing bill to ban women from weari
-![Ohio starting the speedrun to Gilead by ](20260423-002-ohio-starting-the-speedrun-to-gilead-by-/image.jpg)
-**Score:** 8,494 | **Source:** reddit/r/WhitePeopleTwitter
+## It keeps happening.
+![It keeps happening.](20260423-001-it-keeps-happening/image.jpg)
+**Score:** 773 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## skins vs skins
-![skins vs skins](20260423-003-skins-vs-skins/image.jpg)
-**Score:** 1,013 | **Source:** reddit/r/BlackPeopleTwitter
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260423-002-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,358 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## This a celly, that's a tool
+![This a celly, that's a tool](20260423-003-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,204 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -34,68 +34,92 @@
 
 ---
 
-## House at a lake with mountains, 1910
-![House at a lake with mountains, 1910](20260423-006-house-at-a-lake-with-mountains-1910/image.jpg)
-**Score:** 4,345 | **Source:** reddit/r/HolUp
+## Among Us Meme
+![Among Us Meme](20260423-006-among-us-meme/image.jpg)
+**Score:** 85 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260423-007-futabu-anyone/image.jpg)
-**Score:** 2,080 | **Source:** reddit/r/HolUp
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260423-007-an-augmented-reality-sandbox/image.jpg)
+**Score:** 604 | **Source:** reddit/r/HolUp
 
 ---
 
-## Let's get straight to the business - it's open during stock hours
-![Let's get straight to the business - it'](20260423-008-lets-get-straight-to-the-business-its-op/image.jpg)
-**Score:** 261 | **Source:** reddit/r/dankmemes
+## I'm from very old era, if you know you know
+![I'm from very old era, if you know you k](20260423-008-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+**Score:** 6,492 | **Source:** reddit/r/memes
 
 ---
 
-## Now we mememaxxing
-![Now we mememaxxing](20260423-009-now-we-mememaxxing/image.jpg)
-**Score:** 734 | **Source:** reddit/r/dankmemes
+## i'm scared
+![i'm scared](20260423-009-im-scared/image.jpg)
+**Score:** 14,605 | **Source:** reddit/r/memes
 
 ---
 
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260423-010-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 296 | **Source:** reddit/r/dankmemes
+## what a wild ride
+![what a wild ride](20260423-010-what-a-wild-ride/image.jpg)
+**Score:** 2,982 | **Source:** reddit/r/dankmemes
 
 ---
 
-## It's in the blood
-![It's in the blood](20260423-011-its-in-the-blood/image.jpg)
-**Score:** 264 | **Source:** reddit/r/dankmemes
+## r/bald in a nutshell
+![r/bald in a nutshell](20260423-011-rbald-in-a-nutshell/image.jpg)
+**Score:** 7,439 | **Source:** reddit/r/memes
+
+---
+
+## So true....
+![So true....](20260423-012-so-true/image.jpg)
+**Score:** 14,943 | **Source:** reddit/r/memes
 
 ---
 
 ## Send nudes. It's safe
-![Send nudes. It's safe](20260423-012-send-nudes-its-safe/image.jpg)
+![Send nudes. It's safe](20260423-013-send-nudes-its-safe/image.jpg)
 **Score:** 220 | **Source:** reddit/r/memes
 
 ---
 
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-013-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 1,210 | **Source:** reddit/r/memes
+## Now we mememaxxing
+![Now we mememaxxing](20260423-014-now-we-mememaxxing/image.jpg)
+**Score:** 734 | **Source:** reddit/r/dankmemes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260423-015-dont-disturb-me/image.jpg)
+**Score:** 924 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## *deeply inhales smog*
-![*deeply inhales smog*](20260423-014-deeply-inhales-smog/image.jpg)
+![*deeply inhales smog*](20260423-016-deeply-inhales-smog/image.jpg)
 **Score:** 1,107 | **Source:** reddit/r/memes
 
 ---
 
-## A responsible Doctor
-![A responsible Doctor](20260423-015-a-responsible-doctor/image.jpg)
-**Score:** 2,426 | **Source:** reddit/r/memes
+## And Whitehouse press conferences too.
+![And Whitehouse press conferences too.](20260423-017-and-whitehouse-press-conferences-too/image.jpg)
+**Score:** 226 | **Source:** reddit/r/dankmemes
+
+---
+
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260423-018-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 296 | **Source:** reddit/r/dankmemes
+
+---
+
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260423-019-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,443 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Weird behavior
-![Weird behavior](20260423-016-weird-behavior/image.jpg)
+![Weird behavior](20260423-020-weird-behavior/image.jpg)
 **Score:** 88 | **Source:** reddit/r/dankmemes
 
 ---

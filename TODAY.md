@@ -1,72 +1,72 @@
-# Meme Feed — 2026-04-23 02:30
+# Meme Feed — 2026-04-23 02:40
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## He's really on top
-![He's really on top](20260423-001-hes-really-on-top/image.jpg)
-**Score:** 1,932 | **Source:** reddit/r/BlackPeopleTwitter
+## Art of the deal or something.
+![Art of the deal or something.](20260423-001-art-of-the-deal-or-something/image.jpg)
+**Score:** 312 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Leave the whales alone
-![Leave the whales alone](20260423-002-leave-the-whales-alone/image.jpg)
-**Score:** 19,178 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260423-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,402 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260423-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,364 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260423-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,180 | **Source:** reddit/r/facepalm
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260423-004-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,145 | **Source:** reddit/r/facepalm
+## The perfect combination of heading and Reddit mobile jank
+![The perfect combination of heading and R](20260423-005-the-perfect-combination-of-heading-and-r/image.jpg)
+**Score:** 235 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
-![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260423-005-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
-**Score:** 1,053 | **Source:** reddit/r/technicallythetruth
+## Enjoy your hot water
+![Enjoy your hot water](20260423-006-enjoy-your-hot-water/image.jpg)
+**Score:** 969 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260423-006-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 500 | **Source:** reddit/r/technicallythetruth
+## It's Sabotage
+![It's Sabotage](20260423-007-its-sabotage/image.jpg)
+**Score:** 76 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## it’s everywhere
-![it’s everywhere](20260423-007-its-everywhere/image.jpg)
-**Score:** 103 | **Source:** reddit/r/suspiciouslyspecific
+## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
+![If I go to a cookout and bite a hot dog ](20260423-008-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
+**Score:** 206 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## You guys like my website?
-![You guys like my website?](20260423-008-you-guys-like-my-website/image.jpg)
-**Score:** 77 | **Source:** reddit/r/suspiciouslyspecific
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260423-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 620 | **Source:** reddit/r/HolUp
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260423-009-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 379 | **Source:** reddit/r/oddlyspecific
+## i'm scared
+![i'm scared](20260423-010-im-scared/image.jpg)
+**Score:** 14,633 | **Source:** reddit/r/memes
 
 ---
 
-## Darker and darker
-![Darker and darker](20260423-010-darker-and-darker/image.jpg)
-**Score:** 283 | **Source:** reddit/r/HolUp
-
----
-
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260423-011-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 69 | **Source:** reddit/r/dankmemes
+## Lets go im safe
+![Lets go im safe](20260423-011-lets-go-im-safe/image.jpg)
+**Score:** 663 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -76,33 +76,33 @@
 
 ---
 
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260423-013-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 293 | **Source:** reddit/r/dankmemes
+## Weird behavior
+![Weird behavior](20260423-013-weird-behavior/image.jpg)
+**Score:** 87 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-014-send-nudes-its-safe/image.jpg)
-**Score:** 304 | **Source:** reddit/r/memes
+## I'm from very old era, if you know you know
+![I'm from very old era, if you know you k](20260423-014-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+**Score:** 6,499 | **Source:** reddit/r/memes
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260423-015-dont-disturb-me/image.jpg)
-**Score:** 930 | **Source:** reddit/r/dankmemes
+## Let's get straight to the business - it's open during stock hours
+![Let's get straight to the business - it'](20260423-015-lets-get-straight-to-the-business-its-op/image.jpg)
+**Score:** 261 | **Source:** reddit/r/dankmemes
 
 ---
 
-## It's in the blood
-![It's in the blood](20260423-016-its-in-the-blood/image.jpg)
-**Score:** 263 | **Source:** reddit/r/dankmemes
+## what a wild ride
+![what a wild ride](20260423-016-what-a-wild-ride/image.jpg)
+**Score:** 2,977 | **Source:** reddit/r/dankmemes
 
 ---
 
-## A responsible Doctor
-![A responsible Doctor](20260423-017-a-responsible-doctor/image.jpg)
-**Score:** 2,440 | **Source:** reddit/r/memes
+## And Whitehouse press conferences too.
+![And Whitehouse press conferences too.](20260423-017-and-whitehouse-press-conferences-too/image.jpg)
+**Score:** 227 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -112,14 +112,14 @@
 
 ---
 
-## Weird behavior
-![Weird behavior](20260423-019-weird-behavior/image.jpg)
-**Score:** 87 | **Source:** reddit/r/dankmemes
+## my virginity is safe(r)
+![my virginity is safe(r)](20260423-019-my-virginity-is-safer/image.jpg)
+**Score:** 57 | **Source:** reddit/r/memes
 
 ---
 
-## my virginity is safe(r)
-![my virginity is safe(r)](20260423-020-my-virginity-is-safer/image.jpg)
-**Score:** 57 | **Source:** reddit/r/memes
+## A responsible Doctor
+![A responsible Doctor](20260423-020-a-responsible-doctor/image.jpg)
+**Score:** 2,440 | **Source:** reddit/r/memes
 
 ---

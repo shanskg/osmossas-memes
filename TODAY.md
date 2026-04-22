@@ -1,61 +1,126 @@
-# Meme Feed — 2026-04-22 08:09
+# Meme Feed — 2026-04-22 10:41
 
-**Total:** 8 memes | Click any image to view full size, right-click to save
-
----
-
-## This a celly, that's a tool
-![This a celly, that's a tool](20260422-001-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 4,746 | **Source:** reddit/r/BlackPeopleTwitter | [View Source](https://redd.it/1srdbtw)
+**Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260422-001-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,178 | **Source:** reddit/r/facepalm | [View Source](https://redd.it/1s01fo2)
+## It keeps happening.
+![It keeps happening.](20260422-001-it-keeps-happening/image.jpg)
+**Score:** 264 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260422-001-enjoy-your-hot-water/image.jpg)
-**Score:** 972 | **Source:** reddit/r/technicallythetruth | [View Source](https://redd.it/1sh031a)
+## At this point, it may even be a genetic trait
+![At this point, it may even be a genetic ](20260422-002-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+**Score:** 7,025 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## crewmates views on voting out the impostor!
-![crewmates views on voting out the impost](20260422-001-crewmates-views-on-voting-out-the-impost/image.jpg)
-**Score:** 4,475 | **Source:** reddit/r/suspiciouslyspecific | [View Source](https://redd.it/14gaqje)
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260422-003-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,143 | **Source:** reddit/r/facepalm
 
 ---
 
-## Blaming demons instead of bad choices
-![Blaming demons instead of bad choices](20260422-001-blaming-demons-instead-of-bad-choices/image.jpg)
-**Score:** 15,117 | **Source:** reddit/r/clevercomebacks | [View Source](https://redd.it/1sn6vxe)
+## The perfect combination of heading and Reddit mobile jank
+![The perfect combination of heading and R](20260422-004-the-perfect-combination-of-heading-and-r/image.jpg)
+**Score:** 231 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## You posted it, remember?
-![You posted it, remember?](20260422-002-you-posted-it-remember/image.jpg)
-**Score:** 2,548 | **Source:** reddit/r/clevercomebacks | [View Source](https://redd.it/1slidsu)
+## Being shot with a depleted uranium bullet can't be good
+![Being shot with a depleted uranium bulle](20260422-005-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+**Score:** 499 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## An unexpected champion
-![An unexpected champion](20260422-001-an-unexpected-champion/image.jpg)
-**Score:** 5,236 | **Source:** reddit/r/rareinsults | [View Source](https://redd.it/1smnodp)
+## Don't do that
+![Don't do that](20260422-006-dont-do-that/image.jpg)
+**Score:** 344 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Found on Instagram reels
-![Found on Instagram reels](20260422-002-found-on-instagram-reels/image.jpg)
-**Score:** 1,316 | **Source:** reddit/r/rareinsults | [View Source](https://redd.it/1sgo7ro)
+## Futabu anyone ???
+![Futabu anyone ???](20260422-007-futabu-anyone/image.jpg)
+**Score:** 1,958 | **Source:** reddit/r/HolUp
 
 ---
 
-## How to Use
-1. Scroll through images above
-2. Click any image to open full size in new tab
-3. Right-click → 'Save image as' to download
-4. Drop on background video → add trending sound → export 9:16 → upload to @osmossas
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260422-008-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 251 | **Source:** reddit/r/dankmemes
 
-*Don't worry. Even if the world forgets, I'll keep scraping for you.*
+---
+
+## i personally think even 67 fails in comparison
+![i personally think even 67 fails in comp](20260422-009-i-personally-think-even-67-fails-in-comp/image.jpg)
+**Score:** 7,905 | **Source:** reddit/r/memes
+
+---
+
+## i'm scared
+![i'm scared](20260422-010-im-scared/image.jpg)
+**Score:** 13,733 | **Source:** reddit/r/memes
+
+---
+
+## And Whitehouse press conferences too.
+![And Whitehouse press conferences too.](20260422-011-and-whitehouse-press-conferences-too/image.jpg)
+**Score:** 219 | **Source:** reddit/r/dankmemes
+
+---
+
+## Idk how to flirt...
+![Idk how to flirt...](20260422-012-idk-how-to-flirt/image.jpg)
+**Score:** 4,261 | **Source:** reddit/r/memes
+
+---
+
+## Is it really necessary?
+![Is it really necessary?](20260422-013-is-it-really-necessary/image.jpg)
+**Score:** 3,458 | **Source:** reddit/r/memes
+
+---
+
+## the wikipedia entry has over 2300 words
+![the wikipedia entry has over 2300 words](20260422-014-the-wikipedia-entry-has-over-2300-words/image.jpg)
+**Score:** 3,298 | **Source:** reddit/r/memes
+
+---
+
+## IT: ‘Your password must include 12 characters, a symbol, and a sacrifice.’
+Me:
+![IT: ‘Your password must include 12 chara](20260422-015-it-your-password-must-include-12-charact/image.jpg)
+**Score:** 2,021 | **Source:** reddit/r/memes
+
+---
+
+## r/bald in a nutshell
+![r/bald in a nutshell](20260422-016-rbald-in-a-nutshell/image.jpg)
+**Score:** 4,476 | **Source:** reddit/r/memes
+
+---
+
+## Let's get straight to the business - it's open during stock hours
+![Let's get straight to the business - it'](20260422-017-lets-get-straight-to-the-business-its-op/image.jpg)
+**Score:** 254 | **Source:** reddit/r/dankmemes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260422-018-dont-disturb-me/image.jpg)
+**Score:** 483 | **Source:** reddit/r/dankmemes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260422-019-you-okay-babe/image.jpg)
+**Score:** 19,373 | **Source:** reddit/r/dankmemes
+
+---
+
+## it's a peaceful life
+![it's a peaceful life](20260422-020-its-a-peaceful-life/image.jpg)
+**Score:** 2,160 | **Source:** reddit/r/dankmemes
+
+---

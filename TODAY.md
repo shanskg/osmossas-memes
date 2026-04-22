@@ -1,125 +1,101 @@
-# Meme Feed — 2026-04-23 00:41
+# Meme Feed — 2026-04-23 00:50
 
-**Total:** 20 memes | Refresh every 10 min
-
----
-
-## Claiming Virginia is "under hostile occupation" because a vote didn't go your wa
-![Claiming Virginia is "under hostile occu](20260423-001-claiming-virginia-is-under-hostile-occup/image.jpg)
-**Score:** 430 | **Source:** reddit/r/WhitePeopleTwitter
+**Total:** 16 memes | Refresh every 10 min
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-002-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,178 | **Source:** reddit/r/facepalm
+## The call is coming from outside the house
+![The call is coming from outside the hous](20260423-001-the-call-is-coming-from-outside-the-hous/image.jpg)
+**Score:** 5,000 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260423-003-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,071 | **Source:** reddit/r/technicallythetruth
+## Ohio starting the speedrun to Gilead by introducing bill to ban women from weari
+![Ohio starting the speedrun to Gilead by ](20260423-002-ohio-starting-the-speedrun-to-gilead-by-/image.jpg)
+**Score:** 8,494 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## He's in there somewhere
-![He's in there somewhere](20260423-004-hes-in-there-somewhere/image.jpg)
-**Score:** 1,530 | **Source:** reddit/r/suspiciouslyspecific
+## skins vs skins
+![skins vs skins](20260423-003-skins-vs-skins/image.jpg)
+**Score:** 1,013 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260423-005-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,325 | **Source:** reddit/r/HolUp
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260423-004-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,136 | **Source:** reddit/r/facepalm
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260423-006-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 622 | **Source:** reddit/r/HolUp
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260423-005-well-did-they-accept-or-not/image.jpg)
+**Score:** 829 | **Source:** reddit/r/facepalm
 
 ---
 
-## *deeply inhales smog*
-![*deeply inhales smog*](20260423-007-deeply-inhales-smog/image.jpg)
-**Score:** 1,107 | **Source:** reddit/r/memes
+## House at a lake with mountains, 1910
+![House at a lake with mountains, 1910](20260423-006-house-at-a-lake-with-mountains-1910/image.jpg)
+**Score:** 4,345 | **Source:** reddit/r/HolUp
 
 ---
 
-## Clankers ruin it once again
-![Clankers ruin it once again](20260423-008-clankers-ruin-it-once-again/image.jpg)
-**Score:** 391 | **Source:** reddit/r/dankmemes
-
----
-
-## r/bald in a nutshell
-![r/bald in a nutshell](20260423-009-rbald-in-a-nutshell/image.jpg)
-**Score:** 7,439 | **Source:** reddit/r/memes
-
----
-
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-010-send-nudes-its-safe/image.jpg)
-**Score:** 220 | **Source:** reddit/r/memes
-
----
-
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260423-011-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 6,492 | **Source:** reddit/r/memes
-
----
-
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260423-012-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 306 | **Source:** reddit/r/dankmemes
-
----
-
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260423-013-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 58 | **Source:** reddit/r/dankmemes
-
----
-
-## And Whitehouse press conferences too.
-![And Whitehouse press conferences too.](20260423-014-and-whitehouse-press-conferences-too/image.jpg)
-**Score:** 226 | **Source:** reddit/r/dankmemes
-
----
-
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260423-015-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 296 | **Source:** reddit/r/dankmemes
-
----
-
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260423-016-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,443 | **Source:** reddit/r/dankmemes
-
----
-
-## So true....
-![So true....](20260423-017-so-true/image.jpg)
-**Score:** 14,943 | **Source:** reddit/r/memes
-
----
-
-## Weird behavior
-![Weird behavior](20260423-018-weird-behavior/image.jpg)
-**Score:** 88 | **Source:** reddit/r/dankmemes
-
----
-
-## You Okay Babe?
-![You Okay Babe?](20260423-019-you-okay-babe/image.jpg)
-**Score:** 20,319 | **Source:** reddit/r/dankmemes
+## Futabu anyone ???
+![Futabu anyone ???](20260423-007-futabu-anyone/image.jpg)
+**Score:** 2,080 | **Source:** reddit/r/HolUp
 
 ---
 
 ## Let's get straight to the business - it's open during stock hours
-![Let's get straight to the business - it'](20260423-020-lets-get-straight-to-the-business-its-op/image.jpg)
+![Let's get straight to the business - it'](20260423-008-lets-get-straight-to-the-business-its-op/image.jpg)
 **Score:** 261 | **Source:** reddit/r/dankmemes
+
+---
+
+## Now we mememaxxing
+![Now we mememaxxing](20260423-009-now-we-mememaxxing/image.jpg)
+**Score:** 734 | **Source:** reddit/r/dankmemes
+
+---
+
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260423-010-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 296 | **Source:** reddit/r/dankmemes
+
+---
+
+## It's in the blood
+![It's in the blood](20260423-011-its-in-the-blood/image.jpg)
+**Score:** 264 | **Source:** reddit/r/dankmemes
+
+---
+
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-012-send-nudes-its-safe/image.jpg)
+**Score:** 220 | **Source:** reddit/r/memes
+
+---
+
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260423-013-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 1,210 | **Source:** reddit/r/memes
+
+---
+
+## *deeply inhales smog*
+![*deeply inhales smog*](20260423-014-deeply-inhales-smog/image.jpg)
+**Score:** 1,107 | **Source:** reddit/r/memes
+
+---
+
+## A responsible Doctor
+![A responsible Doctor](20260423-015-a-responsible-doctor/image.jpg)
+**Score:** 2,426 | **Source:** reddit/r/memes
+
+---
+
+## Weird behavior
+![Weird behavior](20260423-016-weird-behavior/image.jpg)
+**Score:** 88 | **Source:** reddit/r/dankmemes
 
 ---

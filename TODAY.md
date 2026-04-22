@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-22 20:03
+# Meme Feed — 2026-04-22 20:11
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260422-001-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,335 | **Source:** reddit/r/BlackPeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260422-001-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,067 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## skins vs skins
-![skins vs skins](20260422-002-skins-vs-skins/image.jpg)
-**Score:** 1,019 | **Source:** reddit/r/BlackPeopleTwitter
+## He's really on top
+![He's really on top](20260422-002-hes-really-on-top/image.jpg)
+**Score:** 1,933 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -34,93 +34,93 @@
 
 ---
 
-## Darker and darker
-![Darker and darker](20260422-006-darker-and-darker/image.jpg)
-**Score:** 281 | **Source:** reddit/r/HolUp
+## I'm too lazy to take a picture, so I made a drawing more time consuming but anyw
+![I'm too lazy to take a picture, so I mad](20260422-006-im-too-lazy-to-take-a-picture-so-i-made-/image.jpg)
+**Score:** 214 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
+![If I go to a cookout and bite a hot dog ](20260422-007-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
+**Score:** 200 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260422-008-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 64 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## AI is everywhere
+![AI is everywhere](20260422-009-ai-is-everywhere/image.jpg)
+**Score:** 871 | **Source:** reddit/r/HolUp
+
+---
+
+## We all have gone through ts
+![We all have gone through ts](20260422-010-we-all-have-gone-through-ts/image.jpg)
+**Score:** 359 | **Source:** reddit/r/memes
+
+---
+
+## i personally think even 67 fails in comparison
+![i personally think even 67 fails in comp](20260422-011-i-personally-think-even-67-fails-in-comp/image.jpg)
+**Score:** 7,958 | **Source:** reddit/r/memes
+
+---
+
+## I Don't know why this trend exists, and at this point I'm afraid to ask
+![I Don't know why this trend exists, and ](20260422-012-i-dont-know-why-this-trend-exists-and-at/image.jpg)
+**Score:** 51 | **Source:** reddit/r/dankmemes
+
+---
+
+## Now we mememaxxing
+![Now we mememaxxing](20260422-013-now-we-mememaxxing/image.jpg)
+**Score:** 709 | **Source:** reddit/r/dankmemes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260422-014-dont-disturb-me/image.jpg)
+**Score:** 777 | **Source:** reddit/r/dankmemes
+
+---
+
+## Clankers ruin it once again
+![Clankers ruin it once again](20260422-015-clankers-ruin-it-once-again/image.jpg)
+**Score:** 392 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## IT: ‘Your password must include 12 characters, a symbol, and a sacrifice.’
 Me:
-![IT: ‘Your password must include 12 chara](20260422-007-it-your-password-must-include-12-charact/image.jpg)
+![IT: ‘Your password must include 12 chara](20260422-016-it-your-password-must-include-12-charact/image.jpg)
 **Score:** 2,057 | **Source:** reddit/r/memes
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260422-008-dont-disturb-me/image.jpg)
-**Score:** 777 | **Source:** reddit/r/dankmemes
-
----
-
-## I Don't know why this trend exists, and at this point I'm afraid to ask
-![I Don't know why this trend exists, and ](20260422-009-i-dont-know-why-this-trend-exists-and-at/image.jpg)
-**Score:** 51 | **Source:** reddit/r/dankmemes
-
----
-
-## Is it really necessary?
-![Is it really necessary?](20260422-010-is-it-really-necessary/image.jpg)
-**Score:** 3,913 | **Source:** reddit/r/memes
-
----
-
-## Clankers ruin it once again
-![Clankers ruin it once again](20260422-011-clankers-ruin-it-once-again/image.jpg)
-**Score:** 392 | **Source:** reddit/r/dankmemes
-
----
-
-## You Okay Babe?
-![You Okay Babe?](20260422-012-you-okay-babe/image.jpg)
-**Score:** 20,080 | **Source:** reddit/r/dankmemes
-
----
-
-## *deeply inhales smog*
-![*deeply inhales smog*](20260422-013-deeply-inhales-smog/image.jpg)
-**Score:** 120 | **Source:** reddit/r/memes
-
----
-
-## i personally think even 67 fails in comparison
-![i personally think even 67 fails in comp](20260422-014-i-personally-think-even-67-fails-in-comp/image.jpg)
-**Score:** 7,958 | **Source:** reddit/r/memes
-
----
-
 ## r/bald in a nutshell
-![r/bald in a nutshell](20260422-015-rbald-in-a-nutshell/image.jpg)
+![r/bald in a nutshell](20260422-017-rbald-in-a-nutshell/image.jpg)
 **Score:** 6,708 | **Source:** reddit/r/memes
 
 ---
 
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260422-016-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 6,126 | **Source:** reddit/r/memes
+## Is it really necessary?
+![Is it really necessary?](20260422-018-is-it-really-necessary/image.jpg)
+**Score:** 3,913 | **Source:** reddit/r/memes
+
+---
+
+## A responsible Doctor
+![A responsible Doctor](20260422-019-a-responsible-doctor/image.jpg)
+**Score:** 2,409 | **Source:** reddit/r/memes
 
 ---
 
 ## i'm scared
-![i'm scared](20260422-017-im-scared/image.jpg)
+![i'm scared](20260422-020-im-scared/image.jpg)
 **Score:** 14,393 | **Source:** reddit/r/memes
-
----
-
-## So true....
-![So true....](20260422-018-so-true/image.jpg)
-**Score:** 14,915 | **Source:** reddit/r/memes
-
----
-
-## So hard to do.
-![So hard to do.](20260422-019-so-hard-to-do/image.jpg)
-**Score:** 1,494 | **Source:** reddit/r/memes
-
----
-
-## We all have gone through ts
-![We all have gone through ts](20260422-020-we-all-have-gone-through-ts/image.jpg)
-**Score:** 359 | **Source:** reddit/r/memes
 
 ---

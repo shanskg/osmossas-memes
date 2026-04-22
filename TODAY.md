@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-22 13:50
+# Meme Feed — 2026-04-22 14:02
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
+## Scream it from the rooftops
+![Scream it from the rooftops](20260422-001-scream-it-from-the-rooftops/image.jpg)
+**Score:** 1,320 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## world leaders need to drop more carrots and less bombs. Thank you Australia.
+![world leaders need to drop more carrots ](20260422-002-world-leaders-need-to-drop-more-carrots-/image.jpg)
+**Score:** 1,469 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
 ## He's really on top
-![He's really on top](20260422-001-hes-really-on-top/image.jpg)
+![He's really on top](20260422-003-hes-really-on-top/image.jpg)
 **Score:** 1,929 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Leave the whales alone
-![Leave the whales alone](20260422-002-leave-the-whales-alone/image.jpg)
-**Score:** 19,185 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260422-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,362 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -28,87 +28,87 @@
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260422-005-enjoy-your-hot-water/image.jpg)
-**Score:** 969 | **Source:** reddit/r/technicallythetruth
+## I cast stairs... Wrong subReddit
+![I cast stairs... Wrong subReddit](20260422-005-i-cast-stairs-wrong-subreddit/image.jpg)
+**Score:** 2,352 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Dippers shadow in this episode of Gravity Falls
-![Dippers shadow in this episode of Gravit](20260422-006-dippers-shadow-in-this-episode-of-gravit/image.jpg)
-**Score:** 1,086 | **Source:** reddit/r/suspiciouslyspecific
+## My local children's Emergency Department doesn't treat Testicular Pain
+![My local children's Emergency Department](20260422-006-my-local-childrens-emergency-department-/image.jpg)
+**Score:** 51 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Don't do that
-![Don't do that](20260422-007-dont-do-that/image.jpg)
-**Score:** 342 | **Source:** reddit/r/oddlyspecific
-
----
-
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260422-008-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 198 | **Source:** reddit/r/oddlyspecific
-
----
-
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260422-009-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,328 | **Source:** reddit/r/HolUp
-
----
-
-## House at a lake with mountains, 1910
-![House at a lake with mountains, 1910](20260422-010-house-at-a-lake-with-mountains-1910/image.jpg)
-**Score:** 4,334 | **Source:** reddit/r/HolUp
-
----
-
-## A responsible Doctor
-![A responsible Doctor](20260422-011-a-responsible-doctor/image.jpg)
-**Score:** 2,318 | **Source:** reddit/r/memes
+## Darker and darker
+![Darker and darker](20260422-007-darker-and-darker/image.jpg)
+**Score:** 281 | **Source:** reddit/r/HolUp
 
 ---
 
 ## r/bald in a nutshell
-![r/bald in a nutshell](20260422-012-rbald-in-a-nutshell/image.jpg)
+![r/bald in a nutshell](20260422-008-rbald-in-a-nutshell/image.jpg)
 **Score:** 5,058 | **Source:** reddit/r/memes
 
 ---
 
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260422-013-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,410 | **Source:** reddit/r/dankmemes
+## Clankers ruin it once again
+![Clankers ruin it once again](20260422-009-clankers-ruin-it-once-again/image.jpg)
+**Score:** 389 | **Source:** reddit/r/dankmemes
+
+---
+
+## A responsible Doctor
+![A responsible Doctor](20260422-010-a-responsible-doctor/image.jpg)
+**Score:** 2,318 | **Source:** reddit/r/memes
+
+---
+
+## Now we mememaxxing
+![Now we mememaxxing](20260422-011-now-we-mememaxxing/image.jpg)
+**Score:** 674 | **Source:** reddit/r/dankmemes
+
+---
+
+## Let's get straight to the business - it's open during stock hours
+![Let's get straight to the business - it'](20260422-012-lets-get-straight-to-the-business-its-op/image.jpg)
+**Score:** 253 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## IT: ‘Your password must include 12 characters, a symbol, and a sacrifice.’
 Me:
-![IT: ‘Your password must include 12 chara](20260422-014-it-your-password-must-include-12-charact/image.jpg)
+![IT: ‘Your password must include 12 chara](20260422-013-it-your-password-must-include-12-charact/image.jpg)
 **Score:** 2,034 | **Source:** reddit/r/memes
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260422-015-dont-disturb-me/image.jpg)
-**Score:** 542 | **Source:** reddit/r/dankmemes
+## You Okay Babe?
+![You Okay Babe?](20260422-014-you-okay-babe/image.jpg)
+**Score:** 19,589 | **Source:** reddit/r/dankmemes
 
 ---
 
-## it's a peaceful life
-![it's a peaceful life](20260422-016-its-a-peaceful-life/image.jpg)
-**Score:** 2,160 | **Source:** reddit/r/dankmemes
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260422-015-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,410 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Is it really necessary?
-![Is it really necessary?](20260422-017-is-it-really-necessary/image.jpg)
-**Score:** 3,608 | **Source:** reddit/r/memes
+## And Whitehouse press conferences too.
+![And Whitehouse press conferences too.](20260422-016-and-whitehouse-press-conferences-too/image.jpg)
+**Score:** 219 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Weird behavior
-![Weird behavior](20260422-018-weird-behavior/image.jpg)
+![Weird behavior](20260422-017-weird-behavior/image.jpg)
+**Score:** 52 | **Source:** reddit/r/dankmemes
+
+---
+
+## I Don't know why this trend exists, and at this point I'm afraid to ask
+![I Don't know why this trend exists, and ](20260422-018-i-dont-know-why-this-trend-exists-and-at/image.jpg)
 **Score:** 52 | **Source:** reddit/r/dankmemes
 
 ---
@@ -119,8 +119,8 @@ Me:
 
 ---
 
-## Now we mememaxxing
-![Now we mememaxxing](20260422-020-now-we-mememaxxing/image.jpg)
-**Score:** 674 | **Source:** reddit/r/dankmemes
+## it's a peaceful life
+![it's a peaceful life](20260422-020-its-a-peaceful-life/image.jpg)
+**Score:** 2,160 | **Source:** reddit/r/dankmemes
 
 ---

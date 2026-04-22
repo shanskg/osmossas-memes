@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-23 03:00
+# Meme Feed — 2026-04-23 03:11
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## There is no library. He just pocketed the money and produced AI slop of a 'conce
-![There is no library. He just pocketed th](20260423-001-there-is-no-library-he-just-pocketed-the/image.jpg)
-**Score:** 720 | **Source:** reddit/r/WhitePeopleTwitter
+## Somebody is having a butthurt morning...
+![Somebody is having a butthurt morning...](20260423-001-somebody-is-having-a-butthurt-morning/image.jpg)
+**Score:** 92 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## skins vs skins
-![skins vs skins](20260423-002-skins-vs-skins/image.jpg)
-**Score:** 1,011 | **Source:** reddit/r/BlackPeopleTwitter
+## At this point, it may even be a genetic trait
+![At this point, it may even be a genetic ](20260423-002-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+**Score:** 7,022 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,180 | **Source:** reddit/r/facepalm
+## This a celly, that's a tool
+![This a celly, that's a tool](20260423-003-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,230 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260423-004-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,145 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260423-004-well-did-they-accept-or-not/image.jpg)
+**Score:** 833 | **Source:** reddit/r/facepalm
 
 ---
 
-## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
-![Oh Oracle, How Will I Die? Surrounded By](20260423-005-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
-**Score:** 3,927 | **Source:** reddit/r/technicallythetruth
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260423-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,368 | **Source:** reddit/r/facepalm
 
 ---
 
-## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
-![It's anthropomorphism because nature has](20260423-006-its-anthropomorphism-because-nature-has-/image.jpg)
-**Score:** 52 | **Source:** reddit/r/technicallythetruth
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260423-006-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,400 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## You guys like my website?
-![You guys like my website?](20260423-007-you-guys-like-my-website/image.jpg)
-**Score:** 77 | **Source:** reddit/r/suspiciouslyspecific
+## To be fair an Avocado is just Guacamole in ball form.
+![To be fair an Avocado is just Guacamole ](20260423-007-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
+**Score:** 10,069 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The Hash-Slinging Slasher
-![The Hash-Slinging Slasher](20260423-008-the-hash-slinging-slasher/image.jpg)
-**Score:** 428 | **Source:** reddit/r/suspiciouslyspecific
+## imposter syndrome (among us disease)
+![imposter syndrome (among us disease)](20260423-008-imposter-syndrome-among-us-disease/image.jpg)
+**Score:** 2,243 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260423-009-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 379 | **Source:** reddit/r/oddlyspecific
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260423-009-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 66 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260423-010-futabu-anyone/image.jpg)
-**Score:** 2,096 | **Source:** reddit/r/HolUp
+## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
+![If I go to a cookout and bite a hot dog ](20260423-010-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
+**Score:** 206 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260423-011-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 6,499 | **Source:** reddit/r/memes
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260423-011-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 617 | **Source:** reddit/r/HolUp
+
+---
+
+## my virginity is safe(r)
+![my virginity is safe(r)](20260423-012-my-virginity-is-safer/image.jpg)
+**Score:** 57 | **Source:** reddit/r/memes
+
+---
+
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-013-send-nudes-its-safe/image.jpg)
+**Score:** 304 | **Source:** reddit/r/memes
 
 ---
 
 ## Lets go im safe
-![Lets go im safe](20260423-012-lets-go-im-safe/image.jpg)
+![Lets go im safe](20260423-014-lets-go-im-safe/image.jpg)
 **Score:** 663 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260423-013-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 69 | **Source:** reddit/r/dankmemes
+## Is it really necessary?
+![Is it really necessary?](20260423-015-is-it-really-necessary/image.jpg)
+**Score:** 4,059 | **Source:** reddit/r/memes
 
 ---
 
-## *deeply inhales smog*
-![*deeply inhales smog*](20260423-014-deeply-inhales-smog/image.jpg)
-**Score:** 1,430 | **Source:** reddit/r/memes
-
----
-
-## r/bald in a nutshell
-![r/bald in a nutshell](20260423-015-rbald-in-a-nutshell/image.jpg)
-**Score:** 7,515 | **Source:** reddit/r/memes
-
----
-
-## Let's get straight to the business - it's open during stock hours
-![Let's get straight to the business - it'](20260423-016-lets-get-straight-to-the-business-its-op/image.jpg)
-**Score:** 261 | **Source:** reddit/r/dankmemes
-
----
-
-## Now we mememaxxing
-![Now we mememaxxing](20260423-017-now-we-mememaxxing/image.jpg)
-**Score:** 727 | **Source:** reddit/r/dankmemes
-
----
-
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260423-018-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 293 | **Source:** reddit/r/dankmemes
-
----
-
-## A responsible Doctor
-![A responsible Doctor](20260423-019-a-responsible-doctor/image.jpg)
-**Score:** 2,440 | **Source:** reddit/r/memes
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260423-016-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 2,985 | **Source:** reddit/r/memes
 
 ---
 
 ## Don't disturb me
-![Don't disturb me](20260423-020-dont-disturb-me/image.jpg)
+![Don't disturb me](20260423-017-dont-disturb-me/image.jpg)
 **Score:** 930 | **Source:** reddit/r/dankmemes
+
+---
+
+## And Whitehouse press conferences too.
+![And Whitehouse press conferences too.](20260423-018-and-whitehouse-press-conferences-too/image.jpg)
+**Score:** 227 | **Source:** reddit/r/dankmemes
+
+---
+
+## Weird behavior
+![Weird behavior](20260423-019-weird-behavior/image.jpg)
+**Score:** 87 | **Source:** reddit/r/dankmemes
+
+---
+
+## A responsible Doctor
+![A responsible Doctor](20260423-020-a-responsible-doctor/image.jpg)
+**Score:** 2,440 | **Source:** reddit/r/memes
 
 ---

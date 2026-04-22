@@ -1,108 +1,108 @@
-# Meme Feed — 2026-04-22 20:30
+# Meme Feed — 2026-04-22 20:41
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Civil war the moment the other side fights back with the same tactic.
-![Civil war the moment the other side figh](20260422-001-civil-war-the-moment-the-other-side-figh/image.jpg)
-**Score:** 54 | **Source:** reddit/r/WhitePeopleTwitter
+## Art of the deal or something.
+![Art of the deal or something.](20260422-001-art-of-the-deal-or-something/image.jpg)
+**Score:** 239 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## At this point, it may even be a genetic trait
-![At this point, it may even be a genetic ](20260422-002-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
-**Score:** 7,025 | **Source:** reddit/r/BlackPeopleTwitter
+## Counter terrorists win
+![Counter terrorists win](20260422-002-counter-terrorists-win/image.jpg)
+**Score:** 4,761 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260422-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,173 | **Source:** reddit/r/facepalm
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260422-003-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,401 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## This a celly, that's a tool
+![This a celly, that's a tool](20260422-004-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,107 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260422-005-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,140 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260422-004-well-did-they-accept-or-not/image.jpg)
+![Well? Did they accept or not?](20260422-006-well-did-they-accept-or-not/image.jpg)
 **Score:** 827 | **Source:** reddit/r/facepalm
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260422-005-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 495 | **Source:** reddit/r/technicallythetruth
+## He did NOT dodge a bullet
+![He did NOT dodge a bullet](20260422-007-he-did-not-dodge-a-bullet/image.jpg)
+**Score:** 42,252 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
-![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260422-006-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
-**Score:** 986 | **Source:** reddit/r/technicallythetruth
+## I cast stairs... Wrong subReddit
+![I cast stairs... Wrong subReddit](20260422-008-i-cast-stairs-wrong-subreddit/image.jpg)
+**Score:** 2,386 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Johnny SusStar
-![Johnny SusStar](20260422-007-johnny-susstar/image.jpg)
-**Score:** 75 | **Source:** reddit/r/suspiciouslyspecific
+## Caught in 4K
+![Caught in 4K](20260422-009-caught-in-4k/image.jpg)
+**Score:** 3,261 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Just slightly...
-![Just slightly...](20260422-008-just-slightly/image.jpg)
-**Score:** 519 | **Source:** reddit/r/suspiciouslyspecific
+## AI is everywhere
+![AI is everywhere](20260422-010-ai-is-everywhere/image.jpg)
+**Score:** 871 | **Source:** reddit/r/HolUp
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260422-009-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 200 | **Source:** reddit/r/oddlyspecific
+## *deeply inhales smog*
+![*deeply inhales smog*](20260422-011-deeply-inhales-smog/image.jpg)
+**Score:** 277 | **Source:** reddit/r/memes
 
 ---
 
-## Don't do that
-![Don't do that](20260422-010-dont-do-that/image.jpg)
-**Score:** 342 | **Source:** reddit/r/oddlyspecific
+## I'm from very old era, if you know you know
+![I'm from very old era, if you know you k](20260422-012-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+**Score:** 6,260 | **Source:** reddit/r/memes
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260422-011-futabu-anyone/image.jpg)
-**Score:** 2,058 | **Source:** reddit/r/HolUp
-
----
-
-## Is it really necessary?
-![Is it really necessary?](20260422-012-is-it-really-necessary/image.jpg)
-**Score:** 3,957 | **Source:** reddit/r/memes
+## We all have gone through ts
+![We all have gone through ts](20260422-013-we-all-have-gone-through-ts/image.jpg)
+**Score:** 353 | **Source:** reddit/r/memes
 
 ---
 
 ## A responsible Doctor
-![A responsible Doctor](20260422-013-a-responsible-doctor/image.jpg)
+![A responsible Doctor](20260422-014-a-responsible-doctor/image.jpg)
 **Score:** 2,407 | **Source:** reddit/r/memes
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260422-014-dont-disturb-me/image.jpg)
-**Score:** 855 | **Source:** reddit/r/dankmemes
+## Is it really necessary?
+![Is it really necessary?](20260422-015-is-it-really-necessary/image.jpg)
+**Score:** 3,957 | **Source:** reddit/r/memes
 
 ---
 
-## I Don't know why this trend exists, and at this point I'm afraid to ask
-![I Don't know why this trend exists, and ](20260422-015-i-dont-know-why-this-trend-exists-and-at/image.jpg)
-**Score:** 51 | **Source:** reddit/r/dankmemes
+## i'm scared
+![i'm scared](20260422-016-im-scared/image.jpg)
+**Score:** 14,467 | **Source:** reddit/r/memes
 
 ---
 
-## Now we mememaxxing
-![Now we mememaxxing](20260422-016-now-we-mememaxxing/image.jpg)
-**Score:** 721 | **Source:** reddit/r/dankmemes
-
----
-
-## Clankers ruin it once again
-![Clankers ruin it once again](20260422-017-clankers-ruin-it-once-again/image.jpg)
-**Score:** 396 | **Source:** reddit/r/dankmemes
+## r/bald in a nutshell
+![r/bald in a nutshell](20260422-017-rbald-in-a-nutshell/image.jpg)
+**Score:** 6,999 | **Source:** reddit/r/memes
 
 ---
 
@@ -112,14 +112,14 @@
 
 ---
 
-## So true....
-![So true....](20260422-019-so-true/image.jpg)
-**Score:** 14,927 | **Source:** reddit/r/memes
+## Clankers ruin it once again
+![Clankers ruin it once again](20260422-019-clankers-ruin-it-once-again/image.jpg)
+**Score:** 396 | **Source:** reddit/r/dankmemes
 
 ---
 
-## r/bald in a nutshell
-![r/bald in a nutshell](20260422-020-rbald-in-a-nutshell/image.jpg)
-**Score:** 6,999 | **Source:** reddit/r/memes
+## Don't disturb me
+![Don't disturb me](20260422-020-dont-disturb-me/image.jpg)
+**Score:** 855 | **Source:** reddit/r/dankmemes
 
 ---

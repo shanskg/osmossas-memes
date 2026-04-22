@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-22 21:51
+# Meme Feed — 2026-04-22 22:02
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Uh oh…this doesn’t bode well for Kash Patel's $250 million defamation lawsuit ag
-![Uh oh…this doesn’t bode well for Kash Pa](20260422-001-uh-ohthis-doesnt-bode-well-for-kash-pate/image.jpg)
-**Score:** 160 | **Source:** reddit/r/WhitePeopleTwitter
+## At this point, it may even be a genetic trait
+![At this point, it may even be a genetic ](20260422-001-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+**Score:** 7,016 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Leave the whales alone
-![Leave the whales alone](20260422-002-leave-the-whales-alone/image.jpg)
-**Score:** 19,184 | **Source:** reddit/r/BlackPeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260422-002-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,160 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -22,9 +22,9 @@
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260422-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,170 | **Source:** reddit/r/facepalm
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260422-004-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,139 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -34,75 +34,75 @@
 
 ---
 
-## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
-![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260422-006-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
-**Score:** 9,371 | **Source:** reddit/r/technicallythetruth
+## among oose
+![among oose](20260422-006-among-oose/image.jpg)
+**Score:** 525 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Among cells
-![Among cells](20260422-007-among-cells/image.jpg)
-**Score:** 801 | **Source:** reddit/r/suspiciouslyspecific
+## Don't do that
+![Don't do that](20260422-007-dont-do-that/image.jpg)
+**Score:** 340 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## I'm too lazy to take a picture, so I made a drawing more time consuming but anyw
-![I'm too lazy to take a picture, so I mad](20260422-008-im-too-lazy-to-take-a-picture-so-i-made-/image.jpg)
-**Score:** 218 | **Source:** reddit/r/suspiciouslyspecific
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260422-008-an-augmented-reality-sandbox/image.jpg)
+**Score:** 604 | **Source:** reddit/r/HolUp
 
 ---
 
-## I Don't know why this trend exists, and at this point I'm afraid to ask
-![I Don't know why this trend exists, and ](20260422-009-i-dont-know-why-this-trend-exists-and-at/image.jpg)
-**Score:** 51 | **Source:** reddit/r/dankmemes
-
----
-
-## Is it really necessary?
-![Is it really necessary?](20260422-010-is-it-really-necessary/image.jpg)
-**Score:** 3,957 | **Source:** reddit/r/memes
-
----
-
-## i'm scared
-![i'm scared](20260422-011-im-scared/image.jpg)
-**Score:** 14,467 | **Source:** reddit/r/memes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260422-012-dont-disturb-me/image.jpg)
-**Score:** 855 | **Source:** reddit/r/dankmemes
-
----
-
-## You Okay Babe?
-![You Okay Babe?](20260422-013-you-okay-babe/image.jpg)
-**Score:** 20,191 | **Source:** reddit/r/dankmemes
-
----
-
-## So true....
-![So true....](20260422-014-so-true/image.jpg)
-**Score:** 14,927 | **Source:** reddit/r/memes
-
----
-
-## We all have gone through ts
-![We all have gone through ts](20260422-015-we-all-have-gone-through-ts/image.jpg)
-**Score:** 353 | **Source:** reddit/r/memes
+## i personally think even 67 fails in comparison
+![i personally think even 67 fails in comp](20260422-009-i-personally-think-even-67-fails-in-comp/image.jpg)
+**Score:** 7,967 | **Source:** reddit/r/memes
 
 ---
 
 ## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260422-016-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+![For legal reasons I'm not suggesting any](20260422-010-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
 **Score:** 297 | **Source:** reddit/r/dankmemes
 
 ---
 
+## r/bald in a nutshell
+![r/bald in a nutshell](20260422-011-rbald-in-a-nutshell/image.jpg)
+**Score:** 6,999 | **Source:** reddit/r/memes
+
+---
+
 ## *deeply inhales smog*
-![*deeply inhales smog*](20260422-017-deeply-inhales-smog/image.jpg)
+![*deeply inhales smog*](20260422-012-deeply-inhales-smog/image.jpg)
 **Score:** 277 | **Source:** reddit/r/memes
+
+---
+
+## I Don't know why this trend exists, and at this point I'm afraid to ask
+![I Don't know why this trend exists, and ](20260422-013-i-dont-know-why-this-trend-exists-and-at/image.jpg)
+**Score:** 51 | **Source:** reddit/r/dankmemes
+
+---
+
+## We all have gone through ts
+![We all have gone through ts](20260422-014-we-all-have-gone-through-ts/image.jpg)
+**Score:** 353 | **Source:** reddit/r/memes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260422-015-dont-disturb-me/image.jpg)
+**Score:** 855 | **Source:** reddit/r/dankmemes
+
+---
+
+## So true....
+![So true....](20260422-016-so-true/image.jpg)
+**Score:** 14,927 | **Source:** reddit/r/memes
+
+---
+
+## A responsible Doctor
+![A responsible Doctor](20260422-017-a-responsible-doctor/image.jpg)
+**Score:** 2,407 | **Source:** reddit/r/memes
 
 ---
 
@@ -112,9 +112,9 @@
 
 ---
 
-## r/bald in a nutshell
-![r/bald in a nutshell](20260422-019-rbald-in-a-nutshell/image.jpg)
-**Score:** 6,999 | **Source:** reddit/r/memes
+## Clankers ruin it once again
+![Clankers ruin it once again](20260422-019-clankers-ruin-it-once-again/image.jpg)
+**Score:** 396 | **Source:** reddit/r/dankmemes
 
 ---
 

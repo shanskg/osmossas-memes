@@ -1,72 +1,72 @@
-# Meme Feed — 2026-04-22 22:30
+# Meme Feed — 2026-04-22 22:41
 
-**Total:** 15 memes | Refresh every 10 min
-
----
-
-## Civil war the moment the other side fights back with the same tactic.
-![Civil war the moment the other side figh](20260422-001-civil-war-the-moment-the-other-side-figh/image.jpg)
-**Score:** 96 | **Source:** reddit/r/WhitePeopleTwitter
+**Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260422-002-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,358 | **Source:** reddit/r/BlackPeopleTwitter
+## Ohio starting the speedrun to Gilead by introducing bill to ban women from weari
+![Ohio starting the speedrun to Gilead by ](20260422-001-ohio-starting-the-speedrun-to-gilead-by-/image.jpg)
+**Score:** 8,239 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260422-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,170 | **Source:** reddit/r/facepalm
+## At this point, it may even be a genetic trait
+![At this point, it may even be a genetic ](20260422-002-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+**Score:** 7,016 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260422-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,068 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260422-004-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,139 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260422-004-well-did-they-accept-or-not/image.jpg)
+![Well? Did they accept or not?](20260422-005-well-did-they-accept-or-not/image.jpg)
 **Score:** 828 | **Source:** reddit/r/facepalm
 
 ---
 
-## Some inflation is good
-![Some inflation is good](20260422-005-some-inflation-is-good/image.jpg)
-**Score:** 15,673 | **Source:** reddit/r/technicallythetruth
+## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
+![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260422-006-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
+**Score:** 9,371 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## SUStainable Copper
-![SUStainable Copper](20260422-006-sustainable-copper/image.jpg)
-**Score:** 258 | **Source:** reddit/r/suspiciouslyspecific
+## outperforming the inflation rate
+![outperforming the inflation rate](20260422-007-outperforming-the-inflation-rate/image.jpg)
+**Score:** 65,015 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260422-007-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 66 | **Source:** reddit/r/oddlyspecific
+## It's Sabotage
+![It's Sabotage](20260422-008-its-sabotage/image.jpg)
+**Score:** 77 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260422-008-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 374 | **Source:** reddit/r/oddlyspecific
+## House at a lake with mountains, 1910
+![House at a lake with mountains, 1910](20260422-009-house-at-a-lake-with-mountains-1910/image.jpg)
+**Score:** 4,343 | **Source:** reddit/r/HolUp
 
 ---
 
-## Darker and darker
-![Darker and darker](20260422-009-darker-and-darker/image.jpg)
-**Score:** 284 | **Source:** reddit/r/HolUp
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260422-010-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 163 | **Source:** reddit/r/memes
 
 ---
 
-## And Whitehouse press conferences too.
-![And Whitehouse press conferences too.](20260422-010-and-whitehouse-press-conferences-too/image.jpg)
-**Score:** 227 | **Source:** reddit/r/dankmemes
-
----
-
-## Send nudes. It's safe
-![Send nudes. It's safe](20260422-011-send-nudes-its-safe/image.jpg)
-**Score:** 118 | **Source:** reddit/r/memes
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260422-011-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 286 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -76,20 +76,50 @@
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260422-013-dont-disturb-me/image.jpg)
-**Score:** 903 | **Source:** reddit/r/dankmemes
-
----
-
 ## A responsible Doctor
-![A responsible Doctor](20260422-014-a-responsible-doctor/image.jpg)
+![A responsible Doctor](20260422-013-a-responsible-doctor/image.jpg)
 **Score:** 2,419 | **Source:** reddit/r/memes
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260422-015-you-okay-babe/image.jpg)
-**Score:** 20,278 | **Source:** reddit/r/dankmemes
+## Weird behavior
+![Weird behavior](20260422-014-weird-behavior/image.jpg)
+**Score:** 85 | **Source:** reddit/r/dankmemes
+
+---
+
+## It's in the blood
+![It's in the blood](20260422-015-its-in-the-blood/image.jpg)
+**Score:** 261 | **Source:** reddit/r/dankmemes
+
+---
+
+## So true....
+![So true....](20260422-016-so-true/image.jpg)
+**Score:** 14,946 | **Source:** reddit/r/memes
+
+---
+
+## Let's get straight to the business - it's open during stock hours
+![Let's get straight to the business - it'](20260422-017-lets-get-straight-to-the-business-its-op/image.jpg)
+**Score:** 263 | **Source:** reddit/r/dankmemes
+
+---
+
+## Clankers ruin it once again
+![Clankers ruin it once again](20260422-018-clankers-ruin-it-once-again/image.jpg)
+**Score:** 390 | **Source:** reddit/r/dankmemes
+
+---
+
+## i'm scared
+![i'm scared](20260422-019-im-scared/image.jpg)
+**Score:** 14,548 | **Source:** reddit/r/memes
+
+---
+
+## what a wild ride
+![what a wild ride](20260422-020-what-a-wild-ride/image.jpg)
+**Score:** 2,980 | **Source:** reddit/r/dankmemes
 
 ---

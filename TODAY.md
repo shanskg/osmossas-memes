@@ -1,30 +1,30 @@
-# Meme Feed — 2026-04-24 05:50
+# Meme Feed — 2026-04-24 06:00
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## THAT IS NOT HOW MATH AND PERCENTAGES WORK YOU BRAINDEAD DONKEY
-![THAT IS NOT HOW MATH AND PERCENTAGES WOR](20260424-001-that-is-not-how-math-and-percentages-wor/image.jpg)
-**Score:** 885 | **Source:** reddit/r/WhitePeopleTwitter
+## Navy Secretary leaving in the MIDDLE OF A WAR? Clown show.
+![Navy Secretary leaving in the MIDDLE OF ](20260424-001-navy-secretary-leaving-in-the-middle-of-/image.jpg)
+**Score:** 129 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Leave the whales alone
-![Leave the whales alone](20260424-002-leave-the-whales-alone/image.jpg)
-**Score:** 19,179 | **Source:** reddit/r/BlackPeopleTwitter
+## skins vs skins
+![skins vs skins](20260424-002-skins-vs-skins/image.jpg)
+**Score:** 1,019 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260424-003-well-did-they-accept-or-not/image.jpg)
-**Score:** 834 | **Source:** reddit/r/facepalm
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260424-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,182 | **Source:** reddit/r/facepalm
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260424-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,363 | **Source:** reddit/r/facepalm
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260424-004-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,143 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -34,15 +34,15 @@
 
 ---
 
-## It's easy to find a 1-step solution if the prior guesses weren't considered.
-![It's easy to find a 1-step solution if t](20260424-006-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
-**Score:** 2,403 | **Source:** reddit/r/technicallythetruth
+## 125 per hour in Oregon
+![125 per hour in Oregon](20260424-006-125-per-hour-in-oregon/image.jpg)
+**Score:** 12,636 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Among cells
-![Among cells](20260424-007-among-cells/image.jpg)
-**Score:** 801 | **Source:** reddit/r/suspiciouslyspecific
+## Sus adventures
+![Sus adventures](20260424-007-sus-adventures/image.jpg)
+**Score:** 135 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
@@ -52,63 +52,63 @@
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260424-009-ai-is-everywhere/image.jpg)
-**Score:** 962 | **Source:** reddit/r/HolUp
+## 5G human radar
+![5G human radar](20260424-009-5g-human-radar/image.jpg)
+**Score:** 3,372 | **Source:** reddit/r/memes
 
 ---
 
-## Drop you best meme
-![Drop you best meme](20260424-010-drop-you-best-meme/image.jpg)
-**Score:** 176 | **Source:** reddit/r/memes
+## International memes
+![International memes](20260424-010-international-memes/image.jpg)
+**Score:** 57 | **Source:** reddit/r/dankmemes
 
 ---
 
-## It's like a hierarchy in here
-![It's like a hierarchy in here](20260424-011-its-like-a-hierarchy-in-here/image.jpg)
-**Score:** 80 | **Source:** reddit/r/memes
-
----
-
-## Now we mememaxxing
-![Now we mememaxxing](20260424-012-now-we-mememaxxing/image.jpg)
-**Score:** 746 | **Source:** reddit/r/dankmemes
-
----
-
-## Wild Thumbnail and Name for a Tax
-![Wild Thumbnail and Name for a Tax](20260424-013-wild-thumbnail-and-name-for-a-tax/image.jpg)
-**Score:** 51 | **Source:** reddit/r/memes
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260424-011-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 317 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260424-014-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+![I just want to play a wholesome dad and ](20260424-012-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
 **Score:** 9,075 | **Source:** reddit/r/memes
 
 ---
 
-## It's in the blood
-![It's in the blood](20260424-015-its-in-the-blood/image.jpg)
-**Score:** 278 | **Source:** reddit/r/dankmemes
+## every single night
+![every single night](20260424-013-every-single-night/image.jpg)
+**Score:** 213 | **Source:** reddit/r/memes
+
+---
+
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260424-014-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 79 | **Source:** reddit/r/dankmemes
+
+---
+
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260424-015-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 108 | **Source:** reddit/r/memes
+
+---
+
+## Wild Thumbnail and Name for a Tax
+![Wild Thumbnail and Name for a Tax](20260424-016-wild-thumbnail-and-name-for-a-tax/image.jpg)
+**Score:** 51 | **Source:** reddit/r/memes
+
+---
+
+## I've got my priorities straight!
+![I've got my priorities straight!](20260424-017-ive-got-my-priorities-straight/image.jpg)
+**Score:** 67 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Someone hold me
-![Someone hold me](20260424-016-someone-hold-me/image.jpg)
+![Someone hold me](20260424-018-someone-hold-me/image.jpg)
 **Score:** 167 | **Source:** reddit/r/memes
-
----
-
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260424-017-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,456 | **Source:** reddit/r/dankmemes
-
----
-
-## Are you sure
-![Are you sure](20260424-018-are-you-sure/image.jpg)
-**Score:** 86 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -118,8 +118,8 @@
 
 ---
 
-## International memes
-![International memes](20260424-020-international-memes/image.jpg)
-**Score:** 57 | **Source:** reddit/r/dankmemes
+## There goes another one
+![There goes another one](20260424-020-there-goes-another-one/image.jpg)
+**Score:** 93 | **Source:** reddit/r/dankmemes
 
 ---

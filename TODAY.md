@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-23 09:41
+# Meme Feed — 2026-04-23 09:50
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## U.S. Rep. David Scott (D-GA) has died at the age of 80. He was running for re-el
-![U.S. Rep. David Scott (D-GA) has died at](20260423-001-us-rep-david-scott-d-ga-has-died-at-the-/image.jpg)
-**Score:** 676 | **Source:** reddit/r/WhitePeopleTwitter
+## I hate how stupid everyone in this administration is
+![I hate how stupid everyone in this admin](20260423-001-i-hate-how-stupid-everyone-in-this-admin/image.jpg)
+**Score:** 693 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## Leave the whales alone
+![Leave the whales alone](20260423-002-leave-the-whales-alone/image.jpg)
+**Score:** 19,187 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## At this point, it may even be a genetic trait
-![At this point, it may even be a genetic ](20260423-002-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+![At this point, it may even be a genetic ](20260423-003-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
 **Score:** 7,020 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260423-003-another-reminder-of-were-not-a-cult/image.jpg)
+![Another reminder of 'We're not a cult."](20260423-004-another-reminder-of-were-not-a-cult/image.jpg)
 **Score:** 4,135 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260423-004-well-did-they-accept-or-not/image.jpg)
+![Well? Did they accept or not?](20260423-005-well-did-they-accept-or-not/image.jpg)
 **Score:** 831 | **Source:** reddit/r/facepalm
 
 ---
 
-## He didn't sound like much of anything in there
-![He didn't sound like much of anything in](20260423-005-he-didnt-sound-like-much-of-anything-in-/image.jpg)
-**Score:** 1,837 | **Source:** reddit/r/technicallythetruth
+## He did NOT dodge a bullet
+![He did NOT dodge a bullet](20260423-006-he-did-not-dodge-a-bullet/image.jpg)
+**Score:** 42,246 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260423-006-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 627 | **Source:** reddit/r/HolUp
+## You guys like my website?
+![You guys like my website?](20260423-007-you-guys-like-my-website/image.jpg)
+**Score:** 75 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260423-008-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 67 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## My local children's Emergency Department doesn't treat Testicular Pain
+![My local children's Emergency Department](20260423-009-my-local-childrens-emergency-department-/image.jpg)
+**Score:** 50 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## Darker and darker
+![Darker and darker](20260423-010-darker-and-darker/image.jpg)
+**Score:** 283 | **Source:** reddit/r/HolUp
 
 ---
 
 ## An augmented reality sandbox...
-![An augmented reality sandbox...](20260423-007-an-augmented-reality-sandbox/image.jpg)
+![An augmented reality sandbox...](20260423-011-an-augmented-reality-sandbox/image.jpg)
 **Score:** 606 | **Source:** reddit/r/HolUp
 
 ---
 
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260423-008-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 458 | **Source:** reddit/r/dankmemes
-
----
-
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260423-009-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 57 | **Source:** reddit/r/dankmemes
-
----
-
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260423-010-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 6,539 | **Source:** reddit/r/memes
-
----
-
-## Round 3, I guess.
-![Round 3, I guess.](20260423-011-round-3-i-guess/image.jpg)
-**Score:** 680 | **Source:** reddit/r/memes
-
----
-
-## Same same but different.
-![Same same but different.](20260423-012-same-same-but-different/image.jpg)
-**Score:** 95 | **Source:** reddit/r/dankmemes
-
----
-
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-013-send-nudes-its-safe/image.jpg)
-**Score:** 490 | **Source:** reddit/r/memes
-
----
-
-## what a wild ride
-![what a wild ride](20260423-014-what-a-wild-ride/image.jpg)
-**Score:** 2,987 | **Source:** reddit/r/dankmemes
-
----
-
-## Selling a limb for some DDR5
-![Selling a limb for some DDR5](20260423-015-selling-a-limb-for-some-ddr5/image.jpg)
-**Score:** 55 | **Source:** reddit/r/memes
-
----
-
-## There goes another one
-![There goes another one](20260423-016-there-goes-another-one/image.jpg)
-**Score:** 77 | **Source:** reddit/r/dankmemes
-
----
-
 ## Weird behavior
-![Weird behavior](20260423-017-weird-behavior/image.jpg)
+![Weird behavior](20260423-012-weird-behavior/image.jpg)
 **Score:** 102 | **Source:** reddit/r/dankmemes
 
 ---
 
-## That is the worst
-![That is the worst](20260423-018-that-is-the-worst/image.jpg)
-**Score:** 2,480 | **Source:** reddit/r/memes
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260423-013-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 99 | **Source:** reddit/r/dankmemes
+
+---
+
+## I'm from very old era, if you know you know
+![I'm from very old era, if you know you k](20260423-014-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+**Score:** 6,539 | **Source:** reddit/r/memes
+
+---
+
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260423-015-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,449 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## my virginity is safe(r)
-![my virginity is safe(r)](20260423-019-my-virginity-is-safer/image.jpg)
+![my virginity is safe(r)](20260423-016-my-virginity-is-safer/image.jpg)
 **Score:** 76 | **Source:** reddit/r/memes
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260423-020-dont-disturb-me/image.jpg)
-**Score:** 936 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260423-017-that-is-the-worst/image.jpg)
+**Score:** 2,480 | **Source:** reddit/r/memes
+
+---
+
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260423-018-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 57 | **Source:** reddit/r/dankmemes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260423-019-you-okay-babe/image.jpg)
+**Score:** 20,424 | **Source:** reddit/r/dankmemes
+
+---
+
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-020-send-nudes-its-safe/image.jpg)
+**Score:** 490 | **Source:** reddit/r/memes
 
 ---

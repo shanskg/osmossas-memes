@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-24 06:10
+# Meme Feed — 2026-04-24 06:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## We have to stop electing people this old. This is not okay. What are we doing?
-![We have to stop electing people this old](20260424-001-we-have-to-stop-electing-people-this-old/image.jpg)
-**Score:** 1,501 | **Source:** reddit/r/WhitePeopleTwitter
-
----
-
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260424-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,072 | **Source:** reddit/r/BlackPeopleTwitter
+## They have the self-awareness of a wet fart.
+![They have the self-awareness of a wet fa](20260424-001-they-have-the-self-awareness-of-a-wet-fa/image.jpg)
+**Score:** 7,816 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
 ## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260424-003-proximity-to-systematic-wealth-but-still/image.jpg)
+![Proximity to systematic wealth but still](20260424-002-proximity-to-systematic-wealth-but-still/image.jpg)
 **Score:** 10,404 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## skins vs skins
+![skins vs skins](20260424-003-skins-vs-skins/image.jpg)
+**Score:** 1,019 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -34,92 +34,92 @@
 
 ---
 
-## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
-![It's anthropomorphism because nature has](20260424-006-its-anthropomorphism-because-nature-has-/image.jpg)
-**Score:** 83 | **Source:** reddit/r/technicallythetruth
+## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
+![Oh Oracle, How Will I Die? Surrounded By](20260424-006-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
+**Score:** 3,933 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## It's easy to find a 1-step solution if the prior guesses weren't considered.
-![It's easy to find a 1-step solution if t](20260424-007-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
-**Score:** 2,403 | **Source:** reddit/r/technicallythetruth
+## Being shot with a depleted uranium bullet can't be good
+![Being shot with a depleted uranium bulle](20260424-007-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+**Score:** 502 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Dippers shadow in this episode of Gravity Falls
-![Dippers shadow in this episode of Gravit](20260424-008-dippers-shadow-in-this-episode-of-gravit/image.jpg)
-**Score:** 1,084 | **Source:** reddit/r/suspiciouslyspecific
+## geometry sus
+![geometry sus](20260424-008-geometry-sus/image.jpg)
+**Score:** 78 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## it’s everywhere
-![it’s everywhere](20260424-009-its-everywhere/image.jpg)
-**Score:** 100 | **Source:** reddit/r/suspiciouslyspecific
+## Wait what...
+![Wait what...](20260424-009-wait-what/image.jpg)
+**Score:** 611 | **Source:** reddit/r/HolUp
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260424-010-futabu-anyone/image.jpg)
-**Score:** 2,248 | **Source:** reddit/r/HolUp
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260424-010-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 635 | **Source:** reddit/r/HolUp
 
 ---
 
-## International memes
-![International memes](20260424-011-international-memes/image.jpg)
-**Score:** 57 | **Source:** reddit/r/dankmemes
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260424-011-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 77 | **Source:** reddit/r/dankmemes
 
 ---
 
-## How could I make noodles without it?
-![How could I make noodles without it?](20260424-012-how-could-i-make-noodles-without-it/image.jpg)
-**Score:** 3,085 | **Source:** reddit/r/memes
+## the worst thing you can do in the dad's car
+![the worst thing you can do in the dad's ](20260424-012-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
+**Score:** 70 | **Source:** reddit/r/memes
 
 ---
 
-## There goes another one
-![There goes another one](20260424-013-there-goes-another-one/image.jpg)
-**Score:** 93 | **Source:** reddit/r/dankmemes
+## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
+![Not a my opinion but based on recent com](20260424-013-not-a-my-opinion-but-based-on-recent-com/image.jpg)
+**Score:** 1,774 | **Source:** reddit/r/memes
 
 ---
 
-## I've got my priorities straight!
-![I've got my priorities straight!](20260424-014-ive-got-my-priorities-straight/image.jpg)
-**Score:** 67 | **Source:** reddit/r/dankmemes
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260424-014-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 9,104 | **Source:** reddit/r/memes
 
 ---
 
 ## Weird behavior
 ![Weird behavior](20260424-015-weird-behavior/image.jpg)
-**Score:** 107 | **Source:** reddit/r/dankmemes
+**Score:** 108 | **Source:** reddit/r/dankmemes
 
 ---
 
-## It's like a hierarchy in here
-![It's like a hierarchy in here](20260424-016-its-like-a-hierarchy-in-here/image.jpg)
-**Score:** 80 | **Source:** reddit/r/memes
+## That is the worst
+![That is the worst](20260424-016-that-is-the-worst/image.jpg)
+**Score:** 5,712 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
-![Not a my opinion but based on recent com](20260424-017-not-a-my-opinion-but-based-on-recent-com/image.jpg)
-**Score:** 1,670 | **Source:** reddit/r/memes
+## You Okay Babe?
+![You Okay Babe?](20260424-017-you-okay-babe/image.jpg)
+**Score:** 20,506 | **Source:** reddit/r/dankmemes
 
 ---
 
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260424-018-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 309 | **Source:** reddit/r/dankmemes
+## There goes another one
+![There goes another one](20260424-018-there-goes-another-one/image.jpg)
+**Score:** 90 | **Source:** reddit/r/dankmemes
 
 ---
 
-## the worst thing you can do in the dad's car
-![the worst thing you can do in the dad's ](20260424-019-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
-**Score:** 65 | **Source:** reddit/r/memes
+## Same same but different.
+![Same same but different.](20260424-019-same-same-but-different/image.jpg)
+**Score:** 1,367 | **Source:** reddit/r/dankmemes
 
 ---
 
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260424-020-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 2,885 | **Source:** reddit/r/dankmemes
+## every single night
+![every single night](20260424-020-every-single-night/image.jpg)
+**Score:** 222 | **Source:** reddit/r/memes
 
 ---

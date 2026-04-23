@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-23 17:51
+# Meme Feed — 2026-04-23 18:00
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
+## They have the self-awareness of a wet fart.
+![They have the self-awareness of a wet fa](20260423-001-they-have-the-self-awareness-of-a-wet-fa/image.jpg)
+**Score:** 7,218 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## At this point, it may even be a genetic trait
+![At this point, it may even be a genetic ](20260423-002-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+**Score:** 7,018 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
 ## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260423-001-proximity-to-systematic-wealth-but-still/image.jpg)
+![Proximity to systematic wealth but still](20260423-003-proximity-to-systematic-wealth-but-still/image.jpg)
 **Score:** 10,394 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-002-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,181 | **Source:** reddit/r/facepalm
-
----
-
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260423-003-well-did-they-accept-or-not/image.jpg)
+![Well? Did they accept or not?](20260423-004-well-did-they-accept-or-not/image.jpg)
 **Score:** 830 | **Source:** reddit/r/facepalm
 
 ---
 
-## Some inflation is good
-![Some inflation is good](20260423-004-some-inflation-is-good/image.jpg)
-**Score:** 15,683 | **Source:** reddit/r/technicallythetruth
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260423-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,181 | **Source:** reddit/r/facepalm
 
 ---
 
-## This is Loading. from among us
-![This is Loading. from among us](20260423-005-this-is-loading-from-among-us/image.jpg)
-**Score:** 112 | **Source:** reddit/r/suspiciouslyspecific
+## A shower is hot
+![A shower is hot](20260423-006-a-shower-is-hot/image.jpg)
+**Score:** 318 | **Source:** reddit/r/technicallythetruth
+
+---
+
+## Being shot with a depleted uranium bullet can't be good
+![Being shot with a depleted uranium bulle](20260423-007-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+**Score:** 506 | **Source:** reddit/r/technicallythetruth
 
 ---
 
 ## Among us irl 🤯
-![Among us irl 🤯](20260423-006-among-us-irl/image.jpg)
+![Among us irl 🤯](20260423-008-among-us-irl/image.jpg)
 **Score:** 238 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Don't do that
-![Don't do that](20260423-007-dont-do-that/image.jpg)
-**Score:** 333 | **Source:** reddit/r/oddlyspecific
+## My friend sent me this photo
+![My friend sent me this photo](20260423-009-my-friend-sent-me-this-photo/image.jpg)
+**Score:** 839 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Darker and darker
-![Darker and darker](20260423-008-darker-and-darker/image.jpg)
-**Score:** 287 | **Source:** reddit/r/HolUp
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260423-010-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 398 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260423-009-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,446 | **Source:** reddit/r/dankmemes
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260423-011-an-augmented-reality-sandbox/image.jpg)
+**Score:** 604 | **Source:** reddit/r/HolUp
 
 ---
 
-## 5G human radar
-![5G human radar](20260423-010-5g-human-radar/image.jpg)
-**Score:** 2,411 | **Source:** reddit/r/memes
-
----
-
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-011-send-nudes-its-safe/image.jpg)
-**Score:** 617 | **Source:** reddit/r/memes
-
----
-
-## That is the worst
-![That is the worst](20260423-012-that-is-the-worst/image.jpg)
-**Score:** 3,266 | **Source:** reddit/r/dankmemes
-
----
-
-## r/bald in a nutshell
-![r/bald in a nutshell](20260423-013-rbald-in-a-nutshell/image.jpg)
-**Score:** 7,677 | **Source:** reddit/r/memes
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260423-012-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 314 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Weird behavior
-![Weird behavior](20260423-014-weird-behavior/image.jpg)
+![Weird behavior](20260423-013-weird-behavior/image.jpg)
 **Score:** 106 | **Source:** reddit/r/dankmemes
 
 ---
 
-## That is the worst
-![That is the worst](20260423-015-that-is-the-worst/image.jpg)
-**Score:** 10,169 | **Source:** reddit/r/memes
-
----
-
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260423-016-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 68 | **Source:** reddit/r/dankmemes
-
----
-
 ## Clankers ruin it once again
-![Clankers ruin it once again](20260423-017-clankers-ruin-it-once-again/image.jpg)
+![Clankers ruin it once again](20260423-014-clankers-ruin-it-once-again/image.jpg)
 **Score:** 398 | **Source:** reddit/r/dankmemes
 
 ---
 
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260423-018-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 1,232 | **Source:** reddit/r/dankmemes
+## 5G human radar
+![5G human radar](20260423-015-5g-human-radar/image.jpg)
+**Score:** 2,411 | **Source:** reddit/r/memes
+
+---
+
+## Now we mememaxxing
+![Now we mememaxxing](20260423-016-now-we-mememaxxing/image.jpg)
+**Score:** 742 | **Source:** reddit/r/dankmemes
+
+---
+
+## There goes another one
+![There goes another one](20260423-017-there-goes-another-one/image.jpg)
+**Score:** 84 | **Source:** reddit/r/dankmemes
+
+---
+
+## r/bald in a nutshell
+![r/bald in a nutshell](20260423-018-rbald-in-a-nutshell/image.jpg)
+**Score:** 7,677 | **Source:** reddit/r/memes
+
+---
+
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-019-send-nudes-its-safe/image.jpg)
+**Score:** 617 | **Source:** reddit/r/memes
 
 ---
 
 ## Same same but different.
-![Same same but different.](20260423-019-same-same-but-different/image.jpg)
+![Same same but different.](20260423-020-same-same-but-different/image.jpg)
 **Score:** 498 | **Source:** reddit/r/dankmemes
-
----
-
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260423-020-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 126 | **Source:** reddit/r/dankmemes
 
 ---

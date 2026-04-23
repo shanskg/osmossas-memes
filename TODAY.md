@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-24 06:51
+# Meme Feed — 2026-04-24 07:01
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## It's funny and not funny because it's true.
-![It's funny and not funny because it's tr](20260424-001-its-funny-and-not-funny-because-its-true/image.jpg)
-**Score:** 2,740 | **Source:** reddit/r/WhitePeopleTwitter
+## Leave the whales alone
+![Leave the whales alone](20260424-001-leave-the-whales-alone/image.jpg)
+**Score:** 19,182 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260424-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,407 | **Source:** reddit/r/BlackPeopleTwitter
+## skins vs skins
+![skins vs skins](20260424-002-skins-vs-skins/image.jpg)
+**Score:** 1,013 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -22,57 +22,57 @@
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260424-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,359 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260424-004-well-did-they-accept-or-not/image.jpg)
+**Score:** 832 | **Source:** reddit/r/facepalm
 
 ---
 
-## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
-![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260424-005-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
-**Score:** 1,279 | **Source:** reddit/r/technicallythetruth
+## outperforming the inflation rate
+![outperforming the inflation rate](20260424-005-outperforming-the-inflation-rate/image.jpg)
+**Score:** 65,038 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260424-006-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 71 | **Source:** reddit/r/oddlyspecific
+## To be fair an Avocado is just Guacamole in ball form.
+![To be fair an Avocado is just Guacamole ](20260424-006-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
+**Score:** 10,072 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260424-007-you-okay-babe/image.jpg)
-**Score:** 20,506 | **Source:** reddit/r/dankmemes
+## This is Loading. from among us
+![This is Loading. from among us](20260424-007-this-is-loading-from-among-us/image.jpg)
+**Score:** 108 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## That is the worst
-![That is the worst](20260424-008-that-is-the-worst/image.jpg)
-**Score:** 5,712 | **Source:** reddit/r/dankmemes
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260424-008-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 404 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260424-009-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 312 | **Source:** reddit/r/dankmemes
+## Don't do that
+![Don't do that](20260424-009-dont-do-that/image.jpg)
+**Score:** 343 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
-![Not a my opinion but based on recent com](20260424-010-not-a-my-opinion-but-based-on-recent-com/image.jpg)
-**Score:** 1,774 | **Source:** reddit/r/memes
+## AI is everywhere
+![AI is everywhere](20260424-010-ai-is-everywhere/image.jpg)
+**Score:** 962 | **Source:** reddit/r/HolUp
 
 ---
 
-## There goes another one
-![There goes another one](20260424-011-there-goes-another-one/image.jpg)
-**Score:** 90 | **Source:** reddit/r/dankmemes
+## Wait what...
+![Wait what...](20260424-011-wait-what/image.jpg)
+**Score:** 611 | **Source:** reddit/r/HolUp
 
 ---
 
-## Same same but different.
-![Same same but different.](20260424-012-same-same-but-different/image.jpg)
-**Score:** 1,367 | **Source:** reddit/r/dankmemes
+## International memes
+![International memes](20260424-012-international-memes/image.jpg)
+**Score:** 59 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -88,38 +88,38 @@
 
 ---
 
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260424-015-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 9,104 | **Source:** reddit/r/memes
-
----
-
-## Are you sure
-![Are you sure](20260424-016-are-you-sure/image.jpg)
-**Score:** 89 | **Source:** reddit/r/dankmemes
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260424-015-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 312 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Weird behavior
-![Weird behavior](20260424-017-weird-behavior/image.jpg)
+![Weird behavior](20260424-016-weird-behavior/image.jpg)
 **Score:** 108 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260424-018-lets-go-im-safe/image.jpg)
-**Score:** 1,059 | **Source:** reddit/r/dankmemes
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260424-017-fatherhood-baaaaad/image.jpg)
+**Score:** 2,316 | **Source:** reddit/r/dankmemes
 
 ---
 
-## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260424-019-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
-**Score:** 532 | **Source:** reddit/r/memes
+## There goes another one
+![There goes another one](20260424-018-there-goes-another-one/image.jpg)
+**Score:** 90 | **Source:** reddit/r/dankmemes
 
 ---
 
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260424-020-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 318 | **Source:** reddit/r/dankmemes
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260424-019-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,077 | **Source:** reddit/r/dankmemes
+
+---
+
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260424-020-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 9,104 | **Source:** reddit/r/memes
 
 ---

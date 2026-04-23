@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-23 10:22
+# Meme Feed — 2026-04-23 10:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## He's really on top
-![He's really on top](20260423-001-hes-really-on-top/image.jpg)
-**Score:** 1,928 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260423-001-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,404 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260423-002-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,366 | **Source:** reddit/r/facepalm
+## skins vs skins
+![skins vs skins](20260423-002-skins-vs-skins/image.jpg)
+**Score:** 1,014 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -22,87 +22,87 @@
 
 ---
 
-## Guess what game this is (hint it has among us in the name)
-![Guess what game this is (hint it has amo](20260423-004-guess-what-game-this-is-hint-it-has-amon/image.jpg)
-**Score:** 160 | **Source:** reddit/r/suspiciouslyspecific
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260423-004-well-did-they-accept-or-not/image.jpg)
+**Score:** 831 | **Source:** reddit/r/facepalm
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260423-005-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 627 | **Source:** reddit/r/HolUp
+## The perfect combination of heading and Reddit mobile jank
+![The perfect combination of heading and R](20260423-005-the-perfect-combination-of-heading-and-r/image.jpg)
+**Score:** 232 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260423-006-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,330 | **Source:** reddit/r/HolUp
+## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
+![Oh Oracle, How Will I Die? Surrounded By](20260423-006-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
+**Score:** 3,924 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Clankers ruin it once again
-![Clankers ruin it once again](20260423-007-clankers-ruin-it-once-again/image.jpg)
-**Score:** 392 | **Source:** reddit/r/dankmemes
+## When the sausages are sus
+![When the sausages are sus](20260423-007-when-the-sausages-are-sus/image.jpg)
+**Score:** 103 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260423-008-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 391 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## Futabu anyone ???
+![Futabu anyone ???](20260423-009-futabu-anyone/image.jpg)
+**Score:** 2,143 | **Source:** reddit/r/HolUp
+
+---
+
+## Now we mememaxxing
+![Now we mememaxxing](20260423-010-now-we-mememaxxing/image.jpg)
+**Score:** 735 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## That is the worst
-![That is the worst](20260423-008-that-is-the-worst/image.jpg)
-**Score:** 4,422 | **Source:** reddit/r/memes
-
----
-
-## It's in the blood
-![It's in the blood](20260423-009-its-in-the-blood/image.jpg)
-**Score:** 267 | **Source:** reddit/r/dankmemes
-
----
-
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260423-010-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 313 | **Source:** reddit/r/dankmemes
-
----
-
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260423-011-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 60 | **Source:** reddit/r/dankmemes
-
----
-
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260423-012-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 293 | **Source:** reddit/r/dankmemes
-
----
-
-## Same same but different.
-![Same same but different.](20260423-013-same-same-but-different/image.jpg)
-**Score:** 173 | **Source:** reddit/r/dankmemes
+![That is the worst](20260423-011-that-is-the-worst/image.jpg)
+**Score:** 1,495 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Must be some big hands
-![Must be some big hands](20260423-014-must-be-some-big-hands/image.jpg)
+![Must be some big hands](20260423-012-must-be-some-big-hands/image.jpg)
 **Score:** 50 | **Source:** reddit/r/memes
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260423-015-lets-go-im-safe/image.jpg)
-**Score:** 889 | **Source:** reddit/r/dankmemes
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260423-013-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 293 | **Source:** reddit/r/dankmemes
+
+---
+
+## That is the worst
+![That is the worst](20260423-014-that-is-the-worst/image.jpg)
+**Score:** 4,422 | **Source:** reddit/r/memes
 
 ---
 
 ## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-016-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+![I just want to play a wholesome dad and ](20260423-015-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
 **Score:** 6,734 | **Source:** reddit/r/memes
 
 ---
 
-## what a wild ride
-![what a wild ride](20260423-017-what-a-wild-ride/image.jpg)
-**Score:** 2,989 | **Source:** reddit/r/dankmemes
+## Who am i to judge.
+![Who am i to judge.](20260423-016-who-am-i-to-judge/image.jpg)
+**Score:** 729 | **Source:** reddit/r/dankmemes
+
+---
+
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260423-017-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 60 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -112,14 +112,14 @@
 
 ---
 
-## He is really concerned.
-![He is really concerned.](20260423-019-he-is-really-concerned/image.jpg)
-**Score:** 64 | **Source:** reddit/r/dankmemes
+## what a wild ride
+![what a wild ride](20260423-019-what-a-wild-ride/image.jpg)
+**Score:** 2,989 | **Source:** reddit/r/dankmemes
 
 ---
 
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260423-020-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 564 | **Source:** reddit/r/dankmemes
+## Don't disturb me
+![Don't disturb me](20260423-020-dont-disturb-me/image.jpg)
+**Score:** 944 | **Source:** reddit/r/dankmemes
 
 ---

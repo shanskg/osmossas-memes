@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-23 19:40
+# Meme Feed — 2026-04-23 19:50
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## He's really on top
-![He's really on top](20260423-001-hes-really-on-top/image.jpg)
-**Score:** 1,933 | **Source:** reddit/r/BlackPeopleTwitter
+## Pweae a job!!
+![Pweae a job!!](20260423-001-pweae-a-job/image.jpg)
+**Score:** 88 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260423-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,409 | **Source:** reddit/r/BlackPeopleTwitter
+## skins vs skins
+![skins vs skins](20260423-002-skins-vs-skins/image.jpg)
+**Score:** 1,013 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260423-003-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,139 | **Source:** reddit/r/facepalm
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260423-003-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 3,025 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260423-004-well-did-they-accept-or-not/image.jpg)
+**Score:** 830 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260423-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260423-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,367 | **Source:** reddit/r/facepalm
 
 ---
 
-## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
-![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260423-005-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
-**Score:** 10,478 | **Source:** reddit/r/technicallythetruth
+## Being shot with a depleted uranium bullet can't be good
+![Being shot with a depleted uranium bulle](20260423-006-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+**Score:** 499 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260423-006-i-just-opened-youtube/image.jpg)
-**Score:** 8,974 | **Source:** reddit/r/technicallythetruth
+## Super rich or bus driver?
+![Super rich or bus driver?](20260423-007-super-rich-or-bus-driver/image.jpg)
+**Score:** 31,012 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260423-007-brother-what-even-are-these-polls/image.jpg)
-**Score:** 52 | **Source:** reddit/r/oddlyspecific
+## Look at this track in F-zero (1991, SNES)
+![Look at this track in F-zero (1991, SNES](20260423-008-look-at-this-track-in-f-zero-1991-snes/image.jpg)
+**Score:** 69 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260423-008-an-augmented-reality-sandbox/image.jpg)
-**Score:** 607 | **Source:** reddit/r/HolUp
+## SUStainable Copper
+![SUStainable Copper](20260423-009-sustainable-copper/image.jpg)
+**Score:** 258 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260423-010-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 67 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## Wait what...
-![Wait what...](20260423-009-wait-what/image.jpg)
+![Wait what...](20260423-011-wait-what/image.jpg)
 **Score:** 609 | **Source:** reddit/r/HolUp
 
 ---
 
-## Now we mememaxxing
-![Now we mememaxxing](20260423-010-now-we-mememaxxing/image.jpg)
-**Score:** 738 | **Source:** reddit/r/dankmemes
+## I've got my priorities straight!
+![I've got my priorities straight!](20260423-012-ive-got-my-priorities-straight/image.jpg)
+**Score:** 59 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-011-send-nudes-its-safe/image.jpg)
-**Score:** 623 | **Source:** reddit/r/memes
+## Lets go im safe
+![Lets go im safe](20260423-013-lets-go-im-safe/image.jpg)
+**Score:** 1,014 | **Source:** reddit/r/dankmemes
 
 ---
 
-## 5G human radar
-![5G human radar](20260423-012-5g-human-radar/image.jpg)
-**Score:** 2,650 | **Source:** reddit/r/memes
+## It's in the blood
+![It's in the blood](20260423-014-its-in-the-blood/image.jpg)
+**Score:** 269 | **Source:** reddit/r/dankmemes
+
+---
+
+## r/bald in a nutshell
+![r/bald in a nutshell](20260423-015-rbald-in-a-nutshell/image.jpg)
+**Score:** 7,692 | **Source:** reddit/r/memes
+
+---
+
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260423-016-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 131 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## That is the worst
-![That is the worst](20260423-013-that-is-the-worst/image.jpg)
-**Score:** 11,532 | **Source:** reddit/r/memes
+![That is the worst](20260423-017-that-is-the-worst/image.jpg)
+**Score:** 3,792 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Someone hold me
-![Someone hold me](20260423-014-someone-hold-me/image.jpg)
-**Score:** 132 | **Source:** reddit/r/memes
+## Same same but different.
+![Same same but different.](20260423-018-same-same-but-different/image.jpg)
+**Score:** 661 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Selling a limb for some DDR5
-![Selling a limb for some DDR5](20260423-015-selling-a-limb-for-some-ddr5/image.jpg)
-**Score:** 66 | **Source:** reddit/r/memes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260423-016-dont-disturb-me/image.jpg)
-**Score:** 977 | **Source:** reddit/r/dankmemes
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260423-019-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 69 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## every single night
-![every single night](20260423-017-every-single-night/image.jpg)
+![every single night](20260423-020-every-single-night/image.jpg)
 **Score:** 126 | **Source:** reddit/r/memes
-
----
-
-## Is this possible?
-![Is this possible?](20260423-018-is-this-possible/image.jpg)
-**Score:** 1,046 | **Source:** reddit/r/memes
-
----
-
-## *deeply inhales smog*
-![*deeply inhales smog*](20260423-019-deeply-inhales-smog/image.jpg)
-**Score:** 2,609 | **Source:** reddit/r/memes
-
----
-
-## Clankers ruin it once again
-![Clankers ruin it once again](20260423-020-clankers-ruin-it-once-again/image.jpg)
-**Score:** 397 | **Source:** reddit/r/dankmemes
 
 ---

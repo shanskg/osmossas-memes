@@ -1,59 +1,53 @@
-# Meme Feed — 2026-04-24 00:40
+# Meme Feed — 2026-04-24 00:50
 
-**Total:** 9 memes | Refresh every 10 min
+**Total:** 8 memes | Refresh every 10 min
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260424-001-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,144 | **Source:** reddit/r/facepalm
+## Interesting...
+![Interesting...](20260424-001-interesting/image.jpg)
+**Score:** 4,465 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## Leave the whales alone
+![Leave the whales alone](20260424-002-leave-the-whales-alone/image.jpg)
+**Score:** 19,176 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260424-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,070 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260424-002-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260424-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,364 | **Source:** reddit/r/facepalm
 
 ---
 
-## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
-![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260424-003-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
-**Score:** 10,759 | **Source:** reddit/r/technicallythetruth
+## Super rich or bus driver?
+![Super rich or bus driver?](20260424-005-super-rich-or-bus-driver/image.jpg)
+**Score:** 31,004 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260424-004-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,066 | **Source:** reddit/r/technicallythetruth
+## Dippers shadow in this episode of Gravity Falls
+![Dippers shadow in this episode of Gravit](20260424-006-dippers-shadow-in-this-episode-of-gravit/image.jpg)
+**Score:** 1,088 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260424-005-brother-what-even-are-these-polls/image.jpg)
-**Score:** 91 | **Source:** reddit/r/oddlyspecific
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260424-007-an-augmented-reality-sandbox/image.jpg)
+**Score:** 603 | **Source:** reddit/r/HolUp
 
 ---
 
-## Darker and darker
-![Darker and darker](20260424-006-darker-and-darker/image.jpg)
-**Score:** 281 | **Source:** reddit/r/HolUp
-
----
-
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260424-007-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 137 | **Source:** reddit/r/dankmemes
-
----
-
-## It's like a hierarchy in here
-![It's like a hierarchy in here](20260424-008-its-like-a-hierarchy-in-here/image.jpg)
-**Score:** 60 | **Source:** reddit/r/memes
-
----
-
-## How could I make noodles without it?
-![How could I make noodles without it?](20260424-009-how-could-i-make-noodles-without-it/image.jpg)
-**Score:** 2,537 | **Source:** reddit/r/memes
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260424-008-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 2,503 | **Source:** reddit/r/dankmemes
 
 ---

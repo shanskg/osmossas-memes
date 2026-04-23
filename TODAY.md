@@ -1,48 +1,48 @@
-# Meme Feed — 2026-04-23 08:20
+# Meme Feed — 2026-04-23 08:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260423-001-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,512 | **Source:** reddit/r/BlackPeopleTwitter
+## Counter terrorists win
+![Counter terrorists win](20260423-001-counter-terrorists-win/image.jpg)
+**Score:** 6,327 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-002-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,179 | **Source:** reddit/r/facepalm
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260423-002-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,380 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260423-003-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,144 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260423-003-well-did-they-accept-or-not/image.jpg)
+![Well? Did they accept or not?](20260423-004-well-did-they-accept-or-not/image.jpg)
 **Score:** 832 | **Source:** reddit/r/facepalm
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260423-004-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,066 | **Source:** reddit/r/technicallythetruth
+## Some inflation is good
+![Some inflation is good](20260423-005-some-inflation-is-good/image.jpg)
+**Score:** 15,680 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The detective didn't find it
-![The detective didn't find it](20260423-005-the-detective-didnt-find-it/image.jpg)
-**Score:** 33,781 | **Source:** reddit/r/technicallythetruth
+## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
+![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260423-006-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
+**Score:** 1,093 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## geometry sus
-![geometry sus](20260423-006-geometry-sus/image.jpg)
-**Score:** 78 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## Rest in piss
-![Rest in piss](20260423-007-rest-in-piss/image.jpg)
-**Score:** 398 | **Source:** reddit/r/suspiciouslyspecific
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260423-007-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 391 | **Source:** reddit/r/oddlyspecific
 
 ---
 
@@ -52,74 +52,74 @@
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260423-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 628 | **Source:** reddit/r/HolUp
-
----
-
-## Futabu anyone ???
-![Futabu anyone ???](20260423-010-futabu-anyone/image.jpg)
-**Score:** 2,131 | **Source:** reddit/r/HolUp
-
----
-
-## Who am i to judge.
-![Who am i to judge.](20260423-011-who-am-i-to-judge/image.jpg)
-**Score:** 456 | **Source:** reddit/r/dankmemes
-
----
-
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-012-send-nudes-its-safe/image.jpg)
-**Score:** 490 | **Source:** reddit/r/memes
-
----
-
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260423-013-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 99 | **Source:** reddit/r/dankmemes
-
----
-
-## That is the worst
-![That is the worst](20260423-014-that-is-the-worst/image.jpg)
-**Score:** 2,480 | **Source:** reddit/r/memes
-
----
-
-## Round 3, I guess.
-![Round 3, I guess.](20260423-015-round-3-i-guess/image.jpg)
-**Score:** 680 | **Source:** reddit/r/memes
-
----
-
-## Weird behavior
-![Weird behavior](20260423-016-weird-behavior/image.jpg)
-**Score:** 102 | **Source:** reddit/r/dankmemes
-
----
-
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260423-017-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 289 | **Source:** reddit/r/dankmemes
-
----
-
 ## Same same but different.
-![Same same but different.](20260423-018-same-same-but-different/image.jpg)
+![Same same but different.](20260423-009-same-same-but-different/image.jpg)
 **Score:** 95 | **Source:** reddit/r/dankmemes
 
 ---
 
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260423-019-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 458 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260423-010-that-is-the-worst/image.jpg)
+**Score:** 2,480 | **Source:** reddit/r/memes
+
+---
+
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-011-send-nudes-its-safe/image.jpg)
+**Score:** 490 | **Source:** reddit/r/memes
 
 ---
 
 ## Selling a limb for some DDR5
-![Selling a limb for some DDR5](20260423-020-selling-a-limb-for-some-ddr5/image.jpg)
+![Selling a limb for some DDR5](20260423-012-selling-a-limb-for-some-ddr5/image.jpg)
 **Score:** 55 | **Source:** reddit/r/memes
+
+---
+
+## Lets go im safe
+![Lets go im safe](20260423-013-lets-go-im-safe/image.jpg)
+**Score:** 813 | **Source:** reddit/r/dankmemes
+
+---
+
+## my virginity is safe(r)
+![my virginity is safe(r)](20260423-014-my-virginity-is-safer/image.jpg)
+**Score:** 76 | **Source:** reddit/r/memes
+
+---
+
+## I'm from very old era, if you know you know
+![I'm from very old era, if you know you k](20260423-015-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+**Score:** 6,539 | **Source:** reddit/r/memes
+
+---
+
+## Now we mememaxxing
+![Now we mememaxxing](20260423-016-now-we-mememaxxing/image.jpg)
+**Score:** 735 | **Source:** reddit/r/dankmemes
+
+---
+
+## Round 3, I guess.
+![Round 3, I guess.](20260423-017-round-3-i-guess/image.jpg)
+**Score:** 680 | **Source:** reddit/r/memes
+
+---
+
+## It's in the blood
+![It's in the blood](20260423-018-its-in-the-blood/image.jpg)
+**Score:** 262 | **Source:** reddit/r/dankmemes
+
+---
+
+## Clankers ruin it once again
+![Clankers ruin it once again](20260423-019-clankers-ruin-it-once-again/image.jpg)
+**Score:** 393 | **Source:** reddit/r/dankmemes
+
+---
+
+## That is the worst
+![That is the worst](20260423-020-that-is-the-worst/image.jpg)
+**Score:** 1,015 | **Source:** reddit/r/dankmemes
 
 ---

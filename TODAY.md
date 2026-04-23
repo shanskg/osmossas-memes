@@ -1,72 +1,72 @@
-# Meme Feed — 2026-04-23 18:50
+# Meme Feed — 2026-04-23 19:00
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260423-001-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,067 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260423-002-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,389 | **Source:** reddit/r/BlackPeopleTwitter
+## skins vs skins
+![skins vs skins](20260423-001-skins-vs-skins/image.jpg)
+**Score:** 1,013 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260423-003-well-did-they-accept-or-not/image.jpg)
+![Well? Did they accept or not?](20260423-002-well-did-they-accept-or-not/image.jpg)
 **Score:** 830 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260423-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,181 | **Source:** reddit/r/facepalm
 
 ---
 
-## 125 per hour in Oregon
-![125 per hour in Oregon](20260423-005-125-per-hour-in-oregon/image.jpg)
-**Score:** 12,641 | **Source:** reddit/r/technicallythetruth
+## The perfect combination of heading and Reddit mobile jank
+![The perfect combination of heading and R](20260423-004-the-perfect-combination-of-heading-and-r/image.jpg)
+**Score:** 233 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Rest in piss
-![Rest in piss](20260423-006-rest-in-piss/image.jpg)
-**Score:** 403 | **Source:** reddit/r/suspiciouslyspecific
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260423-005-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,403 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Among us irl 🤯
-![Among us irl 🤯](20260423-007-among-us-irl/image.jpg)
-**Score:** 234 | **Source:** reddit/r/suspiciouslyspecific
+## among oose
+![among oose](20260423-006-among-oose/image.jpg)
+**Score:** 520 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Wait what...
-![Wait what...](20260423-008-wait-what/image.jpg)
-**Score:** 604 | **Source:** reddit/r/HolUp
+## Among cells
+![Among cells](20260423-007-among-cells/image.jpg)
+**Score:** 802 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260423-009-lets-go-im-safe/image.jpg)
-**Score:** 1,014 | **Source:** reddit/r/dankmemes
+## Don't do that
+![Don't do that](20260423-008-dont-do-that/image.jpg)
+**Score:** 336 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## That is the worst
-![That is the worst](20260423-010-that-is-the-worst/image.jpg)
-**Score:** 11,532 | **Source:** reddit/r/memes
+## AI is everywhere
+![AI is everywhere](20260423-009-ai-is-everywhere/image.jpg)
+**Score:** 929 | **Source:** reddit/r/HolUp
 
 ---
 
-## Clankers ruin it once again
-![Clankers ruin it once again](20260423-011-clankers-ruin-it-once-again/image.jpg)
-**Score:** 397 | **Source:** reddit/r/dankmemes
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260423-010-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,448 | **Source:** reddit/r/dankmemes
+
+---
+
+## How could I make noodles without it?
+![How could I make noodles without it?](20260423-011-how-could-i-make-noodles-without-it/image.jpg)
+**Score:** 801 | **Source:** reddit/r/memes
 
 ---
 
@@ -76,50 +76,50 @@
 
 ---
 
+## Same same but different.
+![Same same but different.](20260423-013-same-same-but-different/image.jpg)
+**Score:** 661 | **Source:** reddit/r/dankmemes
+
+---
+
+## Lets go im safe
+![Lets go im safe](20260423-014-lets-go-im-safe/image.jpg)
+**Score:** 1,014 | **Source:** reddit/r/dankmemes
+
+---
+
 ## r/bald in a nutshell
-![r/bald in a nutshell](20260423-013-rbald-in-a-nutshell/image.jpg)
+![r/bald in a nutshell](20260423-015-rbald-in-a-nutshell/image.jpg)
 **Score:** 7,692 | **Source:** reddit/r/memes
 
 ---
 
-## Selling a limb for some DDR5
-![Selling a limb for some DDR5](20260423-014-selling-a-limb-for-some-ddr5/image.jpg)
-**Score:** 66 | **Source:** reddit/r/memes
-
----
-
 ## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-015-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+![I just want to play a wholesome dad and ](20260423-016-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
 **Score:** 8,515 | **Source:** reddit/r/memes
 
 ---
 
-## Someone hold me
-![Someone hold me](20260423-016-someone-hold-me/image.jpg)
-**Score:** 132 | **Source:** reddit/r/memes
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260423-017-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 131 | **Source:** reddit/r/dankmemes
 
 ---
 
-## There goes another one
-![There goes another one](20260423-017-there-goes-another-one/image.jpg)
-**Score:** 84 | **Source:** reddit/r/dankmemes
+## *deeply inhales smog*
+![*deeply inhales smog*](20260423-018-deeply-inhales-smog/image.jpg)
+**Score:** 2,609 | **Source:** reddit/r/memes
 
 ---
 
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-018-send-nudes-its-safe/image.jpg)
-**Score:** 623 | **Source:** reddit/r/memes
+## every single night
+![every single night](20260423-019-every-single-night/image.jpg)
+**Score:** 126 | **Source:** reddit/r/memes
 
 ---
 
-## Weird behavior
-![Weird behavior](20260423-019-weird-behavior/image.jpg)
-**Score:** 105 | **Source:** reddit/r/dankmemes
-
----
-
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260423-020-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 304 | **Source:** reddit/r/dankmemes
+## that took a turn real quick
+![that took a turn real quick](20260423-020-that-took-a-turn-real-quick/image.jpg)
+**Score:** 788 | **Source:** reddit/r/memes
 
 ---

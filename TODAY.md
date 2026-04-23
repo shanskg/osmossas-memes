@@ -1,77 +1,65 @@
-# Meme Feed — 2026-04-23 22:10
+# Meme Feed — 2026-04-23 22:20
 
-**Total:** 12 memes | Refresh every 10 min
-
----
-
-## "You should take our word for it." Because your 'word' has proven reliable soooo
-!["You should take our word for it." Becau](20260423-001-you-should-take-our-word-for-it-because-/image.jpg)
-**Score:** 118 | **Source:** reddit/r/WhitePeopleTwitter
+**Total:** 10 memes | Refresh every 10 min
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260423-002-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,610 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260423-003-well-did-they-accept-or-not/image.jpg)
-**Score:** 829 | **Source:** reddit/r/facepalm
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260423-001-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,404 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260423-002-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,181 | **Source:** reddit/r/facepalm
 
 ---
 
-## 125 per hour in Oregon
-![125 per hour in Oregon](20260423-005-125-per-hour-in-oregon/image.jpg)
-**Score:** 12,636 | **Source:** reddit/r/technicallythetruth
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260423-003-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,144 | **Source:** reddit/r/facepalm
 
 ---
 
-## My 7 year old would love to know what others think of his drawing! Sus?
-![My 7 year old would love to know what ot](20260423-006-my-7-year-old-would-love-to-know-what-ot/image.jpg)
-**Score:** 1,251 | **Source:** reddit/r/suspiciouslyspecific
+## Being shot with a depleted uranium bullet can't be good
+![Being shot with a depleted uranium bulle](20260423-004-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+**Score:** 504 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS 
-![GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS ](20260423-007-guys-guys-guys-guys-guys-guys-guys-guys-/image.jpg)
-**Score:** 313 | **Source:** reddit/r/suspiciouslyspecific
+## It may appear to be anime, but if you take a closer look
+![It may appear to be anime, but if you ta](20260423-005-it-may-appear-to-be-anime-but-if-you-tak/image.jpg)
+**Score:** 385 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260423-008-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 396 | **Source:** reddit/r/oddlyspecific
+## AI is everywhere
+![AI is everywhere](20260423-006-ai-is-everywhere/image.jpg)
+**Score:** 939 | **Source:** reddit/r/HolUp
 
 ---
 
-## Darker and darker
-![Darker and darker](20260423-009-darker-and-darker/image.jpg)
-**Score:** 285 | **Source:** reddit/r/HolUp
+## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
+![Not a my opinion but based on recent com](20260423-007-not-a-my-opinion-but-based-on-recent-com/image.jpg)
+**Score:** 1,049 | **Source:** reddit/r/memes
+
+---
+
+## every single night
+![every single night](20260423-008-every-single-night/image.jpg)
+**Score:** 168 | **Source:** reddit/r/memes
+
+---
+
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260423-009-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 8,890 | **Source:** reddit/r/memes
 
 ---
 
 ## Send nudes. It's safe
 ![Send nudes. It's safe](20260423-010-send-nudes-its-safe/image.jpg)
-**Score:** 627 | **Source:** reddit/r/memes
-
----
-
-## You Okay Babe?
-![You Okay Babe?](20260423-011-you-okay-babe/image.jpg)
-**Score:** 20,483 | **Source:** reddit/r/dankmemes
-
----
-
-## Weird behavior
-![Weird behavior](20260423-012-weird-behavior/image.jpg)
-**Score:** 106 | **Source:** reddit/r/dankmemes
+**Score:** 629 | **Source:** reddit/r/memes
 
 ---

@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-23 20:21
+# Meme Feed — 2026-04-23 20:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## It's funny and not funny because it's true.
-![It's funny and not funny because it's tr](20260423-001-its-funny-and-not-funny-because-its-true/image.jpg)
-**Score:** 679 | **Source:** reddit/r/WhitePeopleTwitter
+## We have to stop electing people this old. This is not okay. What are we doing?
+![We have to stop electing people this old](20260423-001-we-have-to-stop-electing-people-this-old/image.jpg)
+**Score:** 1,424 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Navy Secretary leaving in the MIDDLE OF A WAR? Clown show.
-![Navy Secretary leaving in the MIDDLE OF ](20260423-002-navy-secretary-leaving-in-the-middle-of-/image.jpg)
-**Score:** 112 | **Source:** reddit/r/WhitePeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260423-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 3,247 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -22,104 +22,104 @@
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260423-004-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,604 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260423-005-well-did-they-accept-or-not/image.jpg)
-**Score:** 830 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260423-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,367 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-006-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260423-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,173 | **Source:** reddit/r/facepalm
 
 ---
 
-## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
-![It's anthropomorphism because nature has](20260423-007-its-anthropomorphism-because-nature-has-/image.jpg)
-**Score:** 70 | **Source:** reddit/r/technicallythetruth
+## The perfect combination of heading and Reddit mobile jank
+![The perfect combination of heading and R](20260423-006-the-perfect-combination-of-heading-and-r/image.jpg)
+**Score:** 230 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## He didn't sound like much of anything in there
-![He didn't sound like much of anything in](20260423-008-he-didnt-sound-like-much-of-anything-in-/image.jpg)
-**Score:** 1,833 | **Source:** reddit/r/technicallythetruth
+## He did NOT dodge a bullet
+![He did NOT dodge a bullet](20260423-007-he-did-not-dodge-a-bullet/image.jpg)
+**Score:** 42,249 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Among cells
-![Among cells](20260423-009-among-cells/image.jpg)
-**Score:** 800 | **Source:** reddit/r/suspiciouslyspecific
+## The Great Amongball...
+![The Great Amongball...](20260423-008-the-great-amongball/image.jpg)
+**Score:** 77 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Sus adventures
-![Sus adventures](20260423-010-sus-adventures/image.jpg)
-**Score:** 135 | **Source:** reddit/r/suspiciouslyspecific
+## geometry sus
+![geometry sus](20260423-009-geometry-sus/image.jpg)
+**Score:** 77 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260423-011-brother-what-even-are-these-polls/image.jpg)
-**Score:** 61 | **Source:** reddit/r/oddlyspecific
+## Don't do that
+![Don't do that](20260423-010-dont-do-that/image.jpg)
+**Score:** 339 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260423-012-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 390 | **Source:** reddit/r/oddlyspecific
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260423-011-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 624 | **Source:** reddit/r/HolUp
 
 ---
 
-## Same same but different.
-![Same same but different.](20260423-013-same-same-but-different/image.jpg)
-**Score:** 832 | **Source:** reddit/r/dankmemes
+## that took a turn real quick
+![that took a turn real quick](20260423-012-that-took-a-turn-real-quick/image.jpg)
+**Score:** 1,261 | **Source:** reddit/r/memes
 
 ---
 
 ## How could I make noodles without it?
-![How could I make noodles without it?](20260423-014-how-could-i-make-noodles-without-it/image.jpg)
+![How could I make noodles without it?](20260423-013-how-could-i-make-noodles-without-it/image.jpg)
 **Score:** 1,346 | **Source:** reddit/r/memes
 
 ---
 
 ## every single night
-![every single night](20260423-015-every-single-night/image.jpg)
+![every single night](20260423-014-every-single-night/image.jpg)
 **Score:** 148 | **Source:** reddit/r/memes
 
 ---
 
-## that took a turn real quick
-![that took a turn real quick](20260423-016-that-took-a-turn-real-quick/image.jpg)
-**Score:** 1,261 | **Source:** reddit/r/memes
-
----
-
-## You Okay Babe?
-![You Okay Babe?](20260423-017-you-okay-babe/image.jpg)
-**Score:** 20,483 | **Source:** reddit/r/dankmemes
+## It's in the blood
+![It's in the blood](20260423-015-its-in-the-blood/image.jpg)
+**Score:** 268 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Send nudes. It's safe
-![Send nudes. It's safe](20260423-018-send-nudes-its-safe/image.jpg)
+![Send nudes. It's safe](20260423-016-send-nudes-its-safe/image.jpg)
 **Score:** 627 | **Source:** reddit/r/memes
 
 ---
 
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260423-019-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 2,005 | **Source:** reddit/r/dankmemes
+## Now we mememaxxing
+![Now we mememaxxing](20260423-017-now-we-mememaxxing/image.jpg)
+**Score:** 741 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I've got my priorities straight!
-![I've got my priorities straight!](20260423-020-ive-got-my-priorities-straight/image.jpg)
-**Score:** 61 | **Source:** reddit/r/dankmemes
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260423-018-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 314 | **Source:** reddit/r/dankmemes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260423-019-fatherhood-baaaaad/image.jpg)
+**Score:** 494 | **Source:** reddit/r/dankmemes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260423-020-you-okay-babe/image.jpg)
+**Score:** 20,483 | **Source:** reddit/r/dankmemes
 
 ---

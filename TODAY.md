@@ -1,48 +1,48 @@
-# Meme Feed — 2026-04-24 07:30
+# Meme Feed — 2026-04-24 07:40
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## makes me sick
-![makes me sick](20260424-001-makes-me-sick/image.jpg)
-**Score:** 1,000 | **Source:** reddit/r/WhitePeopleTwitter
+## They have the self-awareness of a wet fart.
+![They have the self-awareness of a wet fa](20260424-001-they-have-the-self-awareness-of-a-wet-fa/image.jpg)
+**Score:** 7,823 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260424-002-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,643 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260424-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 4,436 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260424-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,071 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260424-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260424-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,359 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260424-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260424-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,182 | **Source:** reddit/r/facepalm
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260424-005-i-just-opened-youtube/image.jpg)
-**Score:** 8,966 | **Source:** reddit/r/technicallythetruth
+## The perfect combination of heading and Reddit mobile jank
+![The perfect combination of heading and R](20260424-006-the-perfect-combination-of-heading-and-r/image.jpg)
+**Score:** 233 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
-![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260424-006-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
-**Score:** 1,279 | **Source:** reddit/r/technicallythetruth
-
----
-
-## GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS 
-![GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS ](20260424-007-guys-guys-guys-guys-guys-guys-guys-guys-/image.jpg)
-**Score:** 319 | **Source:** reddit/r/suspiciouslyspecific
+## My friend sent me this photo
+![My friend sent me this photo](20260424-007-my-friend-sent-me-this-photo/image.jpg)
+**Score:** 850 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
@@ -52,74 +52,74 @@
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260424-009-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 404 | **Source:** reddit/r/oddlyspecific
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260424-009-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 71 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260424-010-an-augmented-reality-sandbox/image.jpg)
-**Score:** 602 | **Source:** reddit/r/HolUp
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260424-010-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,327 | **Source:** reddit/r/HolUp
 
 ---
 
-## It's in the blood
-![It's in the blood](20260424-011-its-in-the-blood/image.jpg)
-**Score:** 274 | **Source:** reddit/r/dankmemes
+## AI is everywhere
+![AI is everywhere](20260424-011-ai-is-everywhere/image.jpg)
+**Score:** 958 | **Source:** reddit/r/HolUp
 
 ---
 
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260424-012-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 9,104 | **Source:** reddit/r/memes
-
----
-
-## Now we mememaxxing
-![Now we mememaxxing](20260424-013-now-we-mememaxxing/image.jpg)
-**Score:** 744 | **Source:** reddit/r/dankmemes
-
----
-
-## every single night
-![every single night](20260424-014-every-single-night/image.jpg)
-**Score:** 222 | **Source:** reddit/r/memes
-
----
-
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260424-015-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 312 | **Source:** reddit/r/dankmemes
-
----
-
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260424-016-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 318 | **Source:** reddit/r/dankmemes
-
----
-
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260424-017-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 77 | **Source:** reddit/r/dankmemes
-
----
-
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260424-018-fatherhood-baaaaad/image.jpg)
-**Score:** 2,316 | **Source:** reddit/r/dankmemes
-
----
-
-## There goes another one
-![There goes another one](20260424-019-there-goes-another-one/image.jpg)
-**Score:** 90 | **Source:** reddit/r/dankmemes
+## Inescapable
+![Inescapable](20260424-012-inescapable/image.jpg)
+**Score:** 50 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## the worst thing you can do in the dad's car
-![the worst thing you can do in the dad's ](20260424-020-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
+![the worst thing you can do in the dad's ](20260424-013-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
 **Score:** 70 | **Source:** reddit/r/memes
+
+---
+
+## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
+![Not a my opinion but based on recent com](20260424-014-not-a-my-opinion-but-based-on-recent-com/image.jpg)
+**Score:** 1,774 | **Source:** reddit/r/memes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260424-015-dont-disturb-me/image.jpg)
+**Score:** 1,001 | **Source:** reddit/r/dankmemes
+
+---
+
+## It's in the blood
+![It's in the blood](20260424-016-its-in-the-blood/image.jpg)
+**Score:** 274 | **Source:** reddit/r/dankmemes
+
+---
+
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260424-017-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 140 | **Source:** reddit/r/dankmemes
+
+---
+
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260424-018-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 318 | **Source:** reddit/r/dankmemes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260424-019-you-okay-babe/image.jpg)
+**Score:** 20,506 | **Source:** reddit/r/dankmemes
+
+---
+
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260424-020-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 9,104 | **Source:** reddit/r/memes
 
 ---

@@ -1,12 +1,12 @@
-# Meme Feed — 2026-04-23 12:11
+# Meme Feed — 2026-04-23 12:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Ohio starting the speedrun to Gilead by introducing bill to ban women from weari
-![Ohio starting the speedrun to Gilead by ](20260423-001-ohio-starting-the-speedrun-to-gilead-by-/image.jpg)
-**Score:** 8,665 | **Source:** reddit/r/WhitePeopleTwitter
+## I hate how stupid everyone in this administration is
+![I hate how stupid everyone in this admin](20260423-001-i-hate-how-stupid-everyone-in-this-admin/image.jpg)
+**Score:** 868 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
@@ -16,9 +16,9 @@
 
 ---
 
-## At this point, it may even be a genetic trait
-![At this point, it may even be a genetic ](20260423-003-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
-**Score:** 7,019 | **Source:** reddit/r/BlackPeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260423-003-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,572 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -34,15 +34,15 @@
 
 ---
 
-## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
-![It's anthropomorphism because nature has](20260423-006-its-anthropomorphism-because-nature-has-/image.jpg)
-**Score:** 65 | **Source:** reddit/r/technicallythetruth
+## A shower is hot
+![A shower is hot](20260423-006-a-shower-is-hot/image.jpg)
+**Score:** 207 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## imposter syndrome (among us disease)
-![imposter syndrome (among us disease)](20260423-007-imposter-syndrome-among-us-disease/image.jpg)
-**Score:** 2,247 | **Source:** reddit/r/suspiciouslyspecific
+## You guys like my website?
+![You guys like my website?](20260423-007-you-guys-like-my-website/image.jpg)
+**Score:** 74 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
@@ -54,72 +54,72 @@
 
 ## Weird behavior
 ![Weird behavior](20260423-009-weird-behavior/image.jpg)
-**Score:** 101 | **Source:** reddit/r/dankmemes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260423-010-dont-disturb-me/image.jpg)
-**Score:** 944 | **Source:** reddit/r/dankmemes
-
----
-
-## There goes another one
-![There goes another one](20260423-011-there-goes-another-one/image.jpg)
-**Score:** 75 | **Source:** reddit/r/dankmemes
+**Score:** 102 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260423-012-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,452 | **Source:** reddit/r/dankmemes
+![An unfortunate name for an aircraft comp](20260423-010-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,447 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-013-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 6,734 | **Source:** reddit/r/memes
+## my virginity is safe(r)
+![my virginity is safe(r)](20260423-011-my-virginity-is-safer/image.jpg)
+**Score:** 85 | **Source:** reddit/r/memes
 
 ---
 
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260423-014-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 60 | **Source:** reddit/r/dankmemes
-
----
-
-## That is the worst
-![That is the worst](20260423-015-that-is-the-worst/image.jpg)
-**Score:** 4,422 | **Source:** reddit/r/memes
-
----
-
-## Who am i to judge.
-![Who am i to judge.](20260423-016-who-am-i-to-judge/image.jpg)
-**Score:** 729 | **Source:** reddit/r/dankmemes
+## Selling a limb for some DDR5
+![Selling a limb for some DDR5](20260423-012-selling-a-limb-for-some-ddr5/image.jpg)
+**Score:** 53 | **Source:** reddit/r/memes
 
 ---
 
 ## Clankers ruin it once again
-![Clankers ruin it once again](20260423-017-clankers-ruin-it-once-again/image.jpg)
-**Score:** 392 | **Source:** reddit/r/dankmemes
+![Clankers ruin it once again](20260423-013-clankers-ruin-it-once-again/image.jpg)
+**Score:** 400 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Must be some big hands
-![Must be some big hands](20260423-018-must-be-some-big-hands/image.jpg)
-**Score:** 50 | **Source:** reddit/r/memes
+## 5G human radar
+![5G human radar](20260423-014-5g-human-radar/image.jpg)
+**Score:** 1,841 | **Source:** reddit/r/memes
 
 ---
 
-## Now we mememaxxing
-![Now we mememaxxing](20260423-019-now-we-mememaxxing/image.jpg)
-**Score:** 735 | **Source:** reddit/r/dankmemes
+## There goes another one
+![There goes another one](20260423-015-there-goes-another-one/image.jpg)
+**Score:** 80 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260423-020-lets-go-im-safe/image.jpg)
-**Score:** 889 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260423-016-that-is-the-worst/image.jpg)
+**Score:** 6,406 | **Source:** reddit/r/memes
+
+---
+
+## that took a turn real quick
+![that took a turn real quick](20260423-017-that-took-a-turn-real-quick/image.jpg)
+**Score:** 112 | **Source:** reddit/r/memes
+
+---
+
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260423-018-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 7,397 | **Source:** reddit/r/memes
+
+---
+
+## Is it really necessary?
+![Is it really necessary?](20260423-019-is-it-really-necessary/image.jpg)
+**Score:** 4,078 | **Source:** reddit/r/memes
+
+---
+
+## Same same but different.
+![Same same but different.](20260423-020-same-same-but-different/image.jpg)
+**Score:** 230 | **Source:** reddit/r/dankmemes
 
 ---

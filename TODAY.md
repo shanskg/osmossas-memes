@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-23 13:50
+# Meme Feed — 2026-04-23 14:00
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## U.S. Rep. David Scott (D-GA) has died at the age of 80. He was running for re-el
-![U.S. Rep. David Scott (D-GA) has died at](20260423-001-us-rep-david-scott-d-ga-has-died-at-the-/image.jpg)
-**Score:** 746 | **Source:** reddit/r/WhitePeopleTwitter
+## Counter terrorists win
+![Counter terrorists win](20260423-001-counter-terrorists-win/image.jpg)
+**Score:** 6,344 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260423-002-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,580 | **Source:** reddit/r/BlackPeopleTwitter
+## LOADING...
+![LOADING...](20260423-002-loading/image.jpg)
+**Score:** 124 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Leave the whales alone
-![Leave the whales alone](20260423-003-leave-the-whales-alone/image.jpg)
-**Score:** 19,182 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260423-003-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 2,653 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -34,57 +34,57 @@
 
 ---
 
-## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
-![Oh Oracle, How Will I Die? Surrounded By](20260423-006-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
-**Score:** 3,929 | **Source:** reddit/r/technicallythetruth
+## Super rich or bus driver?
+![Super rich or bus driver?](20260423-006-super-rich-or-bus-driver/image.jpg)
+**Score:** 31,004 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The Hash-Slinging Slasher
-![The Hash-Slinging Slasher](20260423-007-the-hash-slinging-slasher/image.jpg)
-**Score:** 426 | **Source:** reddit/r/suspiciouslyspecific
+## He didn't sound like much of anything in there
+![He didn't sound like much of anything in](20260423-007-he-didnt-sound-like-much-of-anything-in-/image.jpg)
+**Score:** 1,834 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Juicy Amogus pics
-![Juicy Amogus pics](20260423-008-juicy-amogus-pics/image.jpg)
-**Score:** 811 | **Source:** reddit/r/suspiciouslyspecific
+## He's in there somewhere
+![He's in there somewhere](20260423-008-hes-in-there-somewhere/image.jpg)
+**Score:** 1,532 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260423-009-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 392 | **Source:** reddit/r/oddlyspecific
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260423-009-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 67 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Wait what...
-![Wait what...](20260423-010-wait-what/image.jpg)
-**Score:** 614 | **Source:** reddit/r/HolUp
+## Don't disturb me
+![Don't disturb me](20260423-010-dont-disturb-me/image.jpg)
+**Score:** 957 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Darker and darker
-![Darker and darker](20260423-011-darker-and-darker/image.jpg)
-**Score:** 286 | **Source:** reddit/r/HolUp
-
----
-
-## that took a turn real quick
-![that took a turn real quick](20260423-012-that-took-a-turn-real-quick/image.jpg)
-**Score:** 112 | **Source:** reddit/r/memes
-
----
-
-## Is it really necessary?
-![Is it really necessary?](20260423-013-is-it-really-necessary/image.jpg)
-**Score:** 4,078 | **Source:** reddit/r/memes
+## *deeply inhales smog*
+![*deeply inhales smog*](20260423-011-deeply-inhales-smog/image.jpg)
+**Score:** 2,432 | **Source:** reddit/r/memes
 
 ---
 
 ## r/bald in a nutshell
-![r/bald in a nutshell](20260423-014-rbald-in-a-nutshell/image.jpg)
+![r/bald in a nutshell](20260423-012-rbald-in-a-nutshell/image.jpg)
 **Score:** 7,653 | **Source:** reddit/r/memes
+
+---
+
+## Someone hold me
+![Someone hold me](20260423-013-someone-hold-me/image.jpg)
+**Score:** 70 | **Source:** reddit/r/memes
+
+---
+
+## Same same but different.
+![Same same but different.](20260423-014-same-same-but-different/image.jpg)
+**Score:** 230 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -94,32 +94,32 @@
 
 ---
 
+## 5G human radar
+![5G human radar](20260423-016-5g-human-radar/image.jpg)
+**Score:** 1,841 | **Source:** reddit/r/memes
+
+---
+
+## Lets go im safe
+![Lets go im safe](20260423-017-lets-go-im-safe/image.jpg)
+**Score:** 938 | **Source:** reddit/r/dankmemes
+
+---
+
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260423-018-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 7,397 | **Source:** reddit/r/memes
+
+---
+
+## Who am i to judge.
+![Who am i to judge.](20260423-019-who-am-i-to-judge/image.jpg)
+**Score:** 985 | **Source:** reddit/r/dankmemes
+
+---
+
 ## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260423-016-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+![An unfortunate name for an aircraft comp](20260423-020-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
 **Score:** 1,447 | **Source:** reddit/r/dankmemes
-
----
-
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260423-017-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 6,564 | **Source:** reddit/r/memes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260423-018-dont-disturb-me/image.jpg)
-**Score:** 957 | **Source:** reddit/r/dankmemes
-
----
-
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260423-019-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 296 | **Source:** reddit/r/dankmemes
-
----
-
-## That is the worst
-![That is the worst](20260423-020-that-is-the-worst/image.jpg)
-**Score:** 6,406 | **Source:** reddit/r/memes
 
 ---

@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-23 14:20
+# Meme Feed — 2026-04-23 14:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## U.S. Rep. David Scott (D-GA) has died at the age of 80. He was running for re-el
-![U.S. Rep. David Scott (D-GA) has died at](20260423-001-us-rep-david-scott-d-ga-has-died-at-the-/image.jpg)
-**Score:** 746 | **Source:** reddit/r/WhitePeopleTwitter
+## Interesting...
+![Interesting...](20260423-001-interesting/image.jpg)
+**Score:** 4,447 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## makes me sick
-![makes me sick](20260423-002-makes-me-sick/image.jpg)
-**Score:** 835 | **Source:** reddit/r/WhitePeopleTwitter
-
----
-
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260423-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,067 | **Source:** reddit/r/BlackPeopleTwitter
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260423-002-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,389 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260423-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,176 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260423-005-well-did-they-accept-or-not/image.jpg)
+![Well? Did they accept or not?](20260423-004-well-did-they-accept-or-not/image.jpg)
 **Score:** 826 | **Source:** reddit/r/facepalm
 
 ---
 
-## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
-![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260423-006-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
-**Score:** 1,146 | **Source:** reddit/r/technicallythetruth
+## Some inflation is good
+![Some inflation is good](20260423-005-some-inflation-is-good/image.jpg)
+**Score:** 15,683 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260423-007-enjoy-your-hot-water/image.jpg)
-**Score:** 971 | **Source:** reddit/r/technicallythetruth
-
----
-
-## Among who?
-![Among who?](20260423-008-among-who/image.jpg)
-**Score:** 3,784 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260423-009-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 73 | **Source:** reddit/r/oddlyspecific
+## I cast stairs... Wrong subReddit
+![I cast stairs... Wrong subReddit](20260423-006-i-cast-stairs-wrong-subreddit/image.jpg)
+**Score:** 2,444 | **Source:** reddit/r/technicallythetruth
 
 ---
 
 ## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260423-010-sure-thing-lady-rushmore/image.jpg)
+![Sure thing , Lady Rushmore](20260423-007-sure-thing-lady-rushmore/image.jpg)
 **Score:** 11,333 | **Source:** reddit/r/HolUp
 
 ---
 
-## Darker and darker
-![Darker and darker](20260423-011-darker-and-darker/image.jpg)
-**Score:** 286 | **Source:** reddit/r/HolUp
+## I'm from very old era, if you know you know
+![I'm from very old era, if you know you k](20260423-008-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+**Score:** 6,585 | **Source:** reddit/r/memes
 
 ---
 
-## *deeply inhales smog*
-![*deeply inhales smog*](20260423-012-deeply-inhales-smog/image.jpg)
-**Score:** 2,504 | **Source:** reddit/r/memes
+## Now we mememaxxing
+![Now we mememaxxing](20260423-009-now-we-mememaxxing/image.jpg)
+**Score:** 735 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-013-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 7,935 | **Source:** reddit/r/memes
+## Same same but different.
+![Same same but different.](20260423-010-same-same-but-different/image.jpg)
+**Score:** 324 | **Source:** reddit/r/dankmemes
+
+---
+
+## 5G human radar
+![5G human radar](20260423-011-5g-human-radar/image.jpg)
+**Score:** 2,111 | **Source:** reddit/r/memes
 
 ---
 
 ## that took a turn real quick
-![that took a turn real quick](20260423-014-that-took-a-turn-real-quick/image.jpg)
+![that took a turn real quick](20260423-012-that-took-a-turn-real-quick/image.jpg)
 **Score:** 255 | **Source:** reddit/r/memes
 
 ---
 
+## Someone hold me
+![Someone hold me](20260423-013-someone-hold-me/image.jpg)
+**Score:** 95 | **Source:** reddit/r/memes
+
+---
+
+## every single night
+![every single night](20260423-014-every-single-night/image.jpg)
+**Score:** 54 | **Source:** reddit/r/memes
+
+---
+
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260423-015-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 117 | **Source:** reddit/r/dankmemes
+
+---
+
 ## Lets go im safe
-![Lets go im safe](20260423-015-lets-go-im-safe/image.jpg)
+![Lets go im safe](20260423-016-lets-go-im-safe/image.jpg)
 **Score:** 981 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## It's in the blood
-![It's in the blood](20260423-016-its-in-the-blood/image.jpg)
+![It's in the blood](20260423-017-its-in-the-blood/image.jpg)
 **Score:** 266 | **Source:** reddit/r/dankmemes
 
 ---
 
-## every single night
-![every single night](20260423-017-every-single-night/image.jpg)
-**Score:** 54 | **Source:** reddit/r/memes
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-018-send-nudes-its-safe/image.jpg)
+**Score:** 594 | **Source:** reddit/r/memes
 
 ---
 
-## Weird behavior
-![Weird behavior](20260423-018-weird-behavior/image.jpg)
-**Score:** 106 | **Source:** reddit/r/dankmemes
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260423-019-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 909 | **Source:** reddit/r/dankmemes
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260423-019-you-okay-babe/image.jpg)
-**Score:** 20,466 | **Source:** reddit/r/dankmemes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260423-020-dont-disturb-me/image.jpg)
-**Score:** 963 | **Source:** reddit/r/dankmemes
+## I've got my priorities straight!
+![I've got my priorities straight!](20260423-020-ive-got-my-priorities-straight/image.jpg)
+**Score:** 50 | **Source:** reddit/r/dankmemes
 
 ---

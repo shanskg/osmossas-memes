@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-23 12:40
+# Meme Feed — 2026-04-23 12:50
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## He's really on top
-![He's really on top](20260423-001-hes-really-on-top/image.jpg)
-**Score:** 1,939 | **Source:** reddit/r/BlackPeopleTwitter
+## Leave the whales alone
+![Leave the whales alone](20260423-001-leave-the-whales-alone/image.jpg)
+**Score:** 19,179 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260423-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 2,282 | **Source:** reddit/r/BlackPeopleTwitter
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260423-002-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,178 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -22,15 +22,15 @@
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260423-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,365 | **Source:** reddit/r/facepalm
+## Enjoy your hot water
+![Enjoy your hot water](20260423-004-enjoy-your-hot-water/image.jpg)
+**Score:** 972 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## It's easy to find a 1-step solution if the prior guesses weren't considered.
-![It's easy to find a 1-step solution if t](20260423-005-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
-**Score:** 2,402 | **Source:** reddit/r/technicallythetruth
+## Being shot with a depleted uranium bullet can't be good
+![Being shot with a depleted uranium bulle](20260423-005-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+**Score:** 503 | **Source:** reddit/r/technicallythetruth
 
 ---
 
@@ -40,57 +40,57 @@
 
 ---
 
-## Don't do that
-![Don't do that](20260423-007-dont-do-that/image.jpg)
-**Score:** 342 | **Source:** reddit/r/oddlyspecific
+## It's Sabotage
+![It's Sabotage](20260423-007-its-sabotage/image.jpg)
+**Score:** 76 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260423-008-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 209 | **Source:** reddit/r/oddlyspecific
-
----
-
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260423-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 624 | **Source:** reddit/r/HolUp
-
----
-
-## Now we mememaxxing
-![Now we mememaxxing](20260423-010-now-we-mememaxxing/image.jpg)
-**Score:** 734 | **Source:** reddit/r/dankmemes
-
----
-
-## Selling a limb for some DDR5
-![Selling a limb for some DDR5](20260423-011-selling-a-limb-for-some-ddr5/image.jpg)
-**Score:** 53 | **Source:** reddit/r/memes
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260423-008-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,336 | **Source:** reddit/r/HolUp
 
 ---
 
 ## 5G human radar
-![5G human radar](20260423-012-5g-human-radar/image.jpg)
+![5G human radar](20260423-009-5g-human-radar/image.jpg)
 **Score:** 1,841 | **Source:** reddit/r/memes
 
 ---
 
-## *deeply inhales smog*
-![*deeply inhales smog*](20260423-013-deeply-inhales-smog/image.jpg)
-**Score:** 2,432 | **Source:** reddit/r/memes
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260423-010-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 67 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260423-014-lets-go-im-safe/image.jpg)
-**Score:** 938 | **Source:** reddit/r/dankmemes
+## Same same but different.
+![Same same but different.](20260423-011-same-same-but-different/image.jpg)
+**Score:** 230 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Is it really necessary?
-![Is it really necessary?](20260423-015-is-it-really-necessary/image.jpg)
-**Score:** 4,078 | **Source:** reddit/r/memes
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-012-send-nudes-its-safe/image.jpg)
+**Score:** 567 | **Source:** reddit/r/memes
+
+---
+
+## Who am i to judge.
+![Who am i to judge.](20260423-013-who-am-i-to-judge/image.jpg)
+**Score:** 985 | **Source:** reddit/r/dankmemes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260423-014-you-okay-babe/image.jpg)
+**Score:** 20,453 | **Source:** reddit/r/dankmemes
+
+---
+
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260423-015-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 309 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -100,26 +100,26 @@
 
 ---
 
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-017-send-nudes-its-safe/image.jpg)
-**Score:** 567 | **Source:** reddit/r/memes
+## He is really concerned.
+![He is really concerned.](20260423-017-he-is-really-concerned/image.jpg)
+**Score:** 142 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Clankers ruin it once again
-![Clankers ruin it once again](20260423-018-clankers-ruin-it-once-again/image.jpg)
-**Score:** 400 | **Source:** reddit/r/dankmemes
+## Lets go im safe
+![Lets go im safe](20260423-018-lets-go-im-safe/image.jpg)
+**Score:** 938 | **Source:** reddit/r/dankmemes
 
 ---
 
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260423-019-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 296 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260423-019-that-is-the-worst/image.jpg)
+**Score:** 6,406 | **Source:** reddit/r/memes
 
 ---
 
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260423-020-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 67 | **Source:** reddit/r/dankmemes
+## my virginity is safe(r)
+![my virginity is safe(r)](20260423-020-my-virginity-is-safer/image.jpg)
+**Score:** 85 | **Source:** reddit/r/memes
 
 ---

@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-24 06:00
+# Meme Feed — 2026-04-24 06:10
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Navy Secretary leaving in the MIDDLE OF A WAR? Clown show.
-![Navy Secretary leaving in the MIDDLE OF ](20260424-001-navy-secretary-leaving-in-the-middle-of-/image.jpg)
-**Score:** 129 | **Source:** reddit/r/WhitePeopleTwitter
+## We have to stop electing people this old. This is not okay. What are we doing?
+![We have to stop electing people this old](20260424-001-we-have-to-stop-electing-people-this-old/image.jpg)
+**Score:** 1,501 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## skins vs skins
-![skins vs skins](20260424-002-skins-vs-skins/image.jpg)
-**Score:** 1,019 | **Source:** reddit/r/BlackPeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260424-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,072 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260424-003-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,404 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260424-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260424-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,182 | **Source:** reddit/r/facepalm
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260424-004-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,143 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260424-005-well-did-they-accept-or-not/image.jpg)
+**Score:** 832 | **Source:** reddit/r/facepalm
 
 ---
 
-## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260424-005-i-cast-stairs-wrong-subreddit/image.jpg)
-**Score:** 2,527 | **Source:** reddit/r/technicallythetruth
+## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
+![It's anthropomorphism because nature has](20260424-006-its-anthropomorphism-because-nature-has-/image.jpg)
+**Score:** 83 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## 125 per hour in Oregon
-![125 per hour in Oregon](20260424-006-125-per-hour-in-oregon/image.jpg)
-**Score:** 12,636 | **Source:** reddit/r/technicallythetruth
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260424-007-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,403 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Sus adventures
-![Sus adventures](20260424-007-sus-adventures/image.jpg)
-**Score:** 135 | **Source:** reddit/r/suspiciouslyspecific
+## Dippers shadow in this episode of Gravity Falls
+![Dippers shadow in this episode of Gravit](20260424-008-dippers-shadow-in-this-episode-of-gravit/image.jpg)
+**Score:** 1,084 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Who is your fav Cambodian gas station explosion survivor that is pregnant?
-![Who is your fav Cambodian gas station ex](20260424-008-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
-**Score:** 647 | **Source:** reddit/r/oddlyspecific
+## it’s everywhere
+![it’s everywhere](20260424-009-its-everywhere/image.jpg)
+**Score:** 100 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## 5G human radar
-![5G human radar](20260424-009-5g-human-radar/image.jpg)
-**Score:** 3,372 | **Source:** reddit/r/memes
+## Futabu anyone ???
+![Futabu anyone ???](20260424-010-futabu-anyone/image.jpg)
+**Score:** 2,248 | **Source:** reddit/r/HolUp
 
 ---
 
 ## International memes
-![International memes](20260424-010-international-memes/image.jpg)
+![International memes](20260424-011-international-memes/image.jpg)
 **Score:** 57 | **Source:** reddit/r/dankmemes
 
 ---
 
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260424-011-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 317 | **Source:** reddit/r/dankmemes
-
----
-
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260424-012-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 9,075 | **Source:** reddit/r/memes
-
----
-
-## every single night
-![every single night](20260424-013-every-single-night/image.jpg)
-**Score:** 213 | **Source:** reddit/r/memes
-
----
-
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260424-014-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 79 | **Source:** reddit/r/dankmemes
-
----
-
-## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260424-015-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
-**Score:** 108 | **Source:** reddit/r/memes
-
----
-
-## Wild Thumbnail and Name for a Tax
-![Wild Thumbnail and Name for a Tax](20260424-016-wild-thumbnail-and-name-for-a-tax/image.jpg)
-**Score:** 51 | **Source:** reddit/r/memes
-
----
-
-## I've got my priorities straight!
-![I've got my priorities straight!](20260424-017-ive-got-my-priorities-straight/image.jpg)
-**Score:** 67 | **Source:** reddit/r/dankmemes
-
----
-
-## Someone hold me
-![Someone hold me](20260424-018-someone-hold-me/image.jpg)
-**Score:** 167 | **Source:** reddit/r/memes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260424-019-dont-disturb-me/image.jpg)
-**Score:** 1,001 | **Source:** reddit/r/dankmemes
+## How could I make noodles without it?
+![How could I make noodles without it?](20260424-012-how-could-i-make-noodles-without-it/image.jpg)
+**Score:** 3,085 | **Source:** reddit/r/memes
 
 ---
 
 ## There goes another one
-![There goes another one](20260424-020-there-goes-another-one/image.jpg)
+![There goes another one](20260424-013-there-goes-another-one/image.jpg)
 **Score:** 93 | **Source:** reddit/r/dankmemes
+
+---
+
+## I've got my priorities straight!
+![I've got my priorities straight!](20260424-014-ive-got-my-priorities-straight/image.jpg)
+**Score:** 67 | **Source:** reddit/r/dankmemes
+
+---
+
+## Weird behavior
+![Weird behavior](20260424-015-weird-behavior/image.jpg)
+**Score:** 107 | **Source:** reddit/r/dankmemes
+
+---
+
+## It's like a hierarchy in here
+![It's like a hierarchy in here](20260424-016-its-like-a-hierarchy-in-here/image.jpg)
+**Score:** 80 | **Source:** reddit/r/memes
+
+---
+
+## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
+![Not a my opinion but based on recent com](20260424-017-not-a-my-opinion-but-based-on-recent-com/image.jpg)
+**Score:** 1,670 | **Source:** reddit/r/memes
+
+---
+
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260424-018-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 309 | **Source:** reddit/r/dankmemes
+
+---
+
+## the worst thing you can do in the dad's car
+![the worst thing you can do in the dad's ](20260424-019-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
+**Score:** 65 | **Source:** reddit/r/memes
+
+---
+
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260424-020-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 2,885 | **Source:** reddit/r/dankmemes
 
 ---

@@ -1,12 +1,12 @@
-# Meme Feed — 2026-04-23 17:10
+# Meme Feed — 2026-04-23 17:21
 
-**Total:** 20 memes | Refresh every 10 min
+**Total:** 18 memes | Refresh every 10 min
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260423-001-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,070 | **Source:** reddit/r/BlackPeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260423-001-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,580 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -28,98 +28,86 @@
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260423-005-enjoy-your-hot-water/image.jpg)
-**Score:** 972 | **Source:** reddit/r/technicallythetruth
+## The detective didn't find it
+![The detective didn't find it](20260423-005-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,766 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## it’s everywhere
-![it’s everywhere](20260423-006-its-everywhere/image.jpg)
-**Score:** 101 | **Source:** reddit/r/suspiciouslyspecific
+## I'm too lazy to take a picture, so I made a drawing more time consuming but anyw
+![I'm too lazy to take a picture, so I mad](20260423-006-im-too-lazy-to-take-a-picture-so-i-made-/image.jpg)
+**Score:** 214 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## It's Sabotage
-![It's Sabotage](20260423-007-its-sabotage/image.jpg)
-**Score:** 79 | **Source:** reddit/r/suspiciouslyspecific
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260423-007-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 398 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260423-008-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,328 | **Source:** reddit/r/HolUp
-
----
-
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260423-009-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 314 | **Source:** reddit/r/dankmemes
-
----
-
-## r/bald in a nutshell
-![r/bald in a nutshell](20260423-010-rbald-in-a-nutshell/image.jpg)
-**Score:** 7,677 | **Source:** reddit/r/memes
-
----
-
-## You Okay Babe?
-![You Okay Babe?](20260423-011-you-okay-babe/image.jpg)
-**Score:** 20,472 | **Source:** reddit/r/dankmemes
-
----
-
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-012-send-nudes-its-safe/image.jpg)
-**Score:** 617 | **Source:** reddit/r/memes
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260423-008-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 627 | **Source:** reddit/r/HolUp
 
 ---
 
 ## That is the worst
-![That is the worst](20260423-013-that-is-the-worst/image.jpg)
+![That is the worst](20260423-009-that-is-the-worst/image.jpg)
 **Score:** 10,169 | **Source:** reddit/r/memes
 
 ---
 
-## Is this possible?
-![Is this possible?](20260423-014-is-this-possible/image.jpg)
-**Score:** 496 | **Source:** reddit/r/memes
+## Lets go im safe
+![Lets go im safe](20260423-010-lets-go-im-safe/image.jpg)
+**Score:** 1,005 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Weird behavior
-![Weird behavior](20260423-015-weird-behavior/image.jpg)
-**Score:** 106 | **Source:** reddit/r/dankmemes
-
----
-
-## That is the worst
-![That is the worst](20260423-016-that-is-the-worst/image.jpg)
-**Score:** 3,266 | **Source:** reddit/r/dankmemes
-
----
-
-## Now we mememaxxing
-![Now we mememaxxing](20260423-017-now-we-mememaxxing/image.jpg)
-**Score:** 742 | **Source:** reddit/r/dankmemes
-
----
-
-## 5G human radar
-![5G human radar](20260423-018-5g-human-radar/image.jpg)
-**Score:** 2,411 | **Source:** reddit/r/memes
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-011-send-nudes-its-safe/image.jpg)
+**Score:** 617 | **Source:** reddit/r/memes
 
 ---
 
 ## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260423-019-we-aura-farming-in-the-pen-bois/image.jpg)
+![We aura farming in the Pen bois](20260423-012-we-aura-farming-in-the-pen-bois/image.jpg)
 **Score:** 68 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260423-020-lets-go-im-safe/image.jpg)
-**Score:** 1,005 | **Source:** reddit/r/dankmemes
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260423-013-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 1,232 | **Source:** reddit/r/dankmemes
+
+---
+
+## Weird behavior
+![Weird behavior](20260423-014-weird-behavior/image.jpg)
+**Score:** 106 | **Source:** reddit/r/dankmemes
+
+---
+
+## r/bald in a nutshell
+![r/bald in a nutshell](20260423-015-rbald-in-a-nutshell/image.jpg)
+**Score:** 7,677 | **Source:** reddit/r/memes
+
+---
+
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260423-016-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,446 | **Source:** reddit/r/dankmemes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260423-017-dont-disturb-me/image.jpg)
+**Score:** 970 | **Source:** reddit/r/dankmemes
+
+---
+
+## It's in the blood
+![It's in the blood](20260423-018-its-in-the-blood/image.jpg)
+**Score:** 268 | **Source:** reddit/r/dankmemes
 
 ---

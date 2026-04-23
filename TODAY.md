@@ -1,66 +1,66 @@
-# Meme Feed — 2026-04-23 08:40
+# Meme Feed — 2026-04-23 08:50
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Counter terrorists win
-![Counter terrorists win](20260423-001-counter-terrorists-win/image.jpg)
-**Score:** 6,327 | **Source:** reddit/r/WhitePeopleTwitter
+## It keeps happening.
+![It keeps happening.](20260423-001-it-keeps-happening/image.jpg)
+**Score:** 800 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## LOADING...
+![LOADING...](20260423-002-loading/image.jpg)
+**Score:** 108 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## He's really on top
+![He's really on top](20260423-003-hes-really-on-top/image.jpg)
+**Score:** 1,934 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## At this point, it may even be a genetic trait
-![At this point, it may even be a genetic ](20260423-002-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+![At this point, it may even be a genetic ](20260423-004-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
 **Score:** 7,029 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260423-003-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,144 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260423-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,361 | **Source:** reddit/r/facepalm
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260423-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 832 | **Source:** reddit/r/facepalm
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260423-006-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,179 | **Source:** reddit/r/facepalm
 
 ---
 
-## He did NOT dodge a bullet
-![He did NOT dodge a bullet](20260423-005-he-did-not-dodge-a-bullet/image.jpg)
-**Score:** 42,242 | **Source:** reddit/r/technicallythetruth
+## The perfect combination of heading and Reddit mobile jank
+![The perfect combination of heading and R](20260423-007-the-perfect-combination-of-heading-and-r/image.jpg)
+**Score:** 233 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
-![Oh Oracle, How Will I Die? Surrounded By](20260423-006-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
-**Score:** 3,932 | **Source:** reddit/r/technicallythetruth
+## Some inflation is good
+![Some inflation is good](20260423-008-some-inflation-is-good/image.jpg)
+**Score:** 15,680 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Guess what game this is (hint it has among us in the name)
-![Guess what game this is (hint it has amo](20260423-007-guess-what-game-this-is-hint-it-has-amon/image.jpg)
-**Score:** 157 | **Source:** reddit/r/suspiciouslyspecific
+## This is Loading. from among us
+![This is Loading. from among us](20260423-009-this-is-loading-from-among-us/image.jpg)
+**Score:** 113 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## SUStainable Copper
-![SUStainable Copper](20260423-008-sustainable-copper/image.jpg)
-**Score:** 254 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260423-009-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 69 | **Source:** reddit/r/oddlyspecific
-
----
-
-## Futabu anyone ???
-![Futabu anyone ???](20260423-010-futabu-anyone/image.jpg)
-**Score:** 2,131 | **Source:** reddit/r/HolUp
+## Don't do that
+![Don't do that](20260423-010-dont-do-that/image.jpg)
+**Score:** 335 | **Source:** reddit/r/oddlyspecific
 
 ---
 
@@ -70,56 +70,56 @@
 
 ---
 
-## Selling a limb for some DDR5
-![Selling a limb for some DDR5](20260423-012-selling-a-limb-for-some-ddr5/image.jpg)
-**Score:** 55 | **Source:** reddit/r/memes
-
----
-
-## Weird behavior
-![Weird behavior](20260423-013-weird-behavior/image.jpg)
-**Score:** 102 | **Source:** reddit/r/dankmemes
-
----
-
-## Round 3, I guess.
-![Round 3, I guess.](20260423-014-round-3-i-guess/image.jpg)
-**Score:** 680 | **Source:** reddit/r/memes
-
----
-
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-015-send-nudes-its-safe/image.jpg)
-**Score:** 490 | **Source:** reddit/r/memes
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260423-012-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,332 | **Source:** reddit/r/HolUp
 
 ---
 
 ## That is the worst
-![That is the worst](20260423-016-that-is-the-worst/image.jpg)
+![That is the worst](20260423-013-that-is-the-worst/image.jpg)
 **Score:** 2,480 | **Source:** reddit/r/memes
 
 ---
 
+## It's in the blood
+![It's in the blood](20260423-014-its-in-the-blood/image.jpg)
+**Score:** 262 | **Source:** reddit/r/dankmemes
+
+---
+
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260423-015-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 289 | **Source:** reddit/r/dankmemes
+
+---
+
 ## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260423-017-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+![I'm from very old era, if you know you k](20260423-016-im-from-very-old-era-if-you-know-you-kno/image.jpg)
 **Score:** 6,539 | **Source:** reddit/r/memes
 
 ---
 
-## Now we mememaxxing
-![Now we mememaxxing](20260423-018-now-we-mememaxxing/image.jpg)
-**Score:** 735 | **Source:** reddit/r/dankmemes
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-017-send-nudes-its-safe/image.jpg)
+**Score:** 490 | **Source:** reddit/r/memes
 
 ---
 
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260423-019-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 99 | **Source:** reddit/r/dankmemes
+## There goes another one
+![There goes another one](20260423-018-there-goes-another-one/image.jpg)
+**Score:** 77 | **Source:** reddit/r/dankmemes
 
 ---
 
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260423-020-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 57 | **Source:** reddit/r/dankmemes
+## Same same but different.
+![Same same but different.](20260423-019-same-same-but-different/image.jpg)
+**Score:** 95 | **Source:** reddit/r/dankmemes
+
+---
+
+## Round 3, I guess.
+![Round 3, I guess.](20260423-020-round-3-i-guess/image.jpg)
+**Score:** 680 | **Source:** reddit/r/memes
 
 ---

@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-23 14:00
+# Meme Feed — 2026-04-23 14:10
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Counter terrorists win
-![Counter terrorists win](20260423-001-counter-terrorists-win/image.jpg)
-**Score:** 6,344 | **Source:** reddit/r/WhitePeopleTwitter
+## Navy Secretary leaving in the MIDDLE OF A WAR? Clown show.
+![Navy Secretary leaving in the MIDDLE OF ](20260423-001-navy-secretary-leaving-in-the-middle-of-/image.jpg)
+**Score:** 94 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## LOADING...
-![LOADING...](20260423-002-loading/image.jpg)
-**Score:** 124 | **Source:** reddit/r/WhitePeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260423-002-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,580 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260423-003-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 2,653 | **Source:** reddit/r/BlackPeopleTwitter
+## He's really on top
+![He's really on top](20260423-003-hes-really-on-top/image.jpg)
+**Score:** 1,933 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -34,9 +34,9 @@
 
 ---
 
-## Super rich or bus driver?
-![Super rich or bus driver?](20260423-006-super-rich-or-bus-driver/image.jpg)
-**Score:** 31,004 | **Source:** reddit/r/technicallythetruth
+## Being shot with a depleted uranium bullet can't be good
+![Being shot with a depleted uranium bulle](20260423-006-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+**Score:** 501 | **Source:** reddit/r/technicallythetruth
 
 ---
 
@@ -46,80 +46,80 @@
 
 ---
 
-## He's in there somewhere
-![He's in there somewhere](20260423-008-hes-in-there-somewhere/image.jpg)
-**Score:** 1,532 | **Source:** reddit/r/suspiciouslyspecific
+## My 7 year old would love to know what others think of his drawing! Sus?
+![My 7 year old would love to know what ot](20260423-008-my-7-year-old-would-love-to-know-what-ot/image.jpg)
+**Score:** 1,257 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260423-009-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 67 | **Source:** reddit/r/dankmemes
+## How did none of you notice this?
+![How did none of you notice this?](20260423-009-how-did-none-of-you-notice-this/image.jpg)
+**Score:** 1,079 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260423-010-dont-disturb-me/image.jpg)
-**Score:** 957 | **Source:** reddit/r/dankmemes
+## Don't do that
+![Don't do that](20260423-010-dont-do-that/image.jpg)
+**Score:** 337 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## *deeply inhales smog*
-![*deeply inhales smog*](20260423-011-deeply-inhales-smog/image.jpg)
-**Score:** 2,432 | **Source:** reddit/r/memes
+## Wait what...
+![Wait what...](20260423-011-wait-what/image.jpg)
+**Score:** 614 | **Source:** reddit/r/HolUp
 
 ---
 
-## r/bald in a nutshell
-![r/bald in a nutshell](20260423-012-rbald-in-a-nutshell/image.jpg)
-**Score:** 7,653 | **Source:** reddit/r/memes
+## that took a turn real quick
+![that took a turn real quick](20260423-012-that-took-a-turn-real-quick/image.jpg)
+**Score:** 112 | **Source:** reddit/r/memes
 
 ---
 
-## Someone hold me
-![Someone hold me](20260423-013-someone-hold-me/image.jpg)
-**Score:** 70 | **Source:** reddit/r/memes
-
----
-
-## Same same but different.
-![Same same but different.](20260423-014-same-same-but-different/image.jpg)
-**Score:** 230 | **Source:** reddit/r/dankmemes
-
----
-
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-015-send-nudes-its-safe/image.jpg)
-**Score:** 567 | **Source:** reddit/r/memes
-
----
-
-## 5G human radar
-![5G human radar](20260423-016-5g-human-radar/image.jpg)
-**Score:** 1,841 | **Source:** reddit/r/memes
-
----
-
-## Lets go im safe
-![Lets go im safe](20260423-017-lets-go-im-safe/image.jpg)
-**Score:** 938 | **Source:** reddit/r/dankmemes
-
----
-
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-018-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 7,397 | **Source:** reddit/r/memes
+## Clankers ruin it once again
+![Clankers ruin it once again](20260423-013-clankers-ruin-it-once-again/image.jpg)
+**Score:** 400 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Who am i to judge.
-![Who am i to judge.](20260423-019-who-am-i-to-judge/image.jpg)
+![Who am i to judge.](20260423-014-who-am-i-to-judge/image.jpg)
 **Score:** 985 | **Source:** reddit/r/dankmemes
 
 ---
 
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260423-020-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,447 | **Source:** reddit/r/dankmemes
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260423-015-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 309 | **Source:** reddit/r/dankmemes
+
+---
+
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260423-016-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 296 | **Source:** reddit/r/dankmemes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260423-017-you-okay-babe/image.jpg)
+**Score:** 20,453 | **Source:** reddit/r/dankmemes
+
+---
+
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260423-018-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 67 | **Source:** reddit/r/dankmemes
+
+---
+
+## *deeply inhales smog*
+![*deeply inhales smog*](20260423-019-deeply-inhales-smog/image.jpg)
+**Score:** 2,432 | **Source:** reddit/r/memes
+
+---
+
+## I'm from very old era, if you know you know
+![I'm from very old era, if you know you k](20260423-020-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+**Score:** 6,564 | **Source:** reddit/r/memes
 
 ---

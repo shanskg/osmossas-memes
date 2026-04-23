@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-23 09:50
+# Meme Feed — 2026-04-23 10:00
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## I hate how stupid everyone in this administration is
-![I hate how stupid everyone in this admin](20260423-001-i-hate-how-stupid-everyone-in-this-admin/image.jpg)
-**Score:** 693 | **Source:** reddit/r/WhitePeopleTwitter
+## U.S. Rep. David Scott (D-GA) has died at the age of 80. He was running for re-el
+![U.S. Rep. David Scott (D-GA) has died at](20260423-001-us-rep-david-scott-d-ga-has-died-at-the-/image.jpg)
+**Score:** 676 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Leave the whales alone
-![Leave the whales alone](20260423-002-leave-the-whales-alone/image.jpg)
-**Score:** 19,187 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260423-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 1,650 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## At this point, it may even be a genetic trait
-![At this point, it may even be a genetic ](20260423-003-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
-**Score:** 7,020 | **Source:** reddit/r/BlackPeopleTwitter
+## skins vs skins
+![skins vs skins](20260423-003-skins-vs-skins/image.jpg)
+**Score:** 1,014 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -34,69 +34,69 @@
 
 ---
 
-## He did NOT dodge a bullet
-![He did NOT dodge a bullet](20260423-006-he-did-not-dodge-a-bullet/image.jpg)
-**Score:** 42,246 | **Source:** reddit/r/technicallythetruth
+## outperforming the inflation rate
+![outperforming the inflation rate](20260423-006-outperforming-the-inflation-rate/image.jpg)
+**Score:** 65,023 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## You guys like my website?
-![You guys like my website?](20260423-007-you-guys-like-my-website/image.jpg)
-**Score:** 75 | **Source:** reddit/r/suspiciouslyspecific
+## The perfect combination of heading and Reddit mobile jank
+![The perfect combination of heading and R](20260423-007-the-perfect-combination-of-heading-and-r/image.jpg)
+**Score:** 232 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260423-008-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 67 | **Source:** reddit/r/oddlyspecific
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260423-008-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 391 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## My local children's Emergency Department doesn't treat Testicular Pain
-![My local children's Emergency Department](20260423-009-my-local-childrens-emergency-department-/image.jpg)
-**Score:** 50 | **Source:** reddit/r/oddlyspecific
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-009-send-nudes-its-safe/image.jpg)
+**Score:** 490 | **Source:** reddit/r/memes
 
 ---
 
-## Darker and darker
-![Darker and darker](20260423-010-darker-and-darker/image.jpg)
-**Score:** 283 | **Source:** reddit/r/HolUp
+## There goes another one
+![There goes another one](20260423-010-there-goes-another-one/image.jpg)
+**Score:** 77 | **Source:** reddit/r/dankmemes
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260423-011-an-augmented-reality-sandbox/image.jpg)
-**Score:** 606 | **Source:** reddit/r/HolUp
+## Don't disturb me
+![Don't disturb me](20260423-011-dont-disturb-me/image.jpg)
+**Score:** 936 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Weird behavior
-![Weird behavior](20260423-012-weird-behavior/image.jpg)
-**Score:** 102 | **Source:** reddit/r/dankmemes
-
----
-
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260423-013-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 99 | **Source:** reddit/r/dankmemes
+## Round 3, I guess.
+![Round 3, I guess.](20260423-012-round-3-i-guess/image.jpg)
+**Score:** 680 | **Source:** reddit/r/memes
 
 ---
 
 ## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260423-014-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+![I'm from very old era, if you know you k](20260423-013-im-from-very-old-era-if-you-know-you-kno/image.jpg)
 **Score:** 6,539 | **Source:** reddit/r/memes
 
 ---
 
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260423-015-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,449 | **Source:** reddit/r/dankmemes
+## You Okay Babe?
+![You Okay Babe?](20260423-014-you-okay-babe/image.jpg)
+**Score:** 20,424 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## my virginity is safe(r)
-![my virginity is safe(r)](20260423-016-my-virginity-is-safer/image.jpg)
+![my virginity is safe(r)](20260423-015-my-virginity-is-safer/image.jpg)
 **Score:** 76 | **Source:** reddit/r/memes
+
+---
+
+## That is the worst
+![That is the worst](20260423-016-that-is-the-worst/image.jpg)
+**Score:** 1,015 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -106,20 +106,20 @@
 
 ---
 
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260423-018-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 57 | **Source:** reddit/r/dankmemes
+## Selling a limb for some DDR5
+![Selling a limb for some DDR5](20260423-018-selling-a-limb-for-some-ddr5/image.jpg)
+**Score:** 55 | **Source:** reddit/r/memes
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260423-019-you-okay-babe/image.jpg)
-**Score:** 20,424 | **Source:** reddit/r/dankmemes
+## Same same but different.
+![Same same but different.](20260423-019-same-same-but-different/image.jpg)
+**Score:** 95 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-020-send-nudes-its-safe/image.jpg)
-**Score:** 490 | **Source:** reddit/r/memes
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260423-020-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 289 | **Source:** reddit/r/dankmemes
 
 ---

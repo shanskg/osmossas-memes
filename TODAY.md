@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-23 14:10
+# Meme Feed — 2026-04-23 14:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Navy Secretary leaving in the MIDDLE OF A WAR? Clown show.
-![Navy Secretary leaving in the MIDDLE OF ](20260423-001-navy-secretary-leaving-in-the-middle-of-/image.jpg)
-**Score:** 94 | **Source:** reddit/r/WhitePeopleTwitter
+## U.S. Rep. David Scott (D-GA) has died at the age of 80. He was running for re-el
+![U.S. Rep. David Scott (D-GA) has died at](20260423-001-us-rep-david-scott-d-ga-has-died-at-the-/image.jpg)
+**Score:** 746 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260423-002-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,580 | **Source:** reddit/r/BlackPeopleTwitter
+## makes me sick
+![makes me sick](20260423-002-makes-me-sick/image.jpg)
+**Score:** 835 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## He's really on top
-![He's really on top](20260423-003-hes-really-on-top/image.jpg)
-**Score:** 1,933 | **Source:** reddit/r/BlackPeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260423-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,067 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -28,98 +28,98 @@
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260423-005-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,136 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260423-005-well-did-they-accept-or-not/image.jpg)
+**Score:** 826 | **Source:** reddit/r/facepalm
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260423-006-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 501 | **Source:** reddit/r/technicallythetruth
+## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
+![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260423-006-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
+**Score:** 1,146 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## He didn't sound like much of anything in there
-![He didn't sound like much of anything in](20260423-007-he-didnt-sound-like-much-of-anything-in-/image.jpg)
-**Score:** 1,834 | **Source:** reddit/r/technicallythetruth
+## Enjoy your hot water
+![Enjoy your hot water](20260423-007-enjoy-your-hot-water/image.jpg)
+**Score:** 971 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## My 7 year old would love to know what others think of his drawing! Sus?
-![My 7 year old would love to know what ot](20260423-008-my-7-year-old-would-love-to-know-what-ot/image.jpg)
-**Score:** 1,257 | **Source:** reddit/r/suspiciouslyspecific
+## Among who?
+![Among who?](20260423-008-among-who/image.jpg)
+**Score:** 3,784 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## How did none of you notice this?
-![How did none of you notice this?](20260423-009-how-did-none-of-you-notice-this/image.jpg)
-**Score:** 1,079 | **Source:** reddit/r/suspiciouslyspecific
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260423-009-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 73 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Don't do that
-![Don't do that](20260423-010-dont-do-that/image.jpg)
-**Score:** 337 | **Source:** reddit/r/oddlyspecific
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260423-010-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,333 | **Source:** reddit/r/HolUp
 
 ---
 
-## Wait what...
-![Wait what...](20260423-011-wait-what/image.jpg)
-**Score:** 614 | **Source:** reddit/r/HolUp
-
----
-
-## that took a turn real quick
-![that took a turn real quick](20260423-012-that-took-a-turn-real-quick/image.jpg)
-**Score:** 112 | **Source:** reddit/r/memes
-
----
-
-## Clankers ruin it once again
-![Clankers ruin it once again](20260423-013-clankers-ruin-it-once-again/image.jpg)
-**Score:** 400 | **Source:** reddit/r/dankmemes
-
----
-
-## Who am i to judge.
-![Who am i to judge.](20260423-014-who-am-i-to-judge/image.jpg)
-**Score:** 985 | **Source:** reddit/r/dankmemes
-
----
-
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260423-015-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 309 | **Source:** reddit/r/dankmemes
-
----
-
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260423-016-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 296 | **Source:** reddit/r/dankmemes
-
----
-
-## You Okay Babe?
-![You Okay Babe?](20260423-017-you-okay-babe/image.jpg)
-**Score:** 20,453 | **Source:** reddit/r/dankmemes
-
----
-
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260423-018-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 67 | **Source:** reddit/r/dankmemes
+## Darker and darker
+![Darker and darker](20260423-011-darker-and-darker/image.jpg)
+**Score:** 286 | **Source:** reddit/r/HolUp
 
 ---
 
 ## *deeply inhales smog*
-![*deeply inhales smog*](20260423-019-deeply-inhales-smog/image.jpg)
-**Score:** 2,432 | **Source:** reddit/r/memes
+![*deeply inhales smog*](20260423-012-deeply-inhales-smog/image.jpg)
+**Score:** 2,504 | **Source:** reddit/r/memes
 
 ---
 
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260423-020-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 6,564 | **Source:** reddit/r/memes
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260423-013-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 7,935 | **Source:** reddit/r/memes
+
+---
+
+## that took a turn real quick
+![that took a turn real quick](20260423-014-that-took-a-turn-real-quick/image.jpg)
+**Score:** 255 | **Source:** reddit/r/memes
+
+---
+
+## Lets go im safe
+![Lets go im safe](20260423-015-lets-go-im-safe/image.jpg)
+**Score:** 981 | **Source:** reddit/r/dankmemes
+
+---
+
+## It's in the blood
+![It's in the blood](20260423-016-its-in-the-blood/image.jpg)
+**Score:** 266 | **Source:** reddit/r/dankmemes
+
+---
+
+## every single night
+![every single night](20260423-017-every-single-night/image.jpg)
+**Score:** 54 | **Source:** reddit/r/memes
+
+---
+
+## Weird behavior
+![Weird behavior](20260423-018-weird-behavior/image.jpg)
+**Score:** 106 | **Source:** reddit/r/dankmemes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260423-019-you-okay-babe/image.jpg)
+**Score:** 20,466 | **Source:** reddit/r/dankmemes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260423-020-dont-disturb-me/image.jpg)
+**Score:** 963 | **Source:** reddit/r/dankmemes
 
 ---

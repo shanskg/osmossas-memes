@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-23 14:30
+# Meme Feed — 2026-04-23 14:40
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Interesting...
-![Interesting...](20260423-001-interesting/image.jpg)
-**Score:** 4,447 | **Source:** reddit/r/WhitePeopleTwitter
+## U.S. Rep. David Scott (D-GA) has died at the age of 80. He was running for re-el
+![U.S. Rep. David Scott (D-GA) has died at](20260423-001-us-rep-david-scott-d-ga-has-died-at-the-/image.jpg)
+**Score:** 746 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260423-002-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,389 | **Source:** reddit/r/BlackPeopleTwitter
+## At this point, it may even be a genetic trait
+![At this point, it may even be a genetic ](20260423-002-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+**Score:** 7,022 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,176 | **Source:** reddit/r/facepalm
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260423-003-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,136 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -28,21 +28,21 @@
 
 ---
 
-## Some inflation is good
-![Some inflation is good](20260423-005-some-inflation-is-good/image.jpg)
-**Score:** 15,683 | **Source:** reddit/r/technicallythetruth
+## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
+![It's anthropomorphism because nature has](20260423-005-its-anthropomorphism-because-nature-has-/image.jpg)
+**Score:** 68 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260423-006-i-cast-stairs-wrong-subreddit/image.jpg)
-**Score:** 2,444 | **Source:** reddit/r/technicallythetruth
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260423-006-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 392 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260423-007-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,333 | **Source:** reddit/r/HolUp
+## Don't do that
+![Don't do that](20260423-007-dont-do-that/image.jpg)
+**Score:** 337 | **Source:** reddit/r/oddlyspecific
 
 ---
 
@@ -52,51 +52,51 @@
 
 ---
 
-## Now we mememaxxing
-![Now we mememaxxing](20260423-009-now-we-mememaxxing/image.jpg)
-**Score:** 735 | **Source:** reddit/r/dankmemes
-
----
-
-## Same same but different.
-![Same same but different.](20260423-010-same-same-but-different/image.jpg)
-**Score:** 324 | **Source:** reddit/r/dankmemes
-
----
-
-## 5G human radar
-![5G human radar](20260423-011-5g-human-radar/image.jpg)
-**Score:** 2,111 | **Source:** reddit/r/memes
-
----
-
-## that took a turn real quick
-![that took a turn real quick](20260423-012-that-took-a-turn-real-quick/image.jpg)
-**Score:** 255 | **Source:** reddit/r/memes
-
----
-
 ## Someone hold me
-![Someone hold me](20260423-013-someone-hold-me/image.jpg)
+![Someone hold me](20260423-009-someone-hold-me/image.jpg)
 **Score:** 95 | **Source:** reddit/r/memes
 
 ---
 
-## every single night
-![every single night](20260423-014-every-single-night/image.jpg)
-**Score:** 54 | **Source:** reddit/r/memes
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-010-send-nudes-its-safe/image.jpg)
+**Score:** 594 | **Source:** reddit/r/memes
 
 ---
 
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260423-015-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 117 | **Source:** reddit/r/dankmemes
+## Weird behavior
+![Weird behavior](20260423-011-weird-behavior/image.jpg)
+**Score:** 106 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260423-016-lets-go-im-safe/image.jpg)
-**Score:** 981 | **Source:** reddit/r/dankmemes
+## *deeply inhales smog*
+![*deeply inhales smog*](20260423-012-deeply-inhales-smog/image.jpg)
+**Score:** 2,504 | **Source:** reddit/r/memes
+
+---
+
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260423-013-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 60 | **Source:** reddit/r/dankmemes
+
+---
+
+## Selling a limb for some DDR5
+![Selling a limb for some DDR5](20260423-014-selling-a-limb-for-some-ddr5/image.jpg)
+**Score:** 56 | **Source:** reddit/r/memes
+
+---
+
+## That is the worst
+![That is the worst](20260423-015-that-is-the-worst/image.jpg)
+**Score:** 2,588 | **Source:** reddit/r/dankmemes
+
+---
+
+## There goes another one
+![There goes another one](20260423-016-there-goes-another-one/image.jpg)
+**Score:** 81 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -106,20 +106,20 @@
 
 ---
 
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-018-send-nudes-its-safe/image.jpg)
-**Score:** 594 | **Source:** reddit/r/memes
+## that took a turn real quick
+![that took a turn real quick](20260423-018-that-took-a-turn-real-quick/image.jpg)
+**Score:** 255 | **Source:** reddit/r/memes
 
 ---
 
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260423-019-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 909 | **Source:** reddit/r/dankmemes
+## How could I make noodles without it?
+![How could I make noodles without it?](20260423-019-how-could-i-make-noodles-without-it/image.jpg)
+**Score:** 91 | **Source:** reddit/r/memes
 
 ---
 
-## I've got my priorities straight!
-![I've got my priorities straight!](20260423-020-ive-got-my-priorities-straight/image.jpg)
-**Score:** 50 | **Source:** reddit/r/dankmemes
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260423-020-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 315 | **Source:** reddit/r/dankmemes
 
 ---

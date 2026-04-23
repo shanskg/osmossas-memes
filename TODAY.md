@@ -1,48 +1,48 @@
-# Meme Feed — 2026-04-23 19:00
+# Meme Feed — 2026-04-23 19:10
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## skins vs skins
-![skins vs skins](20260423-001-skins-vs-skins/image.jpg)
-**Score:** 1,013 | **Source:** reddit/r/BlackPeopleTwitter
+## I hate how stupid everyone in this administration is
+![I hate how stupid everyone in this admin](20260423-001-i-hate-how-stupid-everyone-in-this-admin/image.jpg)
+**Score:** 1,106 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260423-002-well-did-they-accept-or-not/image.jpg)
-**Score:** 830 | **Source:** reddit/r/facepalm
+## At this point, it may even be a genetic trait
+![At this point, it may even be a genetic ](20260423-002-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+**Score:** 7,019 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260423-003-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,389 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260423-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,181 | **Source:** reddit/r/facepalm
 
 ---
 
-## The perfect combination of heading and Reddit mobile jank
-![The perfect combination of heading and R](20260423-004-the-perfect-combination-of-heading-and-r/image.jpg)
-**Score:** 233 | **Source:** reddit/r/technicallythetruth
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260423-005-well-did-they-accept-or-not/image.jpg)
+**Score:** 830 | **Source:** reddit/r/facepalm
 
 ---
 
-## It's easy to find a 1-step solution if the prior guesses weren't considered.
-![It's easy to find a 1-step solution if t](20260423-005-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
-**Score:** 2,403 | **Source:** reddit/r/technicallythetruth
+## Dippers shadow in this episode of Gravity Falls
+![Dippers shadow in this episode of Gravit](20260423-006-dippers-shadow-in-this-episode-of-gravit/image.jpg)
+**Score:** 1,089 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## among oose
-![among oose](20260423-006-among-oose/image.jpg)
-**Score:** 520 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## Among cells
-![Among cells](20260423-007-among-cells/image.jpg)
-**Score:** 802 | **Source:** reddit/r/suspiciouslyspecific
+## GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS 
+![GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS ](20260423-007-guys-guys-guys-guys-guys-guys-guys-guys-/image.jpg)
+**Score:** 316 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
@@ -52,15 +52,15 @@
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260423-009-ai-is-everywhere/image.jpg)
-**Score:** 929 | **Source:** reddit/r/HolUp
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260423-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 627 | **Source:** reddit/r/HolUp
 
 ---
 
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260423-010-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,448 | **Source:** reddit/r/dankmemes
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260423-010-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,328 | **Source:** reddit/r/HolUp
 
 ---
 
@@ -70,56 +70,56 @@
 
 ---
 
-## 5G human radar
-![5G human radar](20260423-012-5g-human-radar/image.jpg)
-**Score:** 2,650 | **Source:** reddit/r/memes
-
----
-
-## Same same but different.
-![Same same but different.](20260423-013-same-same-but-different/image.jpg)
-**Score:** 661 | **Source:** reddit/r/dankmemes
-
----
-
 ## Lets go im safe
-![Lets go im safe](20260423-014-lets-go-im-safe/image.jpg)
+![Lets go im safe](20260423-012-lets-go-im-safe/image.jpg)
 **Score:** 1,014 | **Source:** reddit/r/dankmemes
 
 ---
 
-## r/bald in a nutshell
-![r/bald in a nutshell](20260423-015-rbald-in-a-nutshell/image.jpg)
-**Score:** 7,692 | **Source:** reddit/r/memes
+## You Okay Babe?
+![You Okay Babe?](20260423-013-you-okay-babe/image.jpg)
+**Score:** 20,484 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-016-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 8,515 | **Source:** reddit/r/memes
-
----
-
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260423-017-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 131 | **Source:** reddit/r/dankmemes
-
----
-
-## *deeply inhales smog*
-![*deeply inhales smog*](20260423-018-deeply-inhales-smog/image.jpg)
-**Score:** 2,609 | **Source:** reddit/r/memes
-
----
-
-## every single night
-![every single night](20260423-019-every-single-night/image.jpg)
-**Score:** 126 | **Source:** reddit/r/memes
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260423-014-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 312 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## that took a turn real quick
-![that took a turn real quick](20260423-020-that-took-a-turn-real-quick/image.jpg)
+![that took a turn real quick](20260423-015-that-took-a-turn-real-quick/image.jpg)
 **Score:** 788 | **Source:** reddit/r/memes
+
+---
+
+## Someone hold me
+![Someone hold me](20260423-016-someone-hold-me/image.jpg)
+**Score:** 132 | **Source:** reddit/r/memes
+
+---
+
+## That is the worst
+![That is the worst](20260423-017-that-is-the-worst/image.jpg)
+**Score:** 3,792 | **Source:** reddit/r/dankmemes
+
+---
+
+## That is the worst
+![That is the worst](20260423-018-that-is-the-worst/image.jpg)
+**Score:** 11,532 | **Source:** reddit/r/memes
+
+---
+
+## 5G human radar
+![5G human radar](20260423-019-5g-human-radar/image.jpg)
+**Score:** 2,650 | **Source:** reddit/r/memes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260423-020-dont-disturb-me/image.jpg)
+**Score:** 977 | **Source:** reddit/r/dankmemes
 
 ---

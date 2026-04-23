@@ -1,12 +1,12 @@
-# Meme Feed — 2026-04-23 08:11
+# Meme Feed — 2026-04-23 08:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## At this point, it may even be a genetic trait
-![At this point, it may even be a genetic ](20260423-001-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
-**Score:** 7,029 | **Source:** reddit/r/BlackPeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260423-001-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,512 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -22,104 +22,104 @@
 
 ---
 
-## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
-![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260423-004-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
-**Score:** 10,040 | **Source:** reddit/r/technicallythetruth
+## To be fair an Avocado is just Guacamole in ball form.
+![To be fair an Avocado is just Guacamole ](20260423-004-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
+**Score:** 10,066 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS 
-![GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS ](20260423-005-guys-guys-guys-guys-guys-guys-guys-guys-/image.jpg)
-**Score:** 309 | **Source:** reddit/r/suspiciouslyspecific
+## The detective didn't find it
+![The detective didn't find it](20260423-005-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,781 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260423-006-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 209 | **Source:** reddit/r/oddlyspecific
+## geometry sus
+![geometry sus](20260423-006-geometry-sus/image.jpg)
+**Score:** 78 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Wait what...
-![Wait what...](20260423-007-wait-what/image.jpg)
-**Score:** 610 | **Source:** reddit/r/HolUp
+## Rest in piss
+![Rest in piss](20260423-007-rest-in-piss/image.jpg)
+**Score:** 398 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260423-008-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 6,533 | **Source:** reddit/r/memes
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260423-008-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 69 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## i'm scared
-![i'm scared](20260423-009-im-scared/image.jpg)
-**Score:** 14,729 | **Source:** reddit/r/memes
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260423-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 628 | **Source:** reddit/r/HolUp
 
 ---
 
-## Now we mememaxxing
-![Now we mememaxxing](20260423-010-now-we-mememaxxing/image.jpg)
-**Score:** 736 | **Source:** reddit/r/dankmemes
+## Futabu anyone ???
+![Futabu anyone ???](20260423-010-futabu-anyone/image.jpg)
+**Score:** 2,131 | **Source:** reddit/r/HolUp
+
+---
+
+## Who am i to judge.
+![Who am i to judge.](20260423-011-who-am-i-to-judge/image.jpg)
+**Score:** 456 | **Source:** reddit/r/dankmemes
+
+---
+
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-012-send-nudes-its-safe/image.jpg)
+**Score:** 490 | **Source:** reddit/r/memes
+
+---
+
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260423-013-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 99 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## That is the worst
-![That is the worst](20260423-011-that-is-the-worst/image.jpg)
-**Score:** 381 | **Source:** reddit/r/memes
+![That is the worst](20260423-014-that-is-the-worst/image.jpg)
+**Score:** 2,480 | **Source:** reddit/r/memes
 
 ---
 
-## r/bald in a nutshell
-![r/bald in a nutshell](20260423-012-rbald-in-a-nutshell/image.jpg)
-**Score:** 7,610 | **Source:** reddit/r/memes
+## Round 3, I guess.
+![Round 3, I guess.](20260423-015-round-3-i-guess/image.jpg)
+**Score:** 680 | **Source:** reddit/r/memes
 
 ---
 
-## 5G human radar
-![5G human radar](20260423-013-5g-human-radar/image.jpg)
-**Score:** 1,250 | **Source:** reddit/r/memes
+## Weird behavior
+![Weird behavior](20260423-016-weird-behavior/image.jpg)
+**Score:** 102 | **Source:** reddit/r/dankmemes
 
 ---
 
-## There goes another one
-![There goes another one](20260423-014-there-goes-another-one/image.jpg)
-**Score:** 71 | **Source:** reddit/r/dankmemes
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260423-017-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 289 | **Source:** reddit/r/dankmemes
 
 ---
 
-## And Whitehouse press conferences too.
-![And Whitehouse press conferences too.](20260423-015-and-whitehouse-press-conferences-too/image.jpg)
-**Score:** 227 | **Source:** reddit/r/dankmemes
+## Same same but different.
+![Same same but different.](20260423-018-same-same-but-different/image.jpg)
+**Score:** 95 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260423-016-dont-disturb-me/image.jpg)
-**Score:** 936 | **Source:** reddit/r/dankmemes
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260423-019-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 458 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Is it really necessary?
-![Is it really necessary?](20260423-017-is-it-really-necessary/image.jpg)
-**Score:** 4,070 | **Source:** reddit/r/memes
-
----
-
-## *deeply inhales smog*
-![*deeply inhales smog*](20260423-018-deeply-inhales-smog/image.jpg)
-**Score:** 2,055 | **Source:** reddit/r/memes
-
----
-
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-019-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 5,446 | **Source:** reddit/r/memes
-
----
-
-## Lets go im safe
-![Lets go im safe](20260423-020-lets-go-im-safe/image.jpg)
-**Score:** 776 | **Source:** reddit/r/dankmemes
+## Selling a limb for some DDR5
+![Selling a limb for some DDR5](20260423-020-selling-a-limb-for-some-ddr5/image.jpg)
+**Score:** 55 | **Source:** reddit/r/memes
 
 ---

@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-23 19:21
+# Meme Feed — 2026-04-23 19:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## I am tired.
-![I am tired.](20260423-001-i-am-tired/image.jpg)
-**Score:** 52 | **Source:** reddit/r/WhitePeopleTwitter
+## makes me sick
+![makes me sick](20260423-001-makes-me-sick/image.jpg)
+**Score:** 909 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Navy Secretary leaving in the MIDDLE OF A WAR? Clown show.
-![Navy Secretary leaving in the MIDDLE OF ](20260423-002-navy-secretary-leaving-in-the-middle-of-/image.jpg)
-**Score:** 107 | **Source:** reddit/r/WhitePeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260423-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 3,025 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260423-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,067 | **Source:** reddit/r/BlackPeopleTwitter
+## At this point, it may even be a genetic trait
+![At this point, it may even be a genetic ](20260423-003-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+**Score:** 7,019 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -34,92 +34,92 @@
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260423-006-i-just-opened-youtube/image.jpg)
-**Score:** 8,974 | **Source:** reddit/r/technicallythetruth
+## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
+![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260423-006-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
+**Score:** 1,171 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## He did NOT dodge a bullet
-![He did NOT dodge a bullet](20260423-007-he-did-not-dodge-a-bullet/image.jpg)
-**Score:** 42,245 | **Source:** reddit/r/technicallythetruth
+## To be fair an Avocado is just Guacamole in ball form.
+![To be fair an Avocado is just Guacamole ](20260423-007-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
+**Score:** 10,070 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## when subaru is sus
-![when subaru is sus](20260423-008-when-subaru-is-sus/image.jpg)
-**Score:** 157 | **Source:** reddit/r/suspiciouslyspecific
+## You guys like my website?
+![You guys like my website?](20260423-008-you-guys-like-my-website/image.jpg)
+**Score:** 78 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260423-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 624 | **Source:** reddit/r/HolUp
+## Look at this track in F-zero (1991, SNES)
+![Look at this track in F-zero (1991, SNES](20260423-009-look-at-this-track-in-f-zero-1991-snes/image.jpg)
+**Score:** 69 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## every single night
-![every single night](20260423-010-every-single-night/image.jpg)
-**Score:** 126 | **Source:** reddit/r/memes
+## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
+![If I go to a cookout and bite a hot dog ](20260423-010-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
+**Score:** 212 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## 5G human radar
-![5G human radar](20260423-011-5g-human-radar/image.jpg)
-**Score:** 2,650 | **Source:** reddit/r/memes
+## Darker and darker
+![Darker and darker](20260423-011-darker-and-darker/image.jpg)
+**Score:** 281 | **Source:** reddit/r/HolUp
 
 ---
 
-## r/bald in a nutshell
-![r/bald in a nutshell](20260423-012-rbald-in-a-nutshell/image.jpg)
-**Score:** 7,692 | **Source:** reddit/r/memes
-
----
-
-## Is this possible?
-![Is this possible?](20260423-013-is-this-possible/image.jpg)
-**Score:** 1,046 | **Source:** reddit/r/memes
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260423-012-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 131 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-014-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+![I just want to play a wholesome dad and ](20260423-013-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
 **Score:** 8,515 | **Source:** reddit/r/memes
 
 ---
 
-## It's in the blood
-![It's in the blood](20260423-015-its-in-the-blood/image.jpg)
-**Score:** 269 | **Source:** reddit/r/dankmemes
+## that took a turn real quick
+![that took a turn real quick](20260423-014-that-took-a-turn-real-quick/image.jpg)
+**Score:** 788 | **Source:** reddit/r/memes
+
+---
+
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260423-015-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 304 | **Source:** reddit/r/dankmemes
+
+---
+
+## Lets go im safe
+![Lets go im safe](20260423-016-lets-go-im-safe/image.jpg)
+**Score:** 1,014 | **Source:** reddit/r/dankmemes
+
+---
+
+## Same same but different.
+![Same same but different.](20260423-017-same-same-but-different/image.jpg)
+**Score:** 661 | **Source:** reddit/r/dankmemes
+
+---
+
+## Selling a limb for some DDR5
+![Selling a limb for some DDR5](20260423-018-selling-a-limb-for-some-ddr5/image.jpg)
+**Score:** 66 | **Source:** reddit/r/memes
 
 ---
 
 ## *deeply inhales smog*
-![*deeply inhales smog*](20260423-016-deeply-inhales-smog/image.jpg)
+![*deeply inhales smog*](20260423-019-deeply-inhales-smog/image.jpg)
 **Score:** 2,609 | **Source:** reddit/r/memes
 
 ---
 
-## I've got my priorities straight!
-![I've got my priorities straight!](20260423-017-ive-got-my-priorities-straight/image.jpg)
-**Score:** 59 | **Source:** reddit/r/dankmemes
-
----
-
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-018-send-nudes-its-safe/image.jpg)
-**Score:** 623 | **Source:** reddit/r/memes
-
----
-
-## You Okay Babe?
-![You Okay Babe?](20260423-019-you-okay-babe/image.jpg)
-**Score:** 20,484 | **Source:** reddit/r/dankmemes
-
----
-
-## Weird behavior
-![Weird behavior](20260423-020-weird-behavior/image.jpg)
-**Score:** 105 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260423-020-that-is-the-worst/image.jpg)
+**Score:** 3,792 | **Source:** reddit/r/dankmemes
 
 ---

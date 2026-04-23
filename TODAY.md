@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-24 04:50
+# Meme Feed — 2026-04-24 05:00
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260424-001-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,410 | **Source:** reddit/r/BlackPeopleTwitter
+## Yes, we trust his market manipulation skill.
+![Yes, we trust his market manipulation sk](20260424-001-yes-we-trust-his-market-manipulation-ski/image.jpg)
+**Score:** 82 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## At this point, it may even be a genetic trait
-![At this point, it may even be a genetic ](20260424-002-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
-**Score:** 7,020 | **Source:** reddit/r/BlackPeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260424-002-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,632 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260424-003-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,142 | **Source:** reddit/r/facepalm
+## He's really on top
+![He's really on top](20260424-003-hes-really-on-top/image.jpg)
+**Score:** 1,938 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -28,87 +28,87 @@
 
 ---
 
-## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
-![Oh Oracle, How Will I Die? Surrounded By](20260424-005-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
-**Score:** 3,933 | **Source:** reddit/r/technicallythetruth
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260424-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,363 | **Source:** reddit/r/facepalm
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260424-006-i-just-opened-youtube/image.jpg)
-**Score:** 8,963 | **Source:** reddit/r/technicallythetruth
+## Being shot with a depleted uranium bullet can't be good
+![Being shot with a depleted uranium bulle](20260424-006-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+**Score:** 502 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## This is Loading. from among us
-![This is Loading. from among us](20260424-007-this-is-loading-from-among-us/image.jpg)
-**Score:** 109 | **Source:** reddit/r/suspiciouslyspecific
+## Super rich or bus driver?
+![Super rich or bus driver?](20260424-007-super-rich-or-bus-driver/image.jpg)
+**Score:** 31,008 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260424-008-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 407 | **Source:** reddit/r/oddlyspecific
+## How did none of you notice this?
+![How did none of you notice this?](20260424-008-how-did-none-of-you-notice-this/image.jpg)
+**Score:** 1,077 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260424-009-brother-what-even-are-these-polls/image.jpg)
-**Score:** 125 | **Source:** reddit/r/oddlyspecific
+## I'm too lazy to take a picture, so I made a drawing more time consuming but anyw
+![I'm too lazy to take a picture, so I mad](20260424-009-im-too-lazy-to-take-a-picture-so-i-made-/image.jpg)
+**Score:** 211 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## AI is everywhere
+![AI is everywhere](20260424-010-ai-is-everywhere/image.jpg)
+**Score:** 951 | **Source:** reddit/r/HolUp
 
 ---
 
 ## An augmented reality sandbox...
-![An augmented reality sandbox...](20260424-010-an-augmented-reality-sandbox/image.jpg)
+![An augmented reality sandbox...](20260424-011-an-augmented-reality-sandbox/image.jpg)
 **Score:** 607 | **Source:** reddit/r/HolUp
 
 ---
 
+## I've got my priorities straight!
+![I've got my priorities straight!](20260424-012-ive-got-my-priorities-straight/image.jpg)
+**Score:** 67 | **Source:** reddit/r/dankmemes
+
+---
+
+## the worst thing you can do in the dad's car
+![the worst thing you can do in the dad's ](20260424-013-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
+**Score:** 65 | **Source:** reddit/r/memes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260424-014-fatherhood-baaaaad/image.jpg)
+**Score:** 2,061 | **Source:** reddit/r/dankmemes
+
+---
+
+## Wild Thumbnail and Name for a Tax
+![Wild Thumbnail and Name for a Tax](20260424-015-wild-thumbnail-and-name-for-a-tax/image.jpg)
+**Score:** 51 | **Source:** reddit/r/memes
+
+---
+
+## Weird behavior
+![Weird behavior](20260424-016-weird-behavior/image.jpg)
+**Score:** 107 | **Source:** reddit/r/dankmemes
+
+---
+
 ## You Okay Babe?
-![You Okay Babe?](20260424-011-you-okay-babe/image.jpg)
+![You Okay Babe?](20260424-017-you-okay-babe/image.jpg)
 **Score:** 20,501 | **Source:** reddit/r/dankmemes
 
 ---
 
-## 5G human radar
-![5G human radar](20260424-012-5g-human-radar/image.jpg)
-**Score:** 3,372 | **Source:** reddit/r/memes
-
----
-
-## It's in the blood
-![It's in the blood](20260424-013-its-in-the-blood/image.jpg)
-**Score:** 278 | **Source:** reddit/r/dankmemes
-
----
-
-## Chuckled a lot seeing this
-![Chuckled a lot seeing this](20260424-014-chuckled-a-lot-seeing-this/image.jpg)
-**Score:** 1,815 | **Source:** reddit/r/memes
-
----
-
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260424-015-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 79 | **Source:** reddit/r/dankmemes
-
----
-
-## International memes
-![International memes](20260424-016-international-memes/image.jpg)
-**Score:** 57 | **Source:** reddit/r/dankmemes
-
----
-
-## Now we mememaxxing
-![Now we mememaxxing](20260424-017-now-we-mememaxxing/image.jpg)
-**Score:** 746 | **Source:** reddit/r/dankmemes
-
----
-
-## Drop you best meme
-![Drop you best meme](20260424-018-drop-you-best-meme/image.jpg)
-**Score:** 176 | **Source:** reddit/r/memes
+## Same same but different.
+![Same same but different.](20260424-018-same-same-but-different/image.jpg)
+**Score:** 1,307 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -118,8 +118,8 @@
 
 ---
 
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260424-020-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 9,075 | **Source:** reddit/r/memes
+## Are you sure
+![Are you sure](20260424-020-are-you-sure/image.jpg)
+**Score:** 86 | **Source:** reddit/r/dankmemes
 
 ---

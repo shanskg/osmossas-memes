@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-23 23:51
+# Meme Feed — 2026-04-24 00:00
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
+## The attacks on the media and journalists continue. The F.B.I. is said to have in
+![The attacks on the media and journalists](20260424-001-the-attacks-on-the-media-and-journalists/image.jpg)
+**Score:** 126 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
 ## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260423-001-keep-in-mind-when-across-the-spiderverse/image.jpg)
+![Keep in mind when Across the Spiderverse](20260424-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
 **Score:** 6,404 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
+## This a celly, that's a tool
+![This a celly, that's a tool](20260424-003-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,610 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260424-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,364 | **Source:** reddit/r/facepalm
+
+---
+
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-002-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260424-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,172 | **Source:** reddit/r/facepalm
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260423-003-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,072 | **Source:** reddit/r/technicallythetruth
+## A shower is hot
+![A shower is hot](20260424-006-a-shower-is-hot/image.jpg)
+**Score:** 500 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Dippers shadow in this episode of Gravity Falls
-![Dippers shadow in this episode of Gravit](20260423-004-dippers-shadow-in-this-episode-of-gravit/image.jpg)
-**Score:** 1,087 | **Source:** reddit/r/suspiciouslyspecific
+## among oose
+![among oose](20260424-007-among-oose/image.jpg)
+**Score:** 524 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260423-005-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 396 | **Source:** reddit/r/oddlyspecific
+## Brother what even are these polls😐️
+![Brother what even are these polls😐️](20260424-008-brother-what-even-are-these-polls/image.jpg)
+**Score:** 82 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Darker and darker
-![Darker and darker](20260423-006-darker-and-darker/image.jpg)
-**Score:** 281 | **Source:** reddit/r/HolUp
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260424-009-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 66 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Wait what...
-![Wait what...](20260423-007-wait-what/image.jpg)
-**Score:** 609 | **Source:** reddit/r/HolUp
-
----
-
-## Now we mememaxxing
-![Now we mememaxxing](20260423-008-now-we-mememaxxing/image.jpg)
-**Score:** 737 | **Source:** reddit/r/dankmemes
-
----
-
-## 5G human radar
-![5G human radar](20260423-009-5g-human-radar/image.jpg)
-**Score:** 3,083 | **Source:** reddit/r/memes
-
----
-
-## Weird behavior
-![Weird behavior](20260423-010-weird-behavior/image.jpg)
-**Score:** 110 | **Source:** reddit/r/dankmemes
-
----
-
-## That is the worst
-![That is the worst](20260423-011-that-is-the-worst/image.jpg)
-**Score:** 14,175 | **Source:** reddit/r/memes
+## AI is everywhere
+![AI is everywhere](20260424-010-ai-is-everywhere/image.jpg)
+**Score:** 949 | **Source:** reddit/r/HolUp
 
 ---
 
 ## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
-![Not a my opinion but based on recent com](20260423-012-not-a-my-opinion-but-based-on-recent-com/image.jpg)
+![Not a my opinion but based on recent com](20260424-011-not-a-my-opinion-but-based-on-recent-com/image.jpg)
 **Score:** 1,049 | **Source:** reddit/r/memes
 
 ---
 
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260423-013-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 308 | **Source:** reddit/r/dankmemes
-
----
-
-## Are you sure
-![Are you sure](20260423-014-are-you-sure/image.jpg)
-**Score:** 52 | **Source:** reddit/r/dankmemes
-
----
-
-## every single night
-![every single night](20260423-015-every-single-night/image.jpg)
-**Score:** 168 | **Source:** reddit/r/memes
-
----
-
-## that took a turn real quick
-![that took a turn real quick](20260423-016-that-took-a-turn-real-quick/image.jpg)
-**Score:** 1,802 | **Source:** reddit/r/memes
-
----
-
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-017-send-nudes-its-safe/image.jpg)
-**Score:** 629 | **Source:** reddit/r/memes
-
----
-
 ## That is the worst
-![That is the worst](20260423-018-that-is-the-worst/image.jpg)
+![That is the worst](20260424-012-that-is-the-worst/image.jpg)
 **Score:** 4,702 | **Source:** reddit/r/dankmemes
 
 ---
 
+## that took a turn real quick
+![that took a turn real quick](20260424-013-that-took-a-turn-real-quick/image.jpg)
+**Score:** 1,802 | **Source:** reddit/r/memes
+
+---
+
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260424-014-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 8,890 | **Source:** reddit/r/memes
+
+---
+
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260424-015-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 135 | **Source:** reddit/r/dankmemes
+
+---
+
+## Same same but different.
+![Same same but different.](20260424-016-same-same-but-different/image.jpg)
+**Score:** 968 | **Source:** reddit/r/dankmemes
+
+---
+
 ## Someone hold me
-![Someone hold me](20260423-019-someone-hold-me/image.jpg)
+![Someone hold me](20260424-017-someone-hold-me/image.jpg)
 **Score:** 157 | **Source:** reddit/r/memes
 
 ---
 
-## Clankers ruin it once again
-![Clankers ruin it once again](20260423-020-clankers-ruin-it-once-again/image.jpg)
-**Score:** 394 | **Source:** reddit/r/dankmemes
+## There goes another one
+![There goes another one](20260424-018-there-goes-another-one/image.jpg)
+**Score:** 92 | **Source:** reddit/r/dankmemes
+
+---
+
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260424-019-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 2,259 | **Source:** reddit/r/dankmemes
+
+---
+
+## Selling a limb for some DDR5
+![Selling a limb for some DDR5](20260424-020-selling-a-limb-for-some-ddr5/image.jpg)
+**Score:** 67 | **Source:** reddit/r/memes
 
 ---

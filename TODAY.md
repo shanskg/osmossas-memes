@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-23 11:11
+# Meme Feed — 2026-04-23 11:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Scream it from the rooftops
-![Scream it from the rooftops](20260423-001-scream-it-from-the-rooftops/image.jpg)
-**Score:** 4,482 | **Source:** reddit/r/WhitePeopleTwitter
+## Leave the whales alone
+![Leave the whales alone](20260423-001-leave-the-whales-alone/image.jpg)
+**Score:** 19,187 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260423-002-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,382 | **Source:** reddit/r/BlackPeopleTwitter
+## At this point, it may even be a genetic trait
+![At this point, it may even be a genetic ](20260423-002-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+**Score:** 7,020 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -28,27 +28,27 @@
 
 ---
 
-## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
-![It's anthropomorphism because nature has](20260423-005-its-anthropomorphism-because-nature-has-/image.jpg)
-**Score:** 63 | **Source:** reddit/r/technicallythetruth
+## He did NOT dodge a bullet
+![He did NOT dodge a bullet](20260423-005-he-did-not-dodge-a-bullet/image.jpg)
+**Score:** 42,246 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## You guys like my website?
-![You guys like my website?](20260423-006-you-guys-like-my-website/image.jpg)
-**Score:** 75 | **Source:** reddit/r/suspiciouslyspecific
+## A shower is hot
+![A shower is hot](20260423-006-a-shower-is-hot/image.jpg)
+**Score:** 161 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The Great Amongball...
-![The Great Amongball...](20260423-007-the-great-amongball/image.jpg)
-**Score:** 82 | **Source:** reddit/r/suspiciouslyspecific
+## He's in there somewhere
+![He's in there somewhere](20260423-007-hes-in-there-somewhere/image.jpg)
+**Score:** 1,529 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260423-008-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 391 | **Source:** reddit/r/oddlyspecific
+## when subaru is sus
+![when subaru is sus](20260423-008-when-subaru-is-sus/image.jpg)
+**Score:** 161 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
@@ -58,57 +58,57 @@
 
 ---
 
-## That is the worst
-![That is the worst](20260423-010-that-is-the-worst/image.jpg)
-**Score:** 4,422 | **Source:** reddit/r/memes
-
----
-
-## Lets go im safe
-![Lets go im safe](20260423-011-lets-go-im-safe/image.jpg)
-**Score:** 889 | **Source:** reddit/r/dankmemes
-
----
-
-## Must be some big hands
-![Must be some big hands](20260423-012-must-be-some-big-hands/image.jpg)
-**Score:** 50 | **Source:** reddit/r/memes
-
----
-
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-013-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 6,734 | **Source:** reddit/r/memes
-
----
-
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260423-014-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,452 | **Source:** reddit/r/dankmemes
-
----
-
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260423-015-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 111 | **Source:** reddit/r/dankmemes
+## Same same but different.
+![Same same but different.](20260423-010-same-same-but-different/image.jpg)
+**Score:** 173 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## You Okay Babe?
-![You Okay Babe?](20260423-016-you-okay-babe/image.jpg)
+![You Okay Babe?](20260423-011-you-okay-babe/image.jpg)
 **Score:** 20,444 | **Source:** reddit/r/dankmemes
 
 ---
 
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260423-017-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 60 | **Source:** reddit/r/dankmemes
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260423-012-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,452 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Who am i to judge.
-![Who am i to judge.](20260423-018-who-am-i-to-judge/image.jpg)
-**Score:** 729 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260423-013-that-is-the-worst/image.jpg)
+**Score:** 4,422 | **Source:** reddit/r/memes
+
+---
+
+## He is really concerned.
+![He is really concerned.](20260423-014-he-is-really-concerned/image.jpg)
+**Score:** 64 | **Source:** reddit/r/dankmemes
+
+---
+
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260423-015-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 564 | **Source:** reddit/r/dankmemes
+
+---
+
+## There goes another one
+![There goes another one](20260423-016-there-goes-another-one/image.jpg)
+**Score:** 75 | **Source:** reddit/r/dankmemes
+
+---
+
+## what a wild ride
+![what a wild ride](20260423-017-what-a-wild-ride/image.jpg)
+**Score:** 2,989 | **Source:** reddit/r/dankmemes
+
+---
+
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260423-018-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 60 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -118,8 +118,8 @@
 
 ---
 
-## Clankers ruin it once again
-![Clankers ruin it once again](20260423-020-clankers-ruin-it-once-again/image.jpg)
-**Score:** 392 | **Source:** reddit/r/dankmemes
+## Now we mememaxxing
+![Now we mememaxxing](20260423-020-now-we-mememaxxing/image.jpg)
+**Score:** 735 | **Source:** reddit/r/dankmemes
 
 ---

@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-24 05:40
+# Meme Feed — 2026-04-24 05:50
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## RFK Jr's breathing noises in this hearing sound like genuine death rattles. Vid 
-![RFK Jr's breathing noises in this hearin](20260424-001-rfk-jrs-breathing-noises-in-this-hearing/image.jpg)
-**Score:** 254 | **Source:** reddit/r/WhitePeopleTwitter
+## THAT IS NOT HOW MATH AND PERCENTAGES WORK YOU BRAINDEAD DONKEY
+![THAT IS NOT HOW MATH AND PERCENTAGES WOR](20260424-001-that-is-not-how-math-and-percentages-wor/image.jpg)
+**Score:** 885 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260424-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 4,282 | **Source:** reddit/r/BlackPeopleTwitter
+## Leave the whales alone
+![Leave the whales alone](20260424-002-leave-the-whales-alone/image.jpg)
+**Score:** 19,179 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260424-003-well-did-they-accept-or-not/image.jpg)
+**Score:** 834 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260424-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260424-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,363 | **Source:** reddit/r/facepalm
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260424-004-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,142 | **Source:** reddit/r/facepalm
+## I cast stairs... Wrong subReddit
+![I cast stairs... Wrong subReddit](20260424-005-i-cast-stairs-wrong-subreddit/image.jpg)
+**Score:** 2,527 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## 125 per hour in Oregon
-![125 per hour in Oregon](20260424-005-125-per-hour-in-oregon/image.jpg)
-**Score:** 12,636 | **Source:** reddit/r/technicallythetruth
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260424-006-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,403 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
-![Oh Oracle, How Will I Die? Surrounded By](20260424-006-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
-**Score:** 3,933 | **Source:** reddit/r/technicallythetruth
+## Among cells
+![Among cells](20260424-007-among-cells/image.jpg)
+**Score:** 801 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Johnny SusStar
-![Johnny SusStar](20260424-007-johnny-susstar/image.jpg)
-**Score:** 79 | **Source:** reddit/r/suspiciouslyspecific
+## Who is your fav Cambodian gas station explosion survivor that is pregnant?
+![Who is your fav Cambodian gas station ex](20260424-008-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
+**Score:** 647 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## AI is everywhere
-![AI is everywhere](20260424-008-ai-is-everywhere/image.jpg)
+![AI is everywhere](20260424-009-ai-is-everywhere/image.jpg)
 **Score:** 962 | **Source:** reddit/r/HolUp
 
 ---
 
-## International memes
-![International memes](20260424-009-international-memes/image.jpg)
-**Score:** 57 | **Source:** reddit/r/dankmemes
-
----
-
-## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
-![Not a my opinion but based on recent com](20260424-010-not-a-my-opinion-but-based-on-recent-com/image.jpg)
-**Score:** 1,670 | **Source:** reddit/r/memes
-
----
-
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260424-011-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 309 | **Source:** reddit/r/dankmemes
-
----
-
-## 5G human radar
-![5G human radar](20260424-012-5g-human-radar/image.jpg)
-**Score:** 3,372 | **Source:** reddit/r/memes
-
----
-
 ## Drop you best meme
-![Drop you best meme](20260424-013-drop-you-best-meme/image.jpg)
+![Drop you best meme](20260424-010-drop-you-best-meme/image.jpg)
 **Score:** 176 | **Source:** reddit/r/memes
 
 ---
 
-## Someone hold me
-![Someone hold me](20260424-014-someone-hold-me/image.jpg)
-**Score:** 167 | **Source:** reddit/r/memes
+## It's like a hierarchy in here
+![It's like a hierarchy in here](20260424-011-its-like-a-hierarchy-in-here/image.jpg)
+**Score:** 80 | **Source:** reddit/r/memes
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260424-015-you-okay-babe/image.jpg)
-**Score:** 20,501 | **Source:** reddit/r/dankmemes
+## Now we mememaxxing
+![Now we mememaxxing](20260424-012-now-we-mememaxxing/image.jpg)
+**Score:** 746 | **Source:** reddit/r/dankmemes
 
 ---
 
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260424-016-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,456 | **Source:** reddit/r/dankmemes
-
----
-
-## *deeply inhales smog*
-![*deeply inhales smog*](20260424-017-deeply-inhales-smog/image.jpg)
-**Score:** 2,694 | **Source:** reddit/r/memes
-
----
-
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260424-018-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 79 | **Source:** reddit/r/dankmemes
-
----
-
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260424-019-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 140 | **Source:** reddit/r/dankmemes
+## Wild Thumbnail and Name for a Tax
+![Wild Thumbnail and Name for a Tax](20260424-013-wild-thumbnail-and-name-for-a-tax/image.jpg)
+**Score:** 51 | **Source:** reddit/r/memes
 
 ---
 
 ## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260424-020-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+![I just want to play a wholesome dad and ](20260424-014-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
 **Score:** 9,075 | **Source:** reddit/r/memes
+
+---
+
+## It's in the blood
+![It's in the blood](20260424-015-its-in-the-blood/image.jpg)
+**Score:** 278 | **Source:** reddit/r/dankmemes
+
+---
+
+## Someone hold me
+![Someone hold me](20260424-016-someone-hold-me/image.jpg)
+**Score:** 167 | **Source:** reddit/r/memes
+
+---
+
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260424-017-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,456 | **Source:** reddit/r/dankmemes
+
+---
+
+## Are you sure
+![Are you sure](20260424-018-are-you-sure/image.jpg)
+**Score:** 86 | **Source:** reddit/r/dankmemes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260424-019-dont-disturb-me/image.jpg)
+**Score:** 1,001 | **Source:** reddit/r/dankmemes
+
+---
+
+## International memes
+![International memes](20260424-020-international-memes/image.jpg)
+**Score:** 57 | **Source:** reddit/r/dankmemes
 
 ---

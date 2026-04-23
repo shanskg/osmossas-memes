@@ -1,77 +1,77 @@
-# Meme Feed — 2026-04-23 16:10
+# Meme Feed — 2026-04-23 16:20
 
 **Total:** 12 memes | Refresh every 10 min
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260423-001-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,070 | **Source:** reddit/r/BlackPeopleTwitter
+## Counter terrorists win
+![Counter terrorists win](20260423-001-counter-terrorists-win/image.jpg)
+**Score:** 6,350 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260423-002-well-did-they-accept-or-not/image.jpg)
-**Score:** 832 | **Source:** reddit/r/facepalm
+## skins vs skins
+![skins vs skins](20260423-002-skins-vs-skins/image.jpg)
+**Score:** 1,014 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Leave the whales alone
+![Leave the whales alone](20260423-003-leave-the-whales-alone/image.jpg)
+**Score:** 19,182 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260423-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,170 | **Source:** reddit/r/facepalm
 
 ---
 
-## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
-![It's anthropomorphism because nature has](20260423-004-its-anthropomorphism-because-nature-has-/image.jpg)
-**Score:** 66 | **Source:** reddit/r/technicallythetruth
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260423-005-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,140 | **Source:** reddit/r/facepalm
 
 ---
 
-## Look at this track in F-zero (1991, SNES)
-![Look at this track in F-zero (1991, SNES](20260423-005-look-at-this-track-in-f-zero-1991-snes/image.jpg)
-**Score:** 66 | **Source:** reddit/r/suspiciouslyspecific
+## The detective didn't find it
+![The detective didn't find it](20260423-006-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,766 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The Great Amongball...
-![The Great Amongball...](20260423-006-the-great-amongball/image.jpg)
-**Score:** 81 | **Source:** reddit/r/suspiciouslyspecific
+## when subaru is sus
+![when subaru is sus](20260423-007-when-subaru-is-sus/image.jpg)
+**Score:** 160 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260423-007-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 212 | **Source:** reddit/r/oddlyspecific
+## He's in there somewhere
+![He's in there somewhere](20260423-008-hes-in-there-somewhere/image.jpg)
+**Score:** 1,526 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-008-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 7,935 | **Source:** reddit/r/memes
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260423-009-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 398 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## I'm from very old era, if you know you know
-![I'm from very old era, if you know you k](20260423-009-im-from-very-old-era-if-you-know-you-kno/image.jpg)
-**Score:** 6,585 | **Source:** reddit/r/memes
+## AI is everywhere
+![AI is everywhere](20260423-010-ai-is-everywhere/image.jpg)
+**Score:** 923 | **Source:** reddit/r/HolUp
 
 ---
 
-## Someone hold me
-![Someone hold me](20260423-010-someone-hold-me/image.jpg)
-**Score:** 95 | **Source:** reddit/r/memes
+## 5G human radar
+![5G human radar](20260423-011-5g-human-radar/image.jpg)
+**Score:** 2,411 | **Source:** reddit/r/memes
 
 ---
 
-## Same same but different.
-![Same same but different.](20260423-011-same-same-but-different/image.jpg)
-**Score:** 324 | **Source:** reddit/r/dankmemes
-
----
-
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260423-012-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,450 | **Source:** reddit/r/dankmemes
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260423-012-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 296 | **Source:** reddit/r/dankmemes
 
 ---

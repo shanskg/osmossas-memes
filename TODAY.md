@@ -1,30 +1,30 @@
-# Meme Feed — 2026-04-23 20:10
+# Meme Feed — 2026-04-23 20:21
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## "You should take our word for it." Because your 'word' has proven reliable soooo
-!["You should take our word for it." Becau](20260423-001-you-should-take-our-word-for-it-because-/image.jpg)
-**Score:** 118 | **Source:** reddit/r/WhitePeopleTwitter
+## It's funny and not funny because it's true.
+![It's funny and not funny because it's tr](20260423-001-its-funny-and-not-funny-because-its-true/image.jpg)
+**Score:** 679 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Somebody is having a butthurt morning...
-![Somebody is having a butthurt morning...](20260423-002-somebody-is-having-a-butthurt-morning/image.jpg)
-**Score:** 150 | **Source:** reddit/r/WhitePeopleTwitter
+## Navy Secretary leaving in the MIDDLE OF A WAR? Clown show.
+![Navy Secretary leaving in the MIDDLE OF ](20260423-002-navy-secretary-leaving-in-the-middle-of-/image.jpg)
+**Score:** 112 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## At this point, it may even be a genetic trait
+![At this point, it may even be a genetic ](20260423-003-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+**Score:** 7,021 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## This a celly, that's a tool
-![This a celly, that's a tool](20260423-003-this-a-celly-thats-a-tool/image.jpg)
+![This a celly, that's a tool](20260423-004-this-a-celly-thats-a-tool/image.jpg)
 **Score:** 5,604 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Leave the whales alone
-![Leave the whales alone](20260423-004-leave-the-whales-alone/image.jpg)
-**Score:** 19,184 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -34,92 +34,92 @@
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260423-006-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,367 | **Source:** reddit/r/facepalm
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260423-006-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,173 | **Source:** reddit/r/facepalm
 
 ---
 
-## A shower is hot
-![A shower is hot](20260423-007-a-shower-is-hot/image.jpg)
-**Score:** 438 | **Source:** reddit/r/technicallythetruth
+## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
+![It's anthropomorphism because nature has](20260423-007-its-anthropomorphism-because-nature-has-/image.jpg)
+**Score:** 70 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Rest in piss
-![Rest in piss](20260423-008-rest-in-piss/image.jpg)
-**Score:** 407 | **Source:** reddit/r/suspiciouslyspecific
+## He didn't sound like much of anything in there
+![He didn't sound like much of anything in](20260423-008-he-didnt-sound-like-much-of-anything-in-/image.jpg)
+**Score:** 1,833 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260423-009-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 222 | **Source:** reddit/r/oddlyspecific
+## Among cells
+![Among cells](20260423-009-among-cells/image.jpg)
+**Score:** 800 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260423-010-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 68 | **Source:** reddit/r/oddlyspecific
+## Sus adventures
+![Sus adventures](20260423-010-sus-adventures/image.jpg)
+**Score:** 135 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260423-011-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,322 | **Source:** reddit/r/HolUp
+## Brother what even are these polls😐️
+![Brother what even are these polls😐️](20260423-011-brother-what-even-are-these-polls/image.jpg)
+**Score:** 61 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## *deeply inhales smog*
-![*deeply inhales smog*](20260423-012-deeply-inhales-smog/image.jpg)
-**Score:** 2,609 | **Source:** reddit/r/memes
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260423-012-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 390 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Weird behavior
-![Weird behavior](20260423-013-weird-behavior/image.jpg)
-**Score:** 105 | **Source:** reddit/r/dankmemes
-
----
-
-## Someone hold me
-![Someone hold me](20260423-014-someone-hold-me/image.jpg)
-**Score:** 132 | **Source:** reddit/r/memes
+## Same same but different.
+![Same same but different.](20260423-013-same-same-but-different/image.jpg)
+**Score:** 832 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## How could I make noodles without it?
-![How could I make noodles without it?](20260423-015-how-could-i-make-noodles-without-it/image.jpg)
-**Score:** 801 | **Source:** reddit/r/memes
+![How could I make noodles without it?](20260423-014-how-could-i-make-noodles-without-it/image.jpg)
+**Score:** 1,346 | **Source:** reddit/r/memes
 
 ---
 
-## 5G human radar
-![5G human radar](20260423-016-5g-human-radar/image.jpg)
-**Score:** 2,650 | **Source:** reddit/r/memes
+## every single night
+![every single night](20260423-015-every-single-night/image.jpg)
+**Score:** 148 | **Source:** reddit/r/memes
 
 ---
 
-## There goes another one
-![There goes another one](20260423-017-there-goes-another-one/image.jpg)
-**Score:** 84 | **Source:** reddit/r/dankmemes
+## that took a turn real quick
+![that took a turn real quick](20260423-016-that-took-a-turn-real-quick/image.jpg)
+**Score:** 1,261 | **Source:** reddit/r/memes
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260423-018-dont-disturb-me/image.jpg)
-**Score:** 977 | **Source:** reddit/r/dankmemes
+## You Okay Babe?
+![You Okay Babe?](20260423-017-you-okay-babe/image.jpg)
+**Score:** 20,483 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
-![Not a my opinion but based on recent com](20260423-019-not-a-my-opinion-but-based-on-recent-com/image.jpg)
-**Score:** 226 | **Source:** reddit/r/memes
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-018-send-nudes-its-safe/image.jpg)
+**Score:** 627 | **Source:** reddit/r/memes
 
 ---
 
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-020-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 8,515 | **Source:** reddit/r/memes
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260423-019-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 2,005 | **Source:** reddit/r/dankmemes
+
+---
+
+## I've got my priorities straight!
+![I've got my priorities straight!](20260423-020-ive-got-my-priorities-straight/image.jpg)
+**Score:** 61 | **Source:** reddit/r/dankmemes
 
 ---

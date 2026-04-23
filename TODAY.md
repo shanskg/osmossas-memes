@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-23 20:30
+# Meme Feed — 2026-04-23 20:40
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## We have to stop electing people this old. This is not okay. What are we doing?
-![We have to stop electing people this old](20260423-001-we-have-to-stop-electing-people-this-old/image.jpg)
-**Score:** 1,424 | **Source:** reddit/r/WhitePeopleTwitter
+## RFK Jr's breathing noises in this hearing sound like genuine death rattles. Vid 
+![RFK Jr's breathing noises in this hearin](20260423-001-rfk-jrs-breathing-noises-in-this-hearing/image.jpg)
+**Score:** 247 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## The call is coming from outside the house
+![The call is coming from outside the hous](20260423-002-the-call-is-coming-from-outside-the-hous/image.jpg)
+**Score:** 5,052 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## Leave the whales alone
+![Leave the whales alone](20260423-003-leave-the-whales-alone/image.jpg)
+**Score:** 19,184 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260423-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+![Keep an eye out for the quiet ones](20260423-004-keep-an-eye-out-for-the-quiet-ones/image.jpg)
 **Score:** 3,247 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## At this point, it may even be a genetic trait
-![At this point, it may even be a genetic ](20260423-003-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
-**Score:** 7,021 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260423-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260423-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,367 | **Source:** reddit/r/facepalm
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260423-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,173 | **Source:** reddit/r/facepalm
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260423-006-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,139 | **Source:** reddit/r/facepalm
 
 ---
 
 ## The perfect combination of heading and Reddit mobile jank
-![The perfect combination of heading and R](20260423-006-the-perfect-combination-of-heading-and-r/image.jpg)
+![The perfect combination of heading and R](20260423-007-the-perfect-combination-of-heading-and-r/image.jpg)
 **Score:** 230 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## He did NOT dodge a bullet
-![He did NOT dodge a bullet](20260423-007-he-did-not-dodge-a-bullet/image.jpg)
-**Score:** 42,249 | **Source:** reddit/r/technicallythetruth
+## You guys like my website?
+![You guys like my website?](20260423-008-you-guys-like-my-website/image.jpg)
+**Score:** 74 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## The Great Amongball...
-![The Great Amongball...](20260423-008-the-great-amongball/image.jpg)
-**Score:** 77 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## geometry sus
-![geometry sus](20260423-009-geometry-sus/image.jpg)
-**Score:** 77 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## Don't do that
-![Don't do that](20260423-010-dont-do-that/image.jpg)
-**Score:** 339 | **Source:** reddit/r/oddlyspecific
-
----
-
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260423-011-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 624 | **Source:** reddit/r/HolUp
-
----
-
-## that took a turn real quick
-![that took a turn real quick](20260423-012-that-took-a-turn-real-quick/image.jpg)
-**Score:** 1,261 | **Source:** reddit/r/memes
-
----
-
-## How could I make noodles without it?
-![How could I make noodles without it?](20260423-013-how-could-i-make-noodles-without-it/image.jpg)
-**Score:** 1,346 | **Source:** reddit/r/memes
+## Brother what even are these polls😐️
+![Brother what even are these polls😐️](20260423-009-brother-what-even-are-these-polls/image.jpg)
+**Score:** 61 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## every single night
-![every single night](20260423-014-every-single-night/image.jpg)
+![every single night](20260423-010-every-single-night/image.jpg)
 **Score:** 148 | **Source:** reddit/r/memes
 
 ---
 
-## It's in the blood
-![It's in the blood](20260423-015-its-in-the-blood/image.jpg)
-**Score:** 268 | **Source:** reddit/r/dankmemes
-
----
-
-## Send nudes. It's safe
-![Send nudes. It's safe](20260423-016-send-nudes-its-safe/image.jpg)
-**Score:** 627 | **Source:** reddit/r/memes
-
----
-
-## Now we mememaxxing
-![Now we mememaxxing](20260423-017-now-we-mememaxxing/image.jpg)
-**Score:** 741 | **Source:** reddit/r/dankmemes
-
----
-
 ## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260423-018-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+![For legal reasons I'm not suggesting any](20260423-011-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
 **Score:** 314 | **Source:** reddit/r/dankmemes
 
 ---
 
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260423-012-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 305 | **Source:** reddit/r/dankmemes
+
+---
+
+## that took a turn real quick
+![that took a turn real quick](20260423-013-that-took-a-turn-real-quick/image.jpg)
+**Score:** 1,261 | **Source:** reddit/r/memes
+
+---
+
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260423-014-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 133 | **Source:** reddit/r/dankmemes
+
+---
+
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260423-015-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,456 | **Source:** reddit/r/dankmemes
+
+---
+
+## Clankers ruin it once again
+![Clankers ruin it once again](20260423-016-clankers-ruin-it-once-again/image.jpg)
+**Score:** 395 | **Source:** reddit/r/dankmemes
+
+---
+
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260423-017-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 68 | **Source:** reddit/r/dankmemes
+
+---
+
 ## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260423-019-fatherhood-baaaaad/image.jpg)
+!["Fatherhood baaaaad!!!"](20260423-018-fatherhood-baaaaad/image.jpg)
 **Score:** 494 | **Source:** reddit/r/dankmemes
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260423-020-you-okay-babe/image.jpg)
-**Score:** 20,483 | **Source:** reddit/r/dankmemes
+## Don't disturb me
+![Don't disturb me](20260423-019-dont-disturb-me/image.jpg)
+**Score:** 985 | **Source:** reddit/r/dankmemes
+
+---
+
+## There goes another one
+![There goes another one](20260423-020-there-goes-another-one/image.jpg)
+**Score:** 92 | **Source:** reddit/r/dankmemes
 
 ---

@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-23 15:00
+# Meme Feed — 2026-04-23 15:10
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## The call is coming from outside the house
-![The call is coming from outside the hous](20260423-001-the-call-is-coming-from-outside-the-hous/image.jpg)
-**Score:** 5,036 | **Source:** reddit/r/WhitePeopleTwitter
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260423-001-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,389 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## He's really on top
-![He's really on top](20260423-002-hes-really-on-top/image.jpg)
-**Score:** 1,933 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260423-003-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,136 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260423-002-well-did-they-accept-or-not/image.jpg)
+**Score:** 826 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260423-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260423-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,365 | **Source:** reddit/r/facepalm
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260423-005-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 501 | **Source:** reddit/r/technicallythetruth
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260423-004-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,405 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
-![It's anthropomorphism because nature has](20260423-006-its-anthropomorphism-because-nature-has-/image.jpg)
-**Score:** 68 | **Source:** reddit/r/technicallythetruth
+## I cast stairs... Wrong subReddit
+![I cast stairs... Wrong subReddit](20260423-005-i-cast-stairs-wrong-subreddit/image.jpg)
+**Score:** 2,444 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## He's in there somewhere
-![He's in there somewhere](20260423-007-hes-in-there-somewhere/image.jpg)
-**Score:** 1,532 | **Source:** reddit/r/suspiciouslyspecific
+## found an old notebook from 6th grade
+![found an old notebook from 6th grade](20260423-006-found-an-old-notebook-from-6th-grade/image.jpg)
+**Score:** 5,702 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Don't do that
-![Don't do that](20260423-008-dont-do-that/image.jpg)
-**Score:** 337 | **Source:** reddit/r/oddlyspecific
+## Dippers shadow in this episode of Gravity Falls
+![Dippers shadow in this episode of Gravit](20260423-007-dippers-shadow-in-this-episode-of-gravit/image.jpg)
+**Score:** 1,094 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Darker and darker
-![Darker and darker](20260423-009-darker-and-darker/image.jpg)
-**Score:** 286 | **Source:** reddit/r/HolUp
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260423-008-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 73 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260423-010-lets-go-im-safe/image.jpg)
-**Score:** 981 | **Source:** reddit/r/dankmemes
+## 5G human radar
+![5G human radar](20260423-009-5g-human-radar/image.jpg)
+**Score:** 2,111 | **Source:** reddit/r/memes
 
 ---
 
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260423-011-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 909 | **Source:** reddit/r/dankmemes
+## Send nudes. It's safe
+![Send nudes. It's safe](20260423-010-send-nudes-its-safe/image.jpg)
+**Score:** 594 | **Source:** reddit/r/memes
 
 ---
 
-## *deeply inhales smog*
-![*deeply inhales smog*](20260423-012-deeply-inhales-smog/image.jpg)
-**Score:** 2,504 | **Source:** reddit/r/memes
+## every single night
+![every single night](20260423-011-every-single-night/image.jpg)
+**Score:** 54 | **Source:** reddit/r/memes
 
 ---
 
-## Selling a limb for some DDR5
-![Selling a limb for some DDR5](20260423-013-selling-a-limb-for-some-ddr5/image.jpg)
-**Score:** 56 | **Source:** reddit/r/memes
+## Same same but different.
+![Same same but different.](20260423-012-same-same-but-different/image.jpg)
+**Score:** 324 | **Source:** reddit/r/dankmemes
 
 ---
 
-## It's in the blood
-![It's in the blood](20260423-014-its-in-the-blood/image.jpg)
-**Score:** 266 | **Source:** reddit/r/dankmemes
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260423-013-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 60 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Clankers ruin it once again
-![Clankers ruin it once again](20260423-015-clankers-ruin-it-once-again/image.jpg)
-**Score:** 396 | **Source:** reddit/r/dankmemes
+## Weird behavior
+![Weird behavior](20260423-014-weird-behavior/image.jpg)
+**Score:** 106 | **Source:** reddit/r/dankmemes
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260423-016-you-okay-babe/image.jpg)
-**Score:** 20,466 | **Source:** reddit/r/dankmemes
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260423-015-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,450 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Someone hold me
-![Someone hold me](20260423-017-someone-hold-me/image.jpg)
-**Score:** 95 | **Source:** reddit/r/memes
+## I'm from very old era, if you know you know
+![I'm from very old era, if you know you k](20260423-016-im-from-very-old-era-if-you-know-you-kno/image.jpg)
+**Score:** 6,585 | **Source:** reddit/r/memes
+
+---
+
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260423-017-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 7,935 | **Source:** reddit/r/memes
 
 ---
 
 ## That is the worst
 ![That is the worst](20260423-018-that-is-the-worst/image.jpg)
-**Score:** 8,414 | **Source:** reddit/r/memes
+**Score:** 2,588 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260423-019-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 7,935 | **Source:** reddit/r/memes
+## It's in the blood
+![It's in the blood](20260423-019-its-in-the-blood/image.jpg)
+**Score:** 266 | **Source:** reddit/r/dankmemes
 
 ---
 
-## r/bald in a nutshell
-![r/bald in a nutshell](20260423-020-rbald-in-a-nutshell/image.jpg)
-**Score:** 7,662 | **Source:** reddit/r/memes
+## that took a turn real quick
+![that took a turn real quick](20260423-020-that-took-a-turn-real-quick/image.jpg)
+**Score:** 255 | **Source:** reddit/r/memes
 
 ---

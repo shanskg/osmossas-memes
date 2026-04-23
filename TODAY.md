@@ -1,72 +1,72 @@
-# Meme Feed — 2026-04-23 23:10
+# Meme Feed — 2026-04-23 23:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260423-001-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,389 | **Source:** reddit/r/BlackPeopleTwitter
+## They have the self-awareness of a wet fart.
+![They have the self-awareness of a wet fa](20260423-001-they-have-the-self-awareness-of-a-wet-fa/image.jpg)
+**Score:** 7,738 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260423-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 3,507 | **Source:** reddit/r/BlackPeopleTwitter
+## skins vs skins
+![skins vs skins](20260423-002-skins-vs-skins/image.jpg)
+**Score:** 1,016 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260423-003-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,144 | **Source:** reddit/r/facepalm
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260423-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,181 | **Source:** reddit/r/facepalm
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260423-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,363 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260423-004-well-did-they-accept-or-not/image.jpg)
+**Score:** 829 | **Source:** reddit/r/facepalm
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260423-005-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 504 | **Source:** reddit/r/technicallythetruth
+## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
+![Oh Oracle, How Will I Die? Surrounded By](20260423-005-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
+**Score:** 3,922 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## A shower is hot
-![A shower is hot](20260423-006-a-shower-is-hot/image.jpg)
-**Score:** 500 | **Source:** reddit/r/technicallythetruth
+## Enjoy your hot water
+![Enjoy your hot water](20260423-006-enjoy-your-hot-water/image.jpg)
+**Score:** 972 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Just slightly...
-![Just slightly...](20260423-007-just-slightly/image.jpg)
-**Score:** 524 | **Source:** reddit/r/suspiciouslyspecific
+## found an old notebook from 6th grade
+![found an old notebook from 6th grade](20260423-007-found-an-old-notebook-from-6th-grade/image.jpg)
+**Score:** 5,697 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Who is your fav Cambodian gas station explosion survivor that is pregnant?
-![Who is your fav Cambodian gas station ex](20260423-008-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
-**Score:** 170 | **Source:** reddit/r/oddlyspecific
+## When the sausages are sus
+![When the sausages are sus](20260423-008-when-the-sausages-are-sus/image.jpg)
+**Score:** 101 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260423-009-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 221 | **Source:** reddit/r/oddlyspecific
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260423-009-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 69 | **Source:** reddit/r/dankmemes
 
 ---
 
-## How could I make noodles without it?
-![How could I make noodles without it?](20260423-010-how-could-i-make-noodles-without-it/image.jpg)
-**Score:** 1,947 | **Source:** reddit/r/memes
+## Lets go im safe
+![Lets go im safe](20260423-010-lets-go-im-safe/image.jpg)
+**Score:** 1,037 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Is this possible?
-![Is this possible?](20260423-011-is-this-possible/image.jpg)
-**Score:** 2,527 | **Source:** reddit/r/memes
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260423-011-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,444 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -76,21 +76,21 @@
 
 ---
 
+## Clankers ruin it once again
+![Clankers ruin it once again](20260423-013-clankers-ruin-it-once-again/image.jpg)
+**Score:** 394 | **Source:** reddit/r/dankmemes
+
+---
+
 ## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
-![Not a my opinion but based on recent com](20260423-013-not-a-my-opinion-but-based-on-recent-com/image.jpg)
+![Not a my opinion but based on recent com](20260423-014-not-a-my-opinion-but-based-on-recent-com/image.jpg)
 **Score:** 1,049 | **Source:** reddit/r/memes
 
 ---
 
-## Selling a limb for some DDR5
-![Selling a limb for some DDR5](20260423-014-selling-a-limb-for-some-ddr5/image.jpg)
-**Score:** 67 | **Source:** reddit/r/memes
-
----
-
-## 5G human radar
-![5G human radar](20260423-015-5g-human-radar/image.jpg)
-**Score:** 3,083 | **Source:** reddit/r/memes
+## That is the worst
+![That is the worst](20260423-015-that-is-the-worst/image.jpg)
+**Score:** 14,175 | **Source:** reddit/r/memes
 
 ---
 
@@ -100,15 +100,15 @@
 
 ---
 
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260423-017-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 318 | **Source:** reddit/r/dankmemes
+## every single night
+![every single night](20260423-017-every-single-night/image.jpg)
+**Score:** 168 | **Source:** reddit/r/memes
 
 ---
 
-## Now we mememaxxing
-![Now we mememaxxing](20260423-018-now-we-mememaxxing/image.jpg)
-**Score:** 737 | **Source:** reddit/r/dankmemes
+## Someone hold me
+![Someone hold me](20260423-018-someone-hold-me/image.jpg)
+**Score:** 157 | **Source:** reddit/r/memes
 
 ---
 
@@ -118,8 +118,8 @@
 
 ---
 
-## It's in the blood
-![It's in the blood](20260423-020-its-in-the-blood/image.jpg)
-**Score:** 273 | **Source:** reddit/r/dankmemes
+## r/bald in a nutshell
+![r/bald in a nutshell](20260423-020-rbald-in-a-nutshell/image.jpg)
+**Score:** 7,705 | **Source:** reddit/r/memes
 
 ---

@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-23 13:00
+# Meme Feed — 2026-04-23 13:10
 
-**Total:** 20 memes | Refresh every 10 min
-
----
-
-## I hate how stupid everyone in this administration is
-![I hate how stupid everyone in this admin](20260423-001-i-hate-how-stupid-everyone-in-this-admin/image.jpg)
-**Score:** 868 | **Source:** reddit/r/WhitePeopleTwitter
+**Total:** 19 memes | Refresh every 10 min
 
 ---
 
-## He's really on top
-![He's really on top](20260423-002-hes-really-on-top/image.jpg)
-**Score:** 1,939 | **Source:** reddit/r/BlackPeopleTwitter
+## makes me sick
+![makes me sick](20260423-001-makes-me-sick/image.jpg)
+**Score:** 764 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## At this point, it may even be a genetic trait
+![At this point, it may even be a genetic ](20260423-002-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+**Score:** 7,019 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -22,57 +22,57 @@
 
 ---
 
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260423-004-well-did-they-accept-or-not/image.jpg)
+**Score:** 827 | **Source:** reddit/r/facepalm
+
+---
+
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260423-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260423-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,365 | **Source:** reddit/r/facepalm
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260423-005-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,140 | **Source:** reddit/r/facepalm
+## Super rich or bus driver?
+![Super rich or bus driver?](20260423-006-super-rich-or-bus-driver/image.jpg)
+**Score:** 31,010 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## It's easy to find a 1-step solution if the prior guesses weren't considered.
-![It's easy to find a 1-step solution if t](20260423-006-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
-**Score:** 2,402 | **Source:** reddit/r/technicallythetruth
+## The detective didn't find it
+![The detective didn't find it](20260423-007-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,769 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## A shower is hot
-![A shower is hot](20260423-007-a-shower-is-hot/image.jpg)
-**Score:** 207 | **Source:** reddit/r/technicallythetruth
+## Among cells
+![Among cells](20260423-008-among-cells/image.jpg)
+**Score:** 802 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## He's in there somewhere
-![He's in there somewhere](20260423-008-hes-in-there-somewhere/image.jpg)
-**Score:** 1,527 | **Source:** reddit/r/suspiciouslyspecific
+## Look at this track in F-zero (1991, SNES)
+![Look at this track in F-zero (1991, SNES](20260423-009-look-at-this-track-in-f-zero-1991-snes/image.jpg)
+**Score:** 67 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Among us irl 🤯
-![Among us irl 🤯](20260423-009-among-us-irl/image.jpg)
-**Score:** 240 | **Source:** reddit/r/suspiciouslyspecific
+## Who am i to judge.
+![Who am i to judge.](20260423-010-who-am-i-to-judge/image.jpg)
+**Score:** 985 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Don't do that
-![Don't do that](20260423-010-dont-do-that/image.jpg)
-**Score:** 342 | **Source:** reddit/r/oddlyspecific
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260423-011-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 7,397 | **Source:** reddit/r/memes
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260423-011-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 624 | **Source:** reddit/r/HolUp
-
----
-
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260423-012-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,447 | **Source:** reddit/r/dankmemes
+## Clankers ruin it once again
+![Clankers ruin it once again](20260423-012-clankers-ruin-it-once-again/image.jpg)
+**Score:** 400 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -82,44 +82,38 @@
 
 ---
 
+## Same same but different.
+![Same same but different.](20260423-014-same-same-but-different/image.jpg)
+**Score:** 230 | **Source:** reddit/r/dankmemes
+
+---
+
 ## It's in the blood
-![It's in the blood](20260423-014-its-in-the-blood/image.jpg)
+![It's in the blood](20260423-015-its-in-the-blood/image.jpg)
 **Score:** 264 | **Source:** reddit/r/dankmemes
 
 ---
 
-## r/bald in a nutshell
-![r/bald in a nutshell](20260423-015-rbald-in-a-nutshell/image.jpg)
-**Score:** 7,653 | **Source:** reddit/r/memes
-
----
-
-## Now we mememaxxing
-![Now we mememaxxing](20260423-016-now-we-mememaxxing/image.jpg)
-**Score:** 734 | **Source:** reddit/r/dankmemes
-
----
-
 ## He is really concerned.
-![He is really concerned.](20260423-017-he-is-really-concerned/image.jpg)
+![He is really concerned.](20260423-016-he-is-really-concerned/image.jpg)
 **Score:** 142 | **Source:** reddit/r/dankmemes
 
 ---
 
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260423-018-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 309 | **Source:** reddit/r/dankmemes
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260423-017-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 675 | **Source:** reddit/r/dankmemes
 
 ---
 
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260423-019-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 67 | **Source:** reddit/r/dankmemes
+## *deeply inhales smog*
+![*deeply inhales smog*](20260423-018-deeply-inhales-smog/image.jpg)
+**Score:** 2,432 | **Source:** reddit/r/memes
 
 ---
 
-## Is it really necessary?
-![Is it really necessary?](20260423-020-is-it-really-necessary/image.jpg)
-**Score:** 4,078 | **Source:** reddit/r/memes
+## That is the worst
+![That is the worst](20260423-019-that-is-the-worst/image.jpg)
+**Score:** 6,406 | **Source:** reddit/r/memes
 
 ---

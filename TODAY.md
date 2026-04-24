@@ -1,60 +1,60 @@
-# Meme Feed — 2026-04-24 11:20
+# Meme Feed — 2026-04-24 11:31
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## At this point, it may even be a genetic trait
-![At this point, it may even be a genetic ](20260424-001-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
-**Score:** 7,021 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260424-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,074 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260424-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260424-001-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,369 | **Source:** reddit/r/facepalm
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260424-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 831 | **Source:** reddit/r/facepalm
+## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
+![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260424-002-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
+**Score:** 11,002 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260424-005-i-just-opened-youtube/image.jpg)
-**Score:** 8,968 | **Source:** reddit/r/technicallythetruth
+## He's in there somewhere
+![He's in there somewhere](20260424-003-hes-in-there-somewhere/image.jpg)
+**Score:** 1,527 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## The detective didn't find it
-![The detective didn't find it](20260424-006-the-detective-didnt-find-it/image.jpg)
-**Score:** 33,777 | **Source:** reddit/r/technicallythetruth
+## My friend sent me this photo
+![My friend sent me this photo](20260424-004-my-friend-sent-me-this-photo/image.jpg)
+**Score:** 848 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Sus adventures
-![Sus adventures](20260424-007-sus-adventures/image.jpg)
-**Score:** 134 | **Source:** reddit/r/suspiciouslyspecific
+## Darker and darker
+![Darker and darker](20260424-005-darker-and-darker/image.jpg)
+**Score:** 285 | **Source:** reddit/r/HolUp
 
 ---
 
-## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260424-008-brother-what-even-are-these-polls/image.jpg)
-**Score:** 166 | **Source:** reddit/r/oddlyspecific
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260424-006-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,451 | **Source:** reddit/r/dankmemes
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260424-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 639 | **Source:** reddit/r/HolUp
+## Weird behavior
+![Weird behavior](20260424-007-weird-behavior/image.jpg)
+**Score:** 109 | **Source:** reddit/r/dankmemes
+
+---
+
+## There goes another one
+![There goes another one](20260424-008-there-goes-another-one/image.jpg)
+**Score:** 92 | **Source:** reddit/r/dankmemes
+
+---
+
+## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
+![Not a my opinion but based on recent com](20260424-009-not-a-my-opinion-but-based-on-recent-com/image.jpg)
+**Score:** 1,868 | **Source:** reddit/r/memes
 
 ---
 
@@ -64,15 +64,15 @@
 
 ---
 
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260424-011-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 140 | **Source:** reddit/r/dankmemes
+## How could I make noodles without it?
+![How could I make noodles without it?](20260424-011-how-could-i-make-noodles-without-it/image.jpg)
+**Score:** 3,519 | **Source:** reddit/r/memes
 
 ---
 
-## that took a turn real quick
-![that took a turn real quick](20260424-012-that-took-a-turn-real-quick/image.jpg)
-**Score:** 3,497 | **Source:** reddit/r/memes
+## Drop you best meme
+![Drop you best meme](20260424-012-drop-you-best-meme/image.jpg)
+**Score:** 335 | **Source:** reddit/r/memes
 
 ---
 
@@ -82,44 +82,44 @@
 
 ---
 
-## Weird behavior
-![Weird behavior](20260424-014-weird-behavior/image.jpg)
-**Score:** 109 | **Source:** reddit/r/dankmemes
+## Now we mememaxxing
+![Now we mememaxxing](20260424-014-now-we-mememaxxing/image.jpg)
+**Score:** 748 | **Source:** reddit/r/dankmemes
 
 ---
 
-## love having a full-time job and still being in a constant state of pick two and 
-![love having a full-time job and still be](20260424-015-love-having-a-full-time-job-and-still-be/image.jpg)
-**Score:** 78 | **Source:** reddit/r/memes
-
----
-
-## Inescapable
-![Inescapable](20260424-016-inescapable/image.jpg)
-**Score:** 68 | **Source:** reddit/r/dankmemes
-
----
-
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260424-017-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,451 | **Source:** reddit/r/dankmemes
+## International memes
+![International memes](20260424-015-international-memes/image.jpg)
+**Score:** 86 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## the worst thing you can do in the dad's car
-![the worst thing you can do in the dad's ](20260424-018-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
+![the worst thing you can do in the dad's ](20260424-016-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
 **Score:** 83 | **Source:** reddit/r/memes
 
 ---
 
 ## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260424-019-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+![How do I get off Mr. Reddit's Wild ride?](20260424-017-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
 **Score:** 974 | **Source:** reddit/r/memes
 
 ---
 
-## International memes
-![International memes](20260424-020-international-memes/image.jpg)
-**Score:** 86 | **Source:** reddit/r/dankmemes
+## October Be A Feast
+![October Be A Feast](20260424-018-october-be-a-feast/image.jpg)
+**Score:** 50 | **Source:** reddit/r/memes
+
+---
+
+## love having a full-time job and still being in a constant state of pick two and 
+![love having a full-time job and still be](20260424-019-love-having-a-full-time-job-and-still-be/image.jpg)
+**Score:** 78 | **Source:** reddit/r/memes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260424-020-dont-disturb-me/image.jpg)
+**Score:** 1,009 | **Source:** reddit/r/dankmemes
 
 ---

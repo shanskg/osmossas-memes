@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-24 15:40
+# Meme Feed — 2026-04-24 15:50
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Yes, we trust his market manipulation skill.
-![Yes, we trust his market manipulation sk](20260424-001-yes-we-trust-his-market-manipulation-ski/image.jpg)
-**Score:** 94 | **Source:** reddit/r/WhitePeopleTwitter
+## Me too, George.
+![Me too, George.](20260424-001-me-too-george/image.jpg)
+**Score:** 2,642 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## THAT IS NOT HOW MATH AND PERCENTAGES WORK YOU BRAINDEAD DONKEY
-![THAT IS NOT HOW MATH AND PERCENTAGES WOR](20260424-002-that-is-not-how-math-and-percentages-wor/image.jpg)
-**Score:** 5,897 | **Source:** reddit/r/WhitePeopleTwitter
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260424-002-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,361 | **Source:** reddit/r/facepalm
 
 ---
 
-## Word association Schoolboy Q
-![Word association Schoolboy Q](20260424-003-word-association-schoolboy-q/image.jpg)
-**Score:** 146 | **Source:** reddit/r/BlackPeopleTwitter
+## Some inflation is good
+![Some inflation is good](20260424-003-some-inflation-is-good/image.jpg)
+**Score:** 15,686 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260424-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,181 | **Source:** reddit/r/facepalm
+## My 7 year old would love to know what others think of his drawing! Sus?
+![My 7 year old would love to know what ot](20260424-004-my-7-year-old-would-love-to-know-what-ot/image.jpg)
+**Score:** 1,248 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260424-005-well-did-they-accept-or-not/image.jpg)
-**Score:** 834 | **Source:** reddit/r/facepalm
+## When the sausages are sus
+![When the sausages are sus](20260424-005-when-the-sausages-are-sus/image.jpg)
+**Score:** 102 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## It's easy to find a 1-step solution if the prior guesses weren't considered.
-![It's easy to find a 1-step solution if t](20260424-006-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
-**Score:** 2,404 | **Source:** reddit/r/technicallythetruth
+## Don't do that
+![Don't do that](20260424-006-dont-do-that/image.jpg)
+**Score:** 344 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260424-007-i-cast-stairs-wrong-subreddit/image.jpg)
-**Score:** 2,562 | **Source:** reddit/r/technicallythetruth
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260424-007-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,331 | **Source:** reddit/r/HolUp
 
 ---
 
-## SUStainable Copper
-![SUStainable Copper](20260424-008-sustainable-copper/image.jpg)
-**Score:** 256 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260424-009-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 235 | **Source:** reddit/r/oddlyspecific
-
----
-
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260424-010-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 636 | **Source:** reddit/r/HolUp
-
----
-
-## You Okay Babe?
-![You Okay Babe?](20260424-011-you-okay-babe/image.jpg)
-**Score:** 20,529 | **Source:** reddit/r/dankmemes
-
----
-
-## Wild Thumbnail and Name for a Tax
-![Wild Thumbnail and Name for a Tax](20260424-012-wild-thumbnail-and-name-for-a-tax/image.jpg)
-**Score:** 146 | **Source:** reddit/r/memes
-
----
-
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260424-013-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 325 | **Source:** reddit/r/dankmemes
-
----
-
-## Weird behavior
-![Weird behavior](20260424-014-weird-behavior/image.jpg)
-**Score:** 113 | **Source:** reddit/r/dankmemes
+## Futabu anyone ???
+![Futabu anyone ???](20260424-008-futabu-anyone/image.jpg)
+**Score:** 2,262 | **Source:** reddit/r/HolUp
 
 ---
 
 ## It's like a hierarchy in here
-![It's like a hierarchy in here](20260424-015-its-like-a-hierarchy-in-here/image.jpg)
+![It's like a hierarchy in here](20260424-009-its-like-a-hierarchy-in-here/image.jpg)
 **Score:** 101 | **Source:** reddit/r/memes
 
 ---
 
-## love having a full-time job and still being in a constant state of pick two and 
-![love having a full-time job and still be](20260424-016-love-having-a-full-time-job-and-still-be/image.jpg)
-**Score:** 94 | **Source:** reddit/r/memes
+## Inescapable
+![Inescapable](20260424-010-inescapable/image.jpg)
+**Score:** 72 | **Source:** reddit/r/dankmemes
 
 ---
 
-## that took a turn real quick
-![that took a turn real quick](20260424-017-that-took-a-turn-real-quick/image.jpg)
-**Score:** 3,685 | **Source:** reddit/r/memes
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260424-011-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 140 | **Source:** reddit/r/dankmemes
 
 ---
 
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260424-018-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 82 | **Source:** reddit/r/dankmemes
+## What would you do if there was a ghoul child right in front of you?
+![What would you do if there was a ghoul c](20260424-012-what-would-you-do-if-there-was-a-ghoul-c/image.jpg)
+**Score:** 623 | **Source:** reddit/r/memes
+
+---
+
+## Drop you best meme
+![Drop you best meme](20260424-013-drop-you-best-meme/image.jpg)
+**Score:** 391 | **Source:** reddit/r/memes
+
+---
+
+## every single night
+![every single night](20260424-014-every-single-night/image.jpg)
+**Score:** 231 | **Source:** reddit/r/memes
+
+---
+
+## Same same but different.
+![Same same but different.](20260424-015-same-same-but-different/image.jpg)
+**Score:** 1,548 | **Source:** reddit/r/dankmemes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260424-016-you-okay-babe/image.jpg)
+**Score:** 20,529 | **Source:** reddit/r/dankmemes
+
+---
+
+## There goes another one
+![There goes another one](20260424-017-there-goes-another-one/image.jpg)
+**Score:** 97 | **Source:** reddit/r/dankmemes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260424-018-fatherhood-baaaaad/image.jpg)
+**Score:** 2,899 | **Source:** reddit/r/dankmemes
+
+---
+
+## International memes
+![International memes](20260424-019-international-memes/image.jpg)
+**Score:** 95 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## the worst thing you can do in the dad's car
-![the worst thing you can do in the dad's ](20260424-019-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
+![the worst thing you can do in the dad's ](20260424-020-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
 **Score:** 89 | **Source:** reddit/r/memes
-
----
-
-## Are you sure
-![Are you sure](20260424-020-are-you-sure/image.jpg)
-**Score:** 116 | **Source:** reddit/r/dankmemes
 
 ---

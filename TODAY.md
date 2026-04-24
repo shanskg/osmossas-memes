@@ -1,101 +1,125 @@
-# Meme Feed — 2026-04-24 10:40
+# Meme Feed — 2026-04-24 10:50
 
-**Total:** 16 memes | Refresh every 10 min
-
----
-
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260424-001-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,069 | **Source:** reddit/r/BlackPeopleTwitter
+**Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260424-002-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,140 | **Source:** reddit/r/facepalm
+## They have the self-awareness of a wet fart.
+![They have the self-awareness of a wet fa](20260424-001-they-have-the-self-awareness-of-a-wet-fa/image.jpg)
+**Score:** 7,835 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Just slightly...
-![Just slightly...](20260424-003-just-slightly/image.jpg)
-**Score:** 524 | **Source:** reddit/r/suspiciouslyspecific
+## U.S. Rep. David Scott (D-GA) has died at the age of 80. He was running for re-el
+![U.S. Rep. David Scott (D-GA) has died at](20260424-002-us-rep-david-scott-d-ga-has-died-at-the-/image.jpg)
+**Score:** 832 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## geometry sus
-![geometry sus](20260424-004-geometry-sus/image.jpg)
-**Score:** 74 | **Source:** reddit/r/suspiciouslyspecific
+## He's really on top
+![He's really on top](20260424-003-hes-really-on-top/image.jpg)
+**Score:** 1,936 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260424-005-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 230 | **Source:** reddit/r/oddlyspecific
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260424-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,369 | **Source:** reddit/r/facepalm
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260424-006-futabu-anyone/image.jpg)
-**Score:** 2,259 | **Source:** reddit/r/HolUp
+## He didn't sound like much of anything in there
+![He didn't sound like much of anything in](20260424-005-he-didnt-sound-like-much-of-anything-in-/image.jpg)
+**Score:** 1,833 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260424-007-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 325 | **Source:** reddit/r/dankmemes
+## i just opened youtube
+![i just opened youtube](20260424-006-i-just-opened-youtube/image.jpg)
+**Score:** 8,968 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Are you sure
-![Are you sure](20260424-008-are-you-sure/image.jpg)
-**Score:** 111 | **Source:** reddit/r/dankmemes
-
----
-
-## Drop you best meme
-![Drop you best meme](20260424-009-drop-you-best-meme/image.jpg)
-**Score:** 335 | **Source:** reddit/r/memes
-
----
-
-## Such a shame
-![Such a shame](20260424-010-such-a-shame/image.jpg)
-**Score:** 179 | **Source:** reddit/r/memes
-
----
-
-## October Be A Feast
-![October Be A Feast](20260424-011-october-be-a-feast/image.jpg)
-**Score:** 50 | **Source:** reddit/r/memes
-
----
-
-## Now we mememaxxing
-![Now we mememaxxing](20260424-012-now-we-mememaxxing/image.jpg)
-**Score:** 748 | **Source:** reddit/r/dankmemes
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260424-007-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 402 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## that took a turn real quick
-![that took a turn real quick](20260424-013-that-took-a-turn-real-quick/image.jpg)
+![that took a turn real quick](20260424-008-that-took-a-turn-real-quick/image.jpg)
 **Score:** 3,497 | **Source:** reddit/r/memes
 
 ---
 
-## Same same but different.
-![Same same but different.](20260424-014-same-same-but-different/image.jpg)
-**Score:** 1,489 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260424-009-that-is-the-worst/image.jpg)
+**Score:** 17,135 | **Source:** reddit/r/memes
 
 ---
 
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260424-015-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 311 | **Source:** reddit/r/dankmemes
+## Wild Thumbnail and Name for a Tax
+![Wild Thumbnail and Name for a Tax](20260424-010-wild-thumbnail-and-name-for-a-tax/image.jpg)
+**Score:** 123 | **Source:** reddit/r/memes
 
 ---
 
-## I've got my priorities straight!
-![I've got my priorities straight!](20260424-016-ive-got-my-priorities-straight/image.jpg)
-**Score:** 71 | **Source:** reddit/r/dankmemes
+## Lets go im safe
+![Lets go im safe](20260424-011-lets-go-im-safe/image.jpg)
+**Score:** 1,060 | **Source:** reddit/r/dankmemes
+
+---
+
+## There goes another one
+![There goes another one](20260424-012-there-goes-another-one/image.jpg)
+**Score:** 92 | **Source:** reddit/r/dankmemes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260424-013-fatherhood-baaaaad/image.jpg)
+**Score:** 2,671 | **Source:** reddit/r/dankmemes
+
+---
+
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260424-014-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,306 | **Source:** reddit/r/dankmemes
+
+---
+
+## every single night
+![every single night](20260424-015-every-single-night/image.jpg)
+**Score:** 226 | **Source:** reddit/r/memes
+
+---
+
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260424-016-got-to-time-it-just-right-before-the-amb/image.jpg)
+**Score:** 52 | **Source:** reddit/r/dankmemes
+
+---
+
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260424-017-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 81 | **Source:** reddit/r/dankmemes
+
+---
+
+## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
+![Not a my opinion but based on recent com](20260424-018-not-a-my-opinion-but-based-on-recent-com/image.jpg)
+**Score:** 1,868 | **Source:** reddit/r/memes
+
+---
+
+## the worst thing you can do in the dad's car
+![the worst thing you can do in the dad's ](20260424-019-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
+**Score:** 83 | **Source:** reddit/r/memes
+
+---
+
+## It's like a hierarchy in here
+![It's like a hierarchy in here](20260424-020-its-like-a-hierarchy-in-here/image.jpg)
+**Score:** 96 | **Source:** reddit/r/memes
 
 ---

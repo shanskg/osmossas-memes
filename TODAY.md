@@ -1,66 +1,66 @@
-# Meme Feed — 2026-04-24 18:20
+# Meme Feed — 2026-04-24 18:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## I hate how stupid everyone in this administration is
-![I hate how stupid everyone in this admin](20260424-001-i-hate-how-stupid-everyone-in-this-admin/image.jpg)
-**Score:** 1,335 | **Source:** reddit/r/WhitePeopleTwitter
+## Leave the whales alone
+![Leave the whales alone](20260424-001-leave-the-whales-alone/image.jpg)
+**Score:** 19,179 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260424-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,077 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260424-003-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,403 | **Source:** reddit/r/BlackPeopleTwitter
+## skins vs skins
+![skins vs skins](20260424-002-skins-vs-skins/image.jpg)
+**Score:** 1,015 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260424-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260424-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,170 | **Source:** reddit/r/facepalm
 
 ---
 
-## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
-![Oh Oracle, How Will I Die? Surrounded By](20260424-005-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
-**Score:** 3,926 | **Source:** reddit/r/technicallythetruth
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260424-004-well-did-they-accept-or-not/image.jpg)
+**Score:** 832 | **Source:** reddit/r/facepalm
 
 ---
 
-## Among who?
-![Among who?](20260424-006-among-who/image.jpg)
-**Score:** 3,789 | **Source:** reddit/r/suspiciouslyspecific
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260424-005-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,404 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260424-007-brother-what-even-are-these-polls/image.jpg)
-**Score:** 199 | **Source:** reddit/r/oddlyspecific
+## 125 per hour in Oregon
+![125 per hour in Oregon](20260424-006-125-per-hour-in-oregon/image.jpg)
+**Score:** 12,637 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## What a serene ceremony..
-![What a serene ceremony..](20260424-008-what-a-serene-ceremony/image.jpg)
-**Score:** 339 | **Source:** reddit/r/HolUp
+## He's in there somewhere
+![He's in there somewhere](20260424-007-hes-in-there-somewhere/image.jpg)
+**Score:** 1,530 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Just British Things
-![Just British Things](20260424-009-just-british-things/image.jpg)
-**Score:** 7,237 | **Source:** reddit/r/memes
+## Johnny SusStar
+![Johnny SusStar](20260424-008-johnny-susstar/image.jpg)
+**Score:** 74 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## October Be A Feast
-![October Be A Feast](20260424-010-october-be-a-feast/image.jpg)
-**Score:** 73 | **Source:** reddit/r/memes
+## AI is everywhere
+![AI is everywhere](20260424-009-ai-is-everywhere/image.jpg)
+**Score:** 971 | **Source:** reddit/r/HolUp
+
+---
+
+## 5G human radar
+![5G human radar](20260424-010-5g-human-radar/image.jpg)
+**Score:** 3,511 | **Source:** reddit/r/memes
 
 ---
 
@@ -70,21 +70,21 @@
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260424-012-you-okay-babe/image.jpg)
-**Score:** 20,524 | **Source:** reddit/r/dankmemes
-
----
-
-## Lets go im safe
-![Lets go im safe](20260424-013-lets-go-im-safe/image.jpg)
-**Score:** 1,070 | **Source:** reddit/r/dankmemes
-
----
-
 ## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260424-014-fatherhood-baaaaad/image.jpg)
+!["Fatherhood baaaaad!!!"](20260424-012-fatherhood-baaaaad/image.jpg)
 **Score:** 3,003 | **Source:** reddit/r/dankmemes
+
+---
+
+## That is the worst
+![That is the worst](20260424-013-that-is-the-worst/image.jpg)
+**Score:** 17,554 | **Source:** reddit/r/memes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260424-014-you-okay-babe/image.jpg)
+**Score:** 20,524 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -94,15 +94,15 @@
 
 ---
 
-## That is the worst
-![That is the worst](20260424-016-that-is-the-worst/image.jpg)
-**Score:** 17,554 | **Source:** reddit/r/memes
+## Are you sure
+![Are you sure](20260424-016-are-you-sure/image.jpg)
+**Score:** 117 | **Source:** reddit/r/dankmemes
 
 ---
 
-## 5G human radar
-![5G human radar](20260424-017-5g-human-radar/image.jpg)
-**Score:** 3,511 | **Source:** reddit/r/memes
+## Just British Things
+![Just British Things](20260424-017-just-british-things/image.jpg)
+**Score:** 7,237 | **Source:** reddit/r/memes
 
 ---
 
@@ -112,14 +112,14 @@
 
 ---
 
-## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260424-019-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
-**Score:** 1,723 | **Source:** reddit/r/memes
+## Lets go im safe
+![Lets go im safe](20260424-019-lets-go-im-safe/image.jpg)
+**Score:** 1,070 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Are you sure
-![Are you sure](20260424-020-are-you-sure/image.jpg)
-**Score:** 117 | **Source:** reddit/r/dankmemes
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260424-020-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 1,723 | **Source:** reddit/r/memes
 
 ---

@@ -1,4 +1,4 @@
-# Meme Feed — 2026-04-24 17:31
+# Meme Feed — 2026-04-24 17:40
 
 **Total:** 20 memes | Refresh every 10 min
 
@@ -10,111 +10,111 @@
 
 ---
 
-## He's gambling with world economy, no one can disagree.
-![He's gambling with world economy, no one](20260424-002-hes-gambling-with-world-economy-no-one-c/image.jpg)
-**Score:** 3,866 | **Source:** reddit/r/WhitePeopleTwitter
+## Leave the whales alone
+![Leave the whales alone](20260424-002-leave-the-whales-alone/image.jpg)
+**Score:** 19,179 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260424-003-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,668 | **Source:** reddit/r/BlackPeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260424-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,077 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## skins vs skins
-![skins vs skins](20260424-004-skins-vs-skins/image.jpg)
-**Score:** 1,015 | **Source:** reddit/r/BlackPeopleTwitter
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260424-004-well-did-they-accept-or-not/image.jpg)
+**Score:** 835 | **Source:** reddit/r/facepalm
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260424-005-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,145 | **Source:** reddit/r/facepalm
+## The detective didn't find it
+![The detective didn't find it](20260424-005-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,772 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260424-006-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 675 | **Source:** reddit/r/facepalm
+## How did none of you notice this?
+![How did none of you notice this?](20260424-006-how-did-none-of-you-notice-this/image.jpg)
+**Score:** 1,078 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260424-007-enjoy-your-hot-water/image.jpg)
-**Score:** 968 | **Source:** reddit/r/technicallythetruth
-
----
-
-## The perfect combination of heading and Reddit mobile jank
-![The perfect combination of heading and R](20260424-008-the-perfect-combination-of-heading-and-r/image.jpg)
-**Score:** 232 | **Source:** reddit/r/technicallythetruth
-
----
-
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260424-009-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 75 | **Source:** reddit/r/oddlyspecific
-
----
-
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260424-010-an-augmented-reality-sandbox/image.jpg)
-**Score:** 600 | **Source:** reddit/r/HolUp
-
----
-
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260424-011-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 642 | **Source:** reddit/r/HolUp
-
----
-
-## Same same but different.
-![Same same but different.](20260424-012-same-same-but-different/image.jpg)
-**Score:** 1,584 | **Source:** reddit/r/dankmemes
-
----
-
-## That is the worst
-![That is the worst](20260424-013-that-is-the-worst/image.jpg)
-**Score:** 6,135 | **Source:** reddit/r/dankmemes
-
----
-
-## There goes another one
-![There goes another one](20260424-014-there-goes-another-one/image.jpg)
-**Score:** 92 | **Source:** reddit/r/dankmemes
-
----
-
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260424-015-fatherhood-baaaaad/image.jpg)
-**Score:** 2,956 | **Source:** reddit/r/dankmemes
+## It may appear to be anime, but if you take a closer look
+![It may appear to be anime, but if you ta](20260424-007-it-may-appear-to-be-anime-but-if-you-tak/image.jpg)
+**Score:** 383 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
 ## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260424-016-excuse-me-pardon-me-coming-thru/image.jpg)
+![excuse me pardon me coming thru](20260424-008-excuse-me-pardon-me-coming-thru/image.jpg)
 **Score:** 310 | **Source:** reddit/r/dankmemes
 
 ---
 
+## That is the worst
+![That is the worst](20260424-009-that-is-the-worst/image.jpg)
+**Score:** 6,135 | **Source:** reddit/r/dankmemes
+
+---
+
 ## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260424-017-daredevil-spoilers-if-you-care/image.jpg)
+![Daredevil Spoilers if you care](20260424-010-daredevil-spoilers-if-you-care/image.jpg)
 **Score:** 139 | **Source:** reddit/r/dankmemes
 
 ---
 
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260424-011-fatherhood-baaaaad/image.jpg)
+**Score:** 2,956 | **Source:** reddit/r/dankmemes
+
+---
+
+## Drop you best meme
+![Drop you best meme](20260424-012-drop-you-best-meme/image.jpg)
+**Score:** 420 | **Source:** reddit/r/memes
+
+---
+
 ## Such a shame
-![Such a shame](20260424-018-such-a-shame/image.jpg)
+![Such a shame](20260424-013-such-a-shame/image.jpg)
 **Score:** 1,500 | **Source:** reddit/r/memes
 
 ---
 
-## It's like a hierarchy in here
-![It's like a hierarchy in here](20260424-019-its-like-a-hierarchy-in-here/image.jpg)
-**Score:** 100 | **Source:** reddit/r/memes
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260424-014-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 9,128 | **Source:** reddit/r/memes
+
+---
+
+## Wild Thumbnail and Name for a Tax
+![Wild Thumbnail and Name for a Tax](20260424-015-wild-thumbnail-and-name-for-a-tax/image.jpg)
+**Score:** 162 | **Source:** reddit/r/memes
+
+---
+
+## October Be A Feast
+![October Be A Feast](20260424-016-october-be-a-feast/image.jpg)
+**Score:** 64 | **Source:** reddit/r/memes
+
+---
+
+## 5G human radar
+![5G human radar](20260424-017-5g-human-radar/image.jpg)
+**Score:** 3,497 | **Source:** reddit/r/memes
+
+---
+
+## There goes another one
+![There goes another one](20260424-018-there-goes-another-one/image.jpg)
+**Score:** 92 | **Source:** reddit/r/dankmemes
+
+---
+
+## That is the worst
+![That is the worst](20260424-019-that-is-the-worst/image.jpg)
+**Score:** 17,497 | **Source:** reddit/r/memes
 
 ---
 

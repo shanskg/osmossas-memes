@@ -1,42 +1,42 @@
-# Meme Feed — 2026-04-24 16:00
+# Meme Feed — 2026-04-24 16:10
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260424-001-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,070 | **Source:** reddit/r/BlackPeopleTwitter
+## I hate how stupid everyone in this administration is
+![I hate how stupid everyone in this admin](20260424-001-i-hate-how-stupid-everyone-in-this-admin/image.jpg)
+**Score:** 1,336 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Leave the whales alone
-![Leave the whales alone](20260424-002-leave-the-whales-alone/image.jpg)
-**Score:** 19,183 | **Source:** reddit/r/BlackPeopleTwitter
+## Word association Schoolboy Q
+![Word association Schoolboy Q](20260424-002-word-association-schoolboy-q/image.jpg)
+**Score:** 146 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260424-003-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,138 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260424-003-well-did-they-accept-or-not/image.jpg)
+**Score:** 835 | **Source:** reddit/r/facepalm
 
 ---
 
-## The perfect combination of heading and Reddit mobile jank
-![The perfect combination of heading and R](20260424-004-the-perfect-combination-of-heading-and-r/image.jpg)
-**Score:** 229 | **Source:** reddit/r/technicallythetruth
+## outperforming the inflation rate
+![outperforming the inflation rate](20260424-004-outperforming-the-inflation-rate/image.jpg)
+**Score:** 65,050 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260424-005-i-just-opened-youtube/image.jpg)
-**Score:** 8,973 | **Source:** reddit/r/technicallythetruth
+## A shower is hot
+![A shower is hot](20260424-005-a-shower-is-hot/image.jpg)
+**Score:** 760 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The Hash-Slinging Slasher
-![The Hash-Slinging Slasher](20260424-006-the-hash-slinging-slasher/image.jpg)
-**Score:** 435 | **Source:** reddit/r/suspiciouslyspecific
+## The Great Amongball...
+![The Great Amongball...](20260424-006-the-great-amongball/image.jpg)
+**Score:** 83 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
@@ -58,39 +58,39 @@
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260424-010-you-okay-babe/image.jpg)
-**Score:** 20,529 | **Source:** reddit/r/dankmemes
-
----
-
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260424-011-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 9,127 | **Source:** reddit/r/memes
-
----
-
-## What would you do if there was a ghoul child right in front of you?
-![What would you do if there was a ghoul c](20260424-012-what-would-you-do-if-there-was-a-ghoul-c/image.jpg)
-**Score:** 623 | **Source:** reddit/r/memes
-
----
-
 ## Lets go im safe
-![Lets go im safe](20260424-013-lets-go-im-safe/image.jpg)
+![Lets go im safe](20260424-010-lets-go-im-safe/image.jpg)
 **Score:** 1,074 | **Source:** reddit/r/dankmemes
 
 ---
 
+## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
+![Not a my opinion but based on recent com](20260424-011-not-a-my-opinion-but-based-on-recent-com/image.jpg)
+**Score:** 1,954 | **Source:** reddit/r/memes
+
+---
+
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260424-012-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 325 | **Source:** reddit/r/dankmemes
+
+---
+
 ## How could I make noodles without it?
-![How could I make noodles without it?](20260424-014-how-could-i-make-noodles-without-it/image.jpg)
+![How could I make noodles without it?](20260424-013-how-could-i-make-noodles-without-it/image.jpg)
 **Score:** 3,728 | **Source:** reddit/r/memes
 
 ---
 
-## That is the worst
-![That is the worst](20260424-015-that-is-the-worst/image.jpg)
-**Score:** 6,094 | **Source:** reddit/r/dankmemes
+## Drop you best meme
+![Drop you best meme](20260424-014-drop-you-best-meme/image.jpg)
+**Score:** 391 | **Source:** reddit/r/memes
+
+---
+
+## Are you sure
+![Are you sure](20260424-015-are-you-sure/image.jpg)
+**Score:** 116 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -100,26 +100,26 @@
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260424-017-dont-disturb-me/image.jpg)
-**Score:** 1,007 | **Source:** reddit/r/dankmemes
+## October Be A Feast
+![October Be A Feast](20260424-017-october-be-a-feast/image.jpg)
+**Score:** 63 | **Source:** reddit/r/memes
 
 ---
 
-## Inescapable
-![Inescapable](20260424-018-inescapable/image.jpg)
-**Score:** 72 | **Source:** reddit/r/dankmemes
+## Couldn't be me
+![Couldn't be me](20260424-018-couldnt-be-me/image.jpg)
+**Score:** 590 | **Source:** reddit/r/dankmemes
 
 ---
 
-## 5G human radar
-![5G human radar](20260424-019-5g-human-radar/image.jpg)
-**Score:** 3,488 | **Source:** reddit/r/memes
+## It's like a hierarchy in here
+![It's like a hierarchy in here](20260424-019-its-like-a-hierarchy-in-here/image.jpg)
+**Score:** 101 | **Source:** reddit/r/memes
 
 ---
 
-## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
-![Not a my opinion but based on recent com](20260424-020-not-a-my-opinion-but-based-on-recent-com/image.jpg)
-**Score:** 1,954 | **Source:** reddit/r/memes
+## I've got my priorities straight!
+![I've got my priorities straight!](20260424-020-ive-got-my-priorities-straight/image.jpg)
+**Score:** 69 | **Source:** reddit/r/dankmemes
 
 ---

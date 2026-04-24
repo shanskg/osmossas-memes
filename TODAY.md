@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-24 15:10
+# Meme Feed — 2026-04-24 15:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260424-001-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,406 | **Source:** reddit/r/BlackPeopleTwitter
+## He's really on top
+![He's really on top](20260424-001-hes-really-on-top/image.jpg)
+**Score:** 1,940 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260424-002-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 584 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260424-002-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,361 | **Source:** reddit/r/facepalm
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260424-003-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 501 | **Source:** reddit/r/technicallythetruth
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260424-003-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,138 | **Source:** reddit/r/facepalm
 
 ---
 
-## 125 per hour in Oregon
-![125 per hour in Oregon](20260424-004-125-per-hour-in-oregon/image.jpg)
-**Score:** 12,639 | **Source:** reddit/r/technicallythetruth
+## Some inflation is good
+![Some inflation is good](20260424-004-some-inflation-is-good/image.jpg)
+**Score:** 15,686 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## SUStainable Copper
-![SUStainable Copper](20260424-005-sustainable-copper/image.jpg)
-**Score:** 256 | **Source:** reddit/r/suspiciouslyspecific
+## outperforming the inflation rate
+![outperforming the inflation rate](20260424-005-outperforming-the-inflation-rate/image.jpg)
+**Score:** 65,050 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260424-006-ai-is-everywhere/image.jpg)
-**Score:** 968 | **Source:** reddit/r/HolUp
+## It's Sabotage
+![It's Sabotage](20260424-006-its-sabotage/image.jpg)
+**Score:** 79 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260424-007-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 636 | **Source:** reddit/r/HolUp
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260424-007-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 410 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Inescapable
-![Inescapable](20260424-008-inescapable/image.jpg)
-**Score:** 72 | **Source:** reddit/r/dankmemes
+## Futabu anyone ???
+![Futabu anyone ???](20260424-008-futabu-anyone/image.jpg)
+**Score:** 2,261 | **Source:** reddit/r/HolUp
 
 ---
 
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260424-009-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 325 | **Source:** reddit/r/dankmemes
-
----
-
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260424-010-fatherhood-baaaaad/image.jpg)
-**Score:** 2,899 | **Source:** reddit/r/dankmemes
-
----
-
-## Lets go im safe
-![Lets go im safe](20260424-011-lets-go-im-safe/image.jpg)
-**Score:** 1,074 | **Source:** reddit/r/dankmemes
+## What a serene ceremony..
+![What a serene ceremony..](20260424-009-what-a-serene-ceremony/image.jpg)
+**Score:** 146 | **Source:** reddit/r/HolUp
 
 ---
 
 ## 5G human radar
-![5G human radar](20260424-012-5g-human-radar/image.jpg)
+![5G human radar](20260424-010-5g-human-radar/image.jpg)
 **Score:** 3,488 | **Source:** reddit/r/memes
 
 ---
 
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260424-011-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 140 | **Source:** reddit/r/dankmemes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260424-012-dont-disturb-me/image.jpg)
+**Score:** 1,007 | **Source:** reddit/r/dankmemes
+
+---
+
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260424-013-got-to-time-it-just-right-before-the-amb/image.jpg)
+**Score:** 57 | **Source:** reddit/r/dankmemes
+
+---
+
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260424-014-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 325 | **Source:** reddit/r/dankmemes
+
+---
+
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260424-015-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 9,127 | **Source:** reddit/r/memes
+
+---
+
+## Inescapable
+![Inescapable](20260424-016-inescapable/image.jpg)
+**Score:** 72 | **Source:** reddit/r/dankmemes
+
+---
+
 ## every single night
-![every single night](20260424-013-every-single-night/image.jpg)
+![every single night](20260424-017-every-single-night/image.jpg)
 **Score:** 231 | **Source:** reddit/r/memes
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260424-014-you-okay-babe/image.jpg)
-**Score:** 20,529 | **Source:** reddit/r/dankmemes
-
----
-
-## I've got my priorities straight!
-![I've got my priorities straight!](20260424-015-ive-got-my-priorities-straight/image.jpg)
-**Score:** 69 | **Source:** reddit/r/dankmemes
-
----
-
-## that took a turn real quick
-![that took a turn real quick](20260424-016-that-took-a-turn-real-quick/image.jpg)
-**Score:** 3,685 | **Source:** reddit/r/memes
-
----
-
-## There goes another one
-![There goes another one](20260424-017-there-goes-another-one/image.jpg)
-**Score:** 97 | **Source:** reddit/r/dankmemes
-
----
-
-## Are you sure
-![Are you sure](20260424-018-are-you-sure/image.jpg)
-**Score:** 116 | **Source:** reddit/r/dankmemes
-
----
-
 ## How could I make noodles without it?
-![How could I make noodles without it?](20260424-019-how-could-i-make-noodles-without-it/image.jpg)
+![How could I make noodles without it?](20260424-018-how-could-i-make-noodles-without-it/image.jpg)
 **Score:** 3,728 | **Source:** reddit/r/memes
 
 ---
 
-## That is the worst
-![That is the worst](20260424-020-that-is-the-worst/image.jpg)
-**Score:** 17,405 | **Source:** reddit/r/memes
+## October Be A Feast
+![October Be A Feast](20260424-019-october-be-a-feast/image.jpg)
+**Score:** 63 | **Source:** reddit/r/memes
+
+---
+
+## love having a full-time job and still being in a constant state of pick two and 
+![love having a full-time job and still be](20260424-020-love-having-a-full-time-job-and-still-be/image.jpg)
+**Score:** 94 | **Source:** reddit/r/memes
 
 ---

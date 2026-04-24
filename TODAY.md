@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-24 20:40
+# Meme Feed — 2026-04-24 20:50
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## You know you are in a cult when you try to somehow justify the WRONG math of the
-![You know you are in a cult when you try ](20260424-001-you-know-you-are-in-a-cult-when-you-try-/image.jpg)
-**Score:** 11,041 | **Source:** reddit/r/WhitePeopleTwitter
+## This might have never come out if she wasn't dumb enough to run for office.
+![This might have never come out if she wa](20260424-001-this-might-have-never-come-out-if-she-wa/image.jpg)
+**Score:** 2,681 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## He's gambling with world economy, no one can disagree.
-![He's gambling with world economy, no one](20260424-002-hes-gambling-with-world-economy-no-one-c/image.jpg)
-**Score:** 3,874 | **Source:** reddit/r/WhitePeopleTwitter
+## Leave the whales alone
+![Leave the whales alone](20260424-002-leave-the-whales-alone/image.jpg)
+**Score:** 19,178 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -22,81 +22,81 @@
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260424-004-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,679 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260424-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,170 | **Source:** reddit/r/facepalm
-
----
-
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260424-006-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260424-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,363 | **Source:** reddit/r/facepalm
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260424-007-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 496 | **Source:** reddit/r/technicallythetruth
+## This is Loading. from among us
+![This is Loading. from among us](20260424-005-this-is-loading-from-among-us/image.jpg)
+**Score:** 112 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
-![It's anthropomorphism because nature has](20260424-008-its-anthropomorphism-because-nature-has-/image.jpg)
-**Score:** 88 | **Source:** reddit/r/technicallythetruth
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260424-006-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 412 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Among Us Meme
-![Among Us Meme](20260424-009-among-us-meme/image.jpg)
-**Score:** 85 | **Source:** reddit/r/suspiciouslyspecific
+## AI is everywhere
+![AI is everywhere](20260424-007-ai-is-everywhere/image.jpg)
+**Score:** 968 | **Source:** reddit/r/HolUp
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260424-010-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 237 | **Source:** reddit/r/oddlyspecific
-
----
-
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260424-011-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 641 | **Source:** reddit/r/HolUp
-
----
-
-## Futabu anyone ???
-![Futabu anyone ???](20260424-012-futabu-anyone/image.jpg)
-**Score:** 2,268 | **Source:** reddit/r/HolUp
-
----
-
-## That is the worst
-![That is the worst](20260424-013-that-is-the-worst/image.jpg)
-**Score:** 17,628 | **Source:** reddit/r/memes
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260424-008-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 9,142 | **Source:** reddit/r/memes
 
 ---
 
 ## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260424-014-got-to-time-it-just-right-before-the-amb/image.jpg)
+![Got to time it just right before the amb](20260424-009-got-to-time-it-just-right-before-the-amb/image.jpg)
 **Score:** 54 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Just British Things
-![Just British Things](20260424-015-just-british-things/image.jpg)
-**Score:** 12,162 | **Source:** reddit/r/memes
+## International memes
+![International memes](20260424-010-international-memes/image.jpg)
+**Score:** 104 | **Source:** reddit/r/dankmemes
 
 ---
 
-## International memes
-![International memes](20260424-016-international-memes/image.jpg)
-**Score:** 104 | **Source:** reddit/r/dankmemes
+## Weird behavior
+![Weird behavior](20260424-011-weird-behavior/image.jpg)
+**Score:** 112 | **Source:** reddit/r/dankmemes
+
+---
+
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260424-012-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 1,896 | **Source:** reddit/r/memes
+
+---
+
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260424-013-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 326 | **Source:** reddit/r/dankmemes
+
+---
+
+## October Be A Feast
+![October Be A Feast](20260424-014-october-be-a-feast/image.jpg)
+**Score:** 75 | **Source:** reddit/r/memes
+
+---
+
+## That is the worst
+![That is the worst](20260424-015-that-is-the-worst/image.jpg)
+**Score:** 17,628 | **Source:** reddit/r/memes
+
+---
+
+## They're the same person!
+![They're the same person!](20260424-016-theyre-the-same-person/image.jpg)
+**Score:** 51 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -106,20 +106,20 @@
 
 ---
 
-## Weird behavior
-![Weird behavior](20260424-018-weird-behavior/image.jpg)
-**Score:** 112 | **Source:** reddit/r/dankmemes
+## Just British Things
+![Just British Things](20260424-018-just-british-things/image.jpg)
+**Score:** 12,162 | **Source:** reddit/r/memes
 
 ---
 
-## October Be A Feast
-![October Be A Feast](20260424-019-october-be-a-feast/image.jpg)
-**Score:** 75 | **Source:** reddit/r/memes
+## Don't disturb me
+![Don't disturb me](20260424-019-dont-disturb-me/image.jpg)
+**Score:** 1,007 | **Source:** reddit/r/dankmemes
 
 ---
 
-## They're the same person!
-![They're the same person!](20260424-020-theyre-the-same-person/image.jpg)
-**Score:** 51 | **Source:** reddit/r/dankmemes
+## Same same but different.
+![Same same but different.](20260424-020-same-same-but-different/image.jpg)
+**Score:** 1,626 | **Source:** reddit/r/dankmemes
 
 ---

@@ -1,72 +1,72 @@
-# Meme Feed — 2026-04-24 15:50
+# Meme Feed — 2026-04-24 16:00
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Me too, George.
-![Me too, George.](20260424-001-me-too-george/image.jpg)
-**Score:** 2,642 | **Source:** reddit/r/WhitePeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260424-001-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,070 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260424-002-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,361 | **Source:** reddit/r/facepalm
+## Leave the whales alone
+![Leave the whales alone](20260424-002-leave-the-whales-alone/image.jpg)
+**Score:** 19,183 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Some inflation is good
-![Some inflation is good](20260424-003-some-inflation-is-good/image.jpg)
-**Score:** 15,686 | **Source:** reddit/r/technicallythetruth
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260424-003-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,138 | **Source:** reddit/r/facepalm
 
 ---
 
-## My 7 year old would love to know what others think of his drawing! Sus?
-![My 7 year old would love to know what ot](20260424-004-my-7-year-old-would-love-to-know-what-ot/image.jpg)
-**Score:** 1,248 | **Source:** reddit/r/suspiciouslyspecific
+## The perfect combination of heading and Reddit mobile jank
+![The perfect combination of heading and R](20260424-004-the-perfect-combination-of-heading-and-r/image.jpg)
+**Score:** 229 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## When the sausages are sus
-![When the sausages are sus](20260424-005-when-the-sausages-are-sus/image.jpg)
-**Score:** 102 | **Source:** reddit/r/suspiciouslyspecific
+## i just opened youtube
+![i just opened youtube](20260424-005-i-just-opened-youtube/image.jpg)
+**Score:** 8,973 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Don't do that
-![Don't do that](20260424-006-dont-do-that/image.jpg)
-**Score:** 344 | **Source:** reddit/r/oddlyspecific
+## The Hash-Slinging Slasher
+![The Hash-Slinging Slasher](20260424-006-the-hash-slinging-slasher/image.jpg)
+**Score:** 435 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260424-007-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,331 | **Source:** reddit/r/HolUp
+## Juicy Amogus pics
+![Juicy Amogus pics](20260424-007-juicy-amogus-pics/image.jpg)
+**Score:** 808 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260424-008-futabu-anyone/image.jpg)
-**Score:** 2,262 | **Source:** reddit/r/HolUp
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260424-008-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 410 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## It's like a hierarchy in here
-![It's like a hierarchy in here](20260424-009-its-like-a-hierarchy-in-here/image.jpg)
-**Score:** 101 | **Source:** reddit/r/memes
+## Brother what even are these polls😐️
+![Brother what even are these polls😐️](20260424-009-brother-what-even-are-these-polls/image.jpg)
+**Score:** 193 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Inescapable
-![Inescapable](20260424-010-inescapable/image.jpg)
-**Score:** 72 | **Source:** reddit/r/dankmemes
+## You Okay Babe?
+![You Okay Babe?](20260424-010-you-okay-babe/image.jpg)
+**Score:** 20,529 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260424-011-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 140 | **Source:** reddit/r/dankmemes
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260424-011-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 9,127 | **Source:** reddit/r/memes
 
 ---
 
@@ -76,50 +76,50 @@
 
 ---
 
-## Drop you best meme
-![Drop you best meme](20260424-013-drop-you-best-meme/image.jpg)
-**Score:** 391 | **Source:** reddit/r/memes
+## Lets go im safe
+![Lets go im safe](20260424-013-lets-go-im-safe/image.jpg)
+**Score:** 1,074 | **Source:** reddit/r/dankmemes
 
 ---
 
-## every single night
-![every single night](20260424-014-every-single-night/image.jpg)
-**Score:** 231 | **Source:** reddit/r/memes
+## How could I make noodles without it?
+![How could I make noodles without it?](20260424-014-how-could-i-make-noodles-without-it/image.jpg)
+**Score:** 3,728 | **Source:** reddit/r/memes
 
 ---
 
-## Same same but different.
-![Same same but different.](20260424-015-same-same-but-different/image.jpg)
-**Score:** 1,548 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260424-015-that-is-the-worst/image.jpg)
+**Score:** 6,094 | **Source:** reddit/r/dankmemes
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260424-016-you-okay-babe/image.jpg)
-**Score:** 20,529 | **Source:** reddit/r/dankmemes
+## Such a shame
+![Such a shame](20260424-016-such-a-shame/image.jpg)
+**Score:** 1,230 | **Source:** reddit/r/memes
 
 ---
 
-## There goes another one
-![There goes another one](20260424-017-there-goes-another-one/image.jpg)
-**Score:** 97 | **Source:** reddit/r/dankmemes
+## Don't disturb me
+![Don't disturb me](20260424-017-dont-disturb-me/image.jpg)
+**Score:** 1,007 | **Source:** reddit/r/dankmemes
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260424-018-fatherhood-baaaaad/image.jpg)
-**Score:** 2,899 | **Source:** reddit/r/dankmemes
+## Inescapable
+![Inescapable](20260424-018-inescapable/image.jpg)
+**Score:** 72 | **Source:** reddit/r/dankmemes
 
 ---
 
-## International memes
-![International memes](20260424-019-international-memes/image.jpg)
-**Score:** 95 | **Source:** reddit/r/dankmemes
+## 5G human radar
+![5G human radar](20260424-019-5g-human-radar/image.jpg)
+**Score:** 3,488 | **Source:** reddit/r/memes
 
 ---
 
-## the worst thing you can do in the dad's car
-![the worst thing you can do in the dad's ](20260424-020-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
-**Score:** 89 | **Source:** reddit/r/memes
+## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
+![Not a my opinion but based on recent com](20260424-020-not-a-my-opinion-but-based-on-recent-com/image.jpg)
+**Score:** 1,954 | **Source:** reddit/r/memes
 
 ---

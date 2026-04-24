@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-24 23:41
+# Meme Feed — 2026-04-24 23:50
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260424-001-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,407 | **Source:** reddit/r/BlackPeopleTwitter
+## Acting SECNAV is very concerned about witches taking over the US.
+![Acting SECNAV is very concerned about wi](20260424-001-acting-secnav-is-very-concerned-about-wi/image.jpg)
+**Score:** 301 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## Leave the whales alone
+![Leave the whales alone](20260424-002-leave-the-whales-alone/image.jpg)
+**Score:** 19,187 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260424-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,076 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260424-002-south-korean-pilots-were-taking-selfies-/image.jpg)
+![South Korean Pilots Were Taking Selfies ](20260424-004-south-korean-pilots-were-taking-selfies-/image.jpg)
 **Score:** 909 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260424-003-another-reminder-of-were-not-a-cult/image.jpg)
+![Another reminder of 'We're not a cult."](20260424-005-another-reminder-of-were-not-a-cult/image.jpg)
 **Score:** 4,140 | **Source:** reddit/r/facepalm
 
 ---
 
-## A shower is hot
-![A shower is hot](20260424-004-a-shower-is-hot/image.jpg)
-**Score:** 844 | **Source:** reddit/r/technicallythetruth
+## Some inflation is good
+![Some inflation is good](20260424-006-some-inflation-is-good/image.jpg)
+**Score:** 15,682 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## among oose
-![among oose](20260424-005-among-oose/image.jpg)
-**Score:** 517 | **Source:** reddit/r/suspiciouslyspecific
+## Enjoy your hot water
+![Enjoy your hot water](20260424-007-enjoy-your-hot-water/image.jpg)
+**Score:** 976 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260424-006-futabu-anyone/image.jpg)
-**Score:** 2,274 | **Source:** reddit/r/HolUp
+## it’s everywhere
+![it’s everywhere](20260424-008-its-everywhere/image.jpg)
+**Score:** 101 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260424-007-an-augmented-reality-sandbox/image.jpg)
-**Score:** 601 | **Source:** reddit/r/HolUp
+## AI is everywhere
+![AI is everywhere](20260424-009-ai-is-everywhere/image.jpg)
+**Score:** 969 | **Source:** reddit/r/HolUp
 
 ---
 
-## love having a full-time job and still being in a constant state of pick two and 
-![love having a full-time job and still be](20260424-008-love-having-a-full-time-job-and-still-be/image.jpg)
-**Score:** 110 | **Source:** reddit/r/memes
+## Couldn't be me
+![Couldn't be me](20260424-010-couldnt-be-me/image.jpg)
+**Score:** 1,527 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Drop you best meme
-![Drop you best meme](20260424-009-drop-you-best-meme/image.jpg)
-**Score:** 482 | **Source:** reddit/r/memes
+## Such a shame
+![Such a shame](20260424-011-such-a-shame/image.jpg)
+**Score:** 2,082 | **Source:** reddit/r/memes
 
 ---
 
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260424-010-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 55 | **Source:** reddit/r/dankmemes
+## Wild Thumbnail and Name for a Tax
+![Wild Thumbnail and Name for a Tax](20260424-012-wild-thumbnail-and-name-for-a-tax/image.jpg)
+**Score:** 185 | **Source:** reddit/r/memes
 
 ---
 
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260424-011-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 320 | **Source:** reddit/r/dankmemes
-
----
-
-## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260424-012-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
+![Not a my opinion but based on recent com](20260424-013-not-a-my-opinion-but-based-on-recent-com/image.jpg)
 **Score:** 1,999 | **Source:** reddit/r/memes
 
 ---
 
-## That is the worst
-![That is the worst](20260424-013-that-is-the-worst/image.jpg)
-**Score:** 6,177 | **Source:** reddit/r/dankmemes
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260424-014-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 81 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Same same but different.
-![Same same but different.](20260424-014-same-same-but-different/image.jpg)
-**Score:** 1,649 | **Source:** reddit/r/dankmemes
-
----
-
-## That is the worst
-![That is the worst](20260424-015-that-is-the-worst/image.jpg)
-**Score:** 17,705 | **Source:** reddit/r/memes
-
----
-
-## You Okay Babe?
-![You Okay Babe?](20260424-016-you-okay-babe/image.jpg)
-**Score:** 20,539 | **Source:** reddit/r/dankmemes
-
----
-
-## They're the same person!
-![They're the same person!](20260424-017-theyre-the-same-person/image.jpg)
-**Score:** 55 | **Source:** reddit/r/dankmemes
-
----
-
-## that took a turn real quick
-![that took a turn real quick](20260424-018-that-took-a-turn-real-quick/image.jpg)
-**Score:** 3,873 | **Source:** reddit/r/memes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260424-019-dont-disturb-me/image.jpg)
-**Score:** 1,003 | **Source:** reddit/r/dankmemes
+## love having a full-time job and still being in a constant state of pick two and 
+![love having a full-time job and still be](20260424-015-love-having-a-full-time-job-and-still-be/image.jpg)
+**Score:** 110 | **Source:** reddit/r/memes
 
 ---
 
 ## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260424-020-why-are-so-many-men-like-this-based-on-r/image.jpg)
+![Why are so many men like this? Based on ](20260424-016-why-are-so-many-men-like-this-based-on-r/image.jpg)
 **Score:** 442 | **Source:** reddit/r/memes
+
+---
+
+## that took a turn real quick
+![that took a turn real quick](20260424-017-that-took-a-turn-real-quick/image.jpg)
+**Score:** 3,873 | **Source:** reddit/r/memes
+
+---
+
+## October Be A Feast
+![October Be A Feast](20260424-018-october-be-a-feast/image.jpg)
+**Score:** 79 | **Source:** reddit/r/memes
+
+---
+
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260424-019-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 309 | **Source:** reddit/r/dankmemes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260424-020-dont-disturb-me/image.jpg)
+**Score:** 1,003 | **Source:** reddit/r/dankmemes
 
 ---

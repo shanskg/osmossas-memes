@@ -1,30 +1,30 @@
-# Meme Feed — 2026-04-24 23:10
+# Meme Feed — 2026-04-24 23:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## skins vs skins
-![skins vs skins](20260424-001-skins-vs-skins/image.jpg)
-**Score:** 1,021 | **Source:** reddit/r/BlackPeopleTwitter
+## Chief Justice John Roberts mischaracterized more than $20 million in household i
+![Chief Justice John Roberts mischaracteri](20260424-001-chief-justice-john-roberts-mischaracteri/image.jpg)
+**Score:** 4,327 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Word association Schoolboy Q
-![Word association Schoolboy Q](20260424-002-word-association-schoolboy-q/image.jpg)
-**Score:** 575 | **Source:** reddit/r/BlackPeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260424-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,074 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260424-003-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 909 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260424-003-well-did-they-accept-or-not/image.jpg)
+**Score:** 830 | **Source:** reddit/r/facepalm
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260424-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,175 | **Source:** reddit/r/facepalm
+## Super rich or bus driver?
+![Super rich or bus driver?](20260424-004-super-rich-or-bus-driver/image.jpg)
+**Score:** 31,018 | **Source:** reddit/r/technicallythetruth
 
 ---
 
@@ -34,92 +34,92 @@
 
 ---
 
-## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260424-006-i-cast-stairs-wrong-subreddit/image.jpg)
-**Score:** 2,590 | **Source:** reddit/r/technicallythetruth
+## geometry sus
+![geometry sus](20260424-006-geometry-sus/image.jpg)
+**Score:** 74 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## This is Loading. from among us
-![This is Loading. from among us](20260424-007-this-is-loading-from-among-us/image.jpg)
-**Score:** 109 | **Source:** reddit/r/suspiciouslyspecific
+## Just slightly...
+![Just slightly...](20260424-007-just-slightly/image.jpg)
+**Score:** 516 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Don't do that
-![Don't do that](20260424-008-dont-do-that/image.jpg)
-**Score:** 340 | **Source:** reddit/r/oddlyspecific
+## Who is your fav Cambodian gas station explosion survivor that is pregnant?
+![Who is your fav Cambodian gas station ex](20260424-008-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
+**Score:** 1,249 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## Such a shame
+![Such a shame](20260424-009-such-a-shame/image.jpg)
+**Score:** 2,082 | **Source:** reddit/r/memes
+
+---
+
+## Wild Thumbnail and Name for a Tax
+![Wild Thumbnail and Name for a Tax](20260424-010-wild-thumbnail-and-name-for-a-tax/image.jpg)
+**Score:** 185 | **Source:** reddit/r/memes
+
+---
+
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260424-011-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,462 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
-![Not a my opinion but based on recent com](20260424-009-not-a-my-opinion-but-based-on-recent-com/image.jpg)
+![Not a my opinion but based on recent com](20260424-012-not-a-my-opinion-but-based-on-recent-com/image.jpg)
 **Score:** 1,999 | **Source:** reddit/r/memes
 
 ---
 
-## How could I make noodles without it?
-![How could I make noodles without it?](20260424-010-how-could-i-make-noodles-without-it/image.jpg)
-**Score:** 3,856 | **Source:** reddit/r/memes
+## that took a turn real quick
+![that took a turn real quick](20260424-013-that-took-a-turn-real-quick/image.jpg)
+**Score:** 3,873 | **Source:** reddit/r/memes
 
 ---
 
-## Drop you best meme
-![Drop you best meme](20260424-011-drop-you-best-meme/image.jpg)
-**Score:** 482 | **Source:** reddit/r/memes
+## October Be A Feast
+![October Be A Feast](20260424-014-october-be-a-feast/image.jpg)
+**Score:** 79 | **Source:** reddit/r/memes
 
 ---
 
-## That is the worst
-![That is the worst](20260424-012-that-is-the-worst/image.jpg)
-**Score:** 17,705 | **Source:** reddit/r/memes
+## Couldn't be me
+![Couldn't be me](20260424-015-couldnt-be-me/image.jpg)
+**Score:** 1,527 | **Source:** reddit/r/dankmemes
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260424-013-fatherhood-baaaaad/image.jpg)
-**Score:** 3,054 | **Source:** reddit/r/dankmemes
-
----
-
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260424-014-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 442 | **Source:** reddit/r/memes
-
----
-
-## Why not just have chat gpt teach me at that point
-![Why not just have chat gpt teach me at t](20260424-015-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
-**Score:** 141 | **Source:** reddit/r/memes
-
----
-
-## They're the same person!
-![They're the same person!](20260424-016-theyre-the-same-person/image.jpg)
-**Score:** 55 | **Source:** reddit/r/dankmemes
-
----
-
-## I've got my priorities straight!
-![I've got my priorities straight!](20260424-017-ive-got-my-priorities-straight/image.jpg)
-**Score:** 68 | **Source:** reddit/r/dankmemes
-
----
-
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260424-018-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 309 | **Source:** reddit/r/dankmemes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260424-019-dont-disturb-me/image.jpg)
-**Score:** 1,003 | **Source:** reddit/r/dankmemes
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260424-016-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 81 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260424-020-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+![brøther, I cräve the forbidden lämp](20260424-017-brøther-i-cräve-the-forbidden-lämp/image.jpg)
 **Score:** 1,085 | **Source:** reddit/r/dankmemes
+
+---
+
+## Weird behavior
+![Weird behavior](20260424-018-weird-behavior/image.jpg)
+**Score:** 114 | **Source:** reddit/r/dankmemes
+
+---
+
+## I've got my priorities straight!
+![I've got my priorities straight!](20260424-019-ive-got-my-priorities-straight/image.jpg)
+**Score:** 68 | **Source:** reddit/r/dankmemes
+
+---
+
+## There goes another one
+![There goes another one](20260424-020-there-goes-another-one/image.jpg)
+**Score:** 95 | **Source:** reddit/r/dankmemes
 
 ---

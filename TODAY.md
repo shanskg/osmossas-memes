@@ -1,30 +1,30 @@
-# Meme Feed — 2026-04-25 06:43
+# Meme Feed — 2026-04-25 06:51
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## She was a honeypot deployed to provide updates on their progress
-![She was a honeypot deployed to provide u](20260425-001-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
-**Score:** 8,309 | **Source:** reddit/r/BlackPeopleTwitter
+## The pro-life party, folks
+![The pro-life party, folks](20260425-001-the-pro-life-party-folks/image.jpg)
+**Score:** 192 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260425-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,413 | **Source:** reddit/r/BlackPeopleTwitter
+## skins vs skins
+![skins vs skins](20260425-002-skins-vs-skins/image.jpg)
+**Score:** 1,013 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260425-003-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,138 | **Source:** reddit/r/facepalm
+## This a celly, that's a tool
+![This a celly, that's a tool](20260425-003-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,697 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260425-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,365 | **Source:** reddit/r/facepalm
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260425-004-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 1,053 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -34,39 +34,39 @@
 
 ---
 
-## 125 per hour in Oregon
-![125 per hour in Oregon](20260425-006-125-per-hour-in-oregon/image.jpg)
-**Score:** 12,643 | **Source:** reddit/r/technicallythetruth
+## To be fair an Avocado is just Guacamole in ball form.
+![To be fair an Avocado is just Guacamole ](20260425-006-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
+**Score:** 10,083 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## My friend sent me this photo
-![My friend sent me this photo](20260425-007-my-friend-sent-me-this-photo/image.jpg)
-**Score:** 842 | **Source:** reddit/r/suspiciouslyspecific
+## Guess what game this is (hint it has among us in the name)
+![Guess what game this is (hint it has amo](20260425-007-guess-what-game-this-is-hint-it-has-amon/image.jpg)
+**Score:** 154 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## SUStainable Copper
+![SUStainable Copper](20260425-008-sustainable-copper/image.jpg)
+**Score:** 257 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## Who is your fav Cambodian gas station explosion survivor that is pregnant?
+![Who is your fav Cambodian gas station ex](20260425-009-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
+**Score:** 1,470 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## Don't do that
-![Don't do that](20260425-008-dont-do-that/image.jpg)
+![Don't do that](20260425-010-dont-do-that/image.jpg)
 **Score:** 336 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260425-009-an-augmented-reality-sandbox/image.jpg)
-**Score:** 603 | **Source:** reddit/r/HolUp
-
----
-
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260425-010-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,332 | **Source:** reddit/r/HolUp
-
----
-
-## Such a shame
-![Such a shame](20260425-011-such-a-shame/image.jpg)
-**Score:** 2,397 | **Source:** reddit/r/memes
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260425-011-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 641 | **Source:** reddit/r/HolUp
 
 ---
 
@@ -76,39 +76,39 @@
 
 ---
 
-## poisonous animal
-![poisonous animal](20260425-013-poisonous-animal/image.jpg)
-**Score:** 67 | **Source:** reddit/r/dankmemes
+## Such a shame
+![Such a shame](20260425-013-such-a-shame/image.jpg)
+**Score:** 2,397 | **Source:** reddit/r/memes
+
+---
+
+## There goes another one
+![There goes another one](20260425-014-there-goes-another-one/image.jpg)
+**Score:** 95 | **Source:** reddit/r/dankmemes
+
+---
+
+## Inescapable
+![Inescapable](20260425-015-inescapable/image.jpg)
+**Score:** 105 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Just British Things
-![Just British Things](20260425-014-just-british-things/image.jpg)
+![Just British Things](20260425-016-just-british-things/image.jpg)
 **Score:** 22,374 | **Source:** reddit/r/memes
 
 ---
 
 ## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-015-even-in-video-games-they-dont-want-you-t/image.jpg)
+![Even in video games, they don't want you](20260425-017-even-in-video-games-they-dont-want-you-t/image.jpg)
 **Score:** 193 | **Source:** reddit/r/dankmemes
 
 ---
 
-## There goes another one
-![There goes another one](20260425-016-there-goes-another-one/image.jpg)
-**Score:** 95 | **Source:** reddit/r/dankmemes
-
----
-
 ## The middle class: :(
-![The middle class: :(](20260425-017-the-middle-class/image.jpg)
+![The middle class: :(](20260425-018-the-middle-class/image.jpg)
 **Score:** 55 | **Source:** reddit/r/dankmemes
-
----
-
-## Inescapable
-![Inescapable](20260425-018-inescapable/image.jpg)
-**Score:** 105 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -118,8 +118,8 @@
 
 ---
 
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260425-020-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 2,410 | **Source:** reddit/r/dankmemes
+## poisonous animal
+![poisonous animal](20260425-020-poisonous-animal/image.jpg)
+**Score:** 67 | **Source:** reddit/r/dankmemes
 
 ---

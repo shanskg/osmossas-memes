@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-24 23:20
+# Meme Feed — 2026-04-24 23:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Chief Justice John Roberts mischaracterized more than $20 million in household i
-![Chief Justice John Roberts mischaracteri](20260424-001-chief-justice-john-roberts-mischaracteri/image.jpg)
-**Score:** 4,327 | **Source:** reddit/r/WhitePeopleTwitter
+## She was a honeypot deployed to provide updates on their progress
+![She was a honeypot deployed to provide u](20260424-001-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
+**Score:** 3,849 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260424-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,074 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260424-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,407 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260424-003-well-did-they-accept-or-not/image.jpg)
-**Score:** 830 | **Source:** reddit/r/facepalm
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260424-003-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 909 | **Source:** reddit/r/facepalm
 
 ---
 
-## Super rich or bus driver?
-![Super rich or bus driver?](20260424-004-super-rich-or-bus-driver/image.jpg)
-**Score:** 31,018 | **Source:** reddit/r/technicallythetruth
+## Being shot with a depleted uranium bullet can't be good
+![Being shot with a depleted uranium bulle](20260424-004-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+**Score:** 496 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260424-005-enjoy-your-hot-water/image.jpg)
-**Score:** 974 | **Source:** reddit/r/technicallythetruth
-
----
-
-## geometry sus
-![geometry sus](20260424-006-geometry-sus/image.jpg)
-**Score:** 74 | **Source:** reddit/r/suspiciouslyspecific
+## Look at this track in F-zero (1991, SNES)
+![Look at this track in F-zero (1991, SNES](20260424-005-look-at-this-track-in-f-zero-1991-snes/image.jpg)
+**Score:** 68 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
 ## Just slightly...
-![Just slightly...](20260424-007-just-slightly/image.jpg)
+![Just slightly...](20260424-006-just-slightly/image.jpg)
 **Score:** 516 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Who is your fav Cambodian gas station explosion survivor that is pregnant?
-![Who is your fav Cambodian gas station ex](20260424-008-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
-**Score:** 1,249 | **Source:** reddit/r/oddlyspecific
+## Futabu anyone ???
+![Futabu anyone ???](20260424-007-futabu-anyone/image.jpg)
+**Score:** 2,273 | **Source:** reddit/r/HolUp
 
 ---
 
-## Such a shame
-![Such a shame](20260424-009-such-a-shame/image.jpg)
-**Score:** 2,082 | **Source:** reddit/r/memes
+## Darker and darker
+![Darker and darker](20260424-008-darker-and-darker/image.jpg)
+**Score:** 285 | **Source:** reddit/r/HolUp
 
 ---
 
-## Wild Thumbnail and Name for a Tax
-![Wild Thumbnail and Name for a Tax](20260424-010-wild-thumbnail-and-name-for-a-tax/image.jpg)
-**Score:** 185 | **Source:** reddit/r/memes
-
----
-
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260424-011-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 3,462 | **Source:** reddit/r/dankmemes
-
----
-
-## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
-![Not a my opinion but based on recent com](20260424-012-not-a-my-opinion-but-based-on-recent-com/image.jpg)
-**Score:** 1,999 | **Source:** reddit/r/memes
-
----
-
-## that took a turn real quick
-![that took a turn real quick](20260424-013-that-took-a-turn-real-quick/image.jpg)
-**Score:** 3,873 | **Source:** reddit/r/memes
-
----
-
-## October Be A Feast
-![October Be A Feast](20260424-014-october-be-a-feast/image.jpg)
-**Score:** 79 | **Source:** reddit/r/memes
-
----
-
-## Couldn't be me
-![Couldn't be me](20260424-015-couldnt-be-me/image.jpg)
-**Score:** 1,527 | **Source:** reddit/r/dankmemes
-
----
-
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260424-016-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 81 | **Source:** reddit/r/dankmemes
+## Why are so many men like this? Based on real facts
+![Why are so many men like this? Based on ](20260424-009-why-are-so-many-men-like-this-based-on-r/image.jpg)
+**Score:** 442 | **Source:** reddit/r/memes
 
 ---
 
 ## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260424-017-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+![brøther, I cräve the forbidden lämp](20260424-010-brøther-i-cräve-the-forbidden-lämp/image.jpg)
 **Score:** 1,085 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Weird behavior
-![Weird behavior](20260424-018-weird-behavior/image.jpg)
-**Score:** 114 | **Source:** reddit/r/dankmemes
+## Drop you best meme
+![Drop you best meme](20260424-011-drop-you-best-meme/image.jpg)
+**Score:** 482 | **Source:** reddit/r/memes
 
 ---
 
-## I've got my priorities straight!
-![I've got my priorities straight!](20260424-019-ive-got-my-priorities-straight/image.jpg)
-**Score:** 68 | **Source:** reddit/r/dankmemes
+## You Okay Babe?
+![You Okay Babe?](20260424-012-you-okay-babe/image.jpg)
+**Score:** 20,539 | **Source:** reddit/r/dankmemes
 
 ---
 
-## There goes another one
-![There goes another one](20260424-020-there-goes-another-one/image.jpg)
-**Score:** 95 | **Source:** reddit/r/dankmemes
+## Just British Things
+![Just British Things](20260424-013-just-british-things/image.jpg)
+**Score:** 15,984 | **Source:** reddit/r/memes
+
+---
+
+## Lets go im safe
+![Lets go im safe](20260424-014-lets-go-im-safe/image.jpg)
+**Score:** 1,072 | **Source:** reddit/r/dankmemes
+
+---
+
+## October Be A Feast
+![October Be A Feast](20260424-015-october-be-a-feast/image.jpg)
+**Score:** 79 | **Source:** reddit/r/memes
+
+---
+
+## That is the worst
+![That is the worst](20260424-016-that-is-the-worst/image.jpg)
+**Score:** 6,177 | **Source:** reddit/r/dankmemes
+
+---
+
+## love having a full-time job and still being in a constant state of pick two and 
+![love having a full-time job and still be](20260424-017-love-having-a-full-time-job-and-still-be/image.jpg)
+**Score:** 110 | **Source:** reddit/r/memes
+
+---
+
+## Such a shame
+![Such a shame](20260424-018-such-a-shame/image.jpg)
+**Score:** 2,082 | **Source:** reddit/r/memes
+
+---
+
+## They're the same person!
+![They're the same person!](20260424-019-theyre-the-same-person/image.jpg)
+**Score:** 55 | **Source:** reddit/r/dankmemes
+
+---
+
+## Wild Thumbnail and Name for a Tax
+![Wild Thumbnail and Name for a Tax](20260424-020-wild-thumbnail-and-name-for-a-tax/image.jpg)
+**Score:** 185 | **Source:** reddit/r/memes
 
 ---

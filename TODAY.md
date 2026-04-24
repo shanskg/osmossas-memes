@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-24 16:10
+# Meme Feed — 2026-04-24 16:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## I hate how stupid everyone in this administration is
-![I hate how stupid everyone in this admin](20260424-001-i-hate-how-stupid-everyone-in-this-admin/image.jpg)
-**Score:** 1,336 | **Source:** reddit/r/WhitePeopleTwitter
+## THAT IS NOT HOW MATH AND PERCENTAGES WORK YOU BRAINDEAD DONKEY
+![THAT IS NOT HOW MATH AND PERCENTAGES WOR](20260424-001-that-is-not-how-math-and-percentages-wor/image.jpg)
+**Score:** 5,897 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## They have the self-awareness of a wet fart.
+![They have the self-awareness of a wet fa](20260424-002-they-have-the-self-awareness-of-a-wet-fa/image.jpg)
+**Score:** 7,840 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
 ## Word association Schoolboy Q
-![Word association Schoolboy Q](20260424-002-word-association-schoolboy-q/image.jpg)
+![Word association Schoolboy Q](20260424-003-word-association-schoolboy-q/image.jpg)
 **Score:** 146 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260424-003-well-did-they-accept-or-not/image.jpg)
-**Score:** 835 | **Source:** reddit/r/facepalm
+## skins vs skins
+![skins vs skins](20260424-004-skins-vs-skins/image.jpg)
+**Score:** 1,015 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## outperforming the inflation rate
-![outperforming the inflation rate](20260424-004-outperforming-the-inflation-rate/image.jpg)
-**Score:** 65,050 | **Source:** reddit/r/technicallythetruth
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260424-005-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 675 | **Source:** reddit/r/facepalm
 
 ---
 
-## A shower is hot
-![A shower is hot](20260424-005-a-shower-is-hot/image.jpg)
-**Score:** 760 | **Source:** reddit/r/technicallythetruth
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260424-006-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,360 | **Source:** reddit/r/facepalm
 
 ---
 
-## The Great Amongball...
-![The Great Amongball...](20260424-006-the-great-amongball/image.jpg)
-**Score:** 83 | **Source:** reddit/r/suspiciouslyspecific
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260424-007-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,404 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Juicy Amogus pics
-![Juicy Amogus pics](20260424-007-juicy-amogus-pics/image.jpg)
-**Score:** 808 | **Source:** reddit/r/suspiciouslyspecific
+## He did NOT dodge a bullet
+![He did NOT dodge a bullet](20260424-008-he-did-not-dodge-a-bullet/image.jpg)
+**Score:** 42,255 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260424-008-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 410 | **Source:** reddit/r/oddlyspecific
+## SUStainable Copper
+![SUStainable Copper](20260424-009-sustainable-copper/image.jpg)
+**Score:** 256 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## Among Us Meme
+![Among Us Meme](20260424-010-among-us-meme/image.jpg)
+**Score:** 84 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
 ## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260424-009-brother-what-even-are-these-polls/image.jpg)
+![Brother what even are these polls😐️](20260424-011-brother-what-even-are-these-polls/image.jpg)
 **Score:** 193 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260424-010-lets-go-im-safe/image.jpg)
-**Score:** 1,074 | **Source:** reddit/r/dankmemes
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260424-012-an-augmented-reality-sandbox/image.jpg)
+**Score:** 604 | **Source:** reddit/r/HolUp
 
 ---
 
-## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
-![Not a my opinion but based on recent com](20260424-011-not-a-my-opinion-but-based-on-recent-com/image.jpg)
-**Score:** 1,954 | **Source:** reddit/r/memes
+## It's like a hierarchy in here
+![It's like a hierarchy in here](20260424-013-its-like-a-hierarchy-in-here/image.jpg)
+**Score:** 100 | **Source:** reddit/r/memes
 
 ---
 
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260424-012-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 325 | **Source:** reddit/r/dankmemes
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260424-014-fatherhood-baaaaad/image.jpg)
+**Score:** 2,956 | **Source:** reddit/r/dankmemes
 
 ---
 
-## How could I make noodles without it?
-![How could I make noodles without it?](20260424-013-how-could-i-make-noodles-without-it/image.jpg)
-**Score:** 3,728 | **Source:** reddit/r/memes
+## 5G human radar
+![5G human radar](20260424-015-5g-human-radar/image.jpg)
+**Score:** 3,497 | **Source:** reddit/r/memes
 
 ---
 
-## Drop you best meme
-![Drop you best meme](20260424-014-drop-you-best-meme/image.jpg)
-**Score:** 391 | **Source:** reddit/r/memes
-
----
-
-## Are you sure
-![Are you sure](20260424-015-are-you-sure/image.jpg)
-**Score:** 116 | **Source:** reddit/r/dankmemes
-
----
-
-## Such a shame
-![Such a shame](20260424-016-such-a-shame/image.jpg)
-**Score:** 1,230 | **Source:** reddit/r/memes
+## love having a full-time job and still being in a constant state of pick two and 
+![love having a full-time job and still be](20260424-016-love-having-a-full-time-job-and-still-be/image.jpg)
+**Score:** 96 | **Source:** reddit/r/memes
 
 ---
 
 ## October Be A Feast
 ![October Be A Feast](20260424-017-october-be-a-feast/image.jpg)
-**Score:** 63 | **Source:** reddit/r/memes
+**Score:** 64 | **Source:** reddit/r/memes
 
 ---
 
-## Couldn't be me
-![Couldn't be me](20260424-018-couldnt-be-me/image.jpg)
-**Score:** 590 | **Source:** reddit/r/dankmemes
+## Same same but different.
+![Same same but different.](20260424-018-same-same-but-different/image.jpg)
+**Score:** 1,584 | **Source:** reddit/r/dankmemes
 
 ---
 
-## It's like a hierarchy in here
-![It's like a hierarchy in here](20260424-019-its-like-a-hierarchy-in-here/image.jpg)
-**Score:** 101 | **Source:** reddit/r/memes
+## Just British Things
+![Just British Things](20260424-019-just-british-things/image.jpg)
+**Score:** 1,314 | **Source:** reddit/r/memes
 
 ---
 
-## I've got my priorities straight!
-![I've got my priorities straight!](20260424-020-ive-got-my-priorities-straight/image.jpg)
-**Score:** 69 | **Source:** reddit/r/dankmemes
+## I just want to play a wholesome dad and daughter game 😭
+![I just want to play a wholesome dad and ](20260424-020-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+**Score:** 9,128 | **Source:** reddit/r/memes
 
 ---

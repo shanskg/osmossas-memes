@@ -1,66 +1,66 @@
-# Meme Feed — 2026-04-25 00:50
+# Meme Feed — 2026-04-25 01:00
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## They have the self-awareness of a wet fart.
-![They have the self-awareness of a wet fa](20260425-001-they-have-the-self-awareness-of-a-wet-fa/image.jpg)
-**Score:** 7,852 | **Source:** reddit/r/WhitePeopleTwitter
+## She was a honeypot deployed to provide updates on their progress
+![She was a honeypot deployed to provide u](20260425-001-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
+**Score:** 3,849 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## He's really on top
-![He's really on top](20260425-002-hes-really-on-top/image.jpg)
-**Score:** 1,936 | **Source:** reddit/r/BlackPeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260425-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,076 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260425-003-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 971 | **Source:** reddit/r/facepalm
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260425-003-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,136 | **Source:** reddit/r/facepalm
 
 ---
 
-## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260425-004-i-cast-stairs-wrong-subreddit/image.jpg)
-**Score:** 2,610 | **Source:** reddit/r/technicallythetruth
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260425-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,367 | **Source:** reddit/r/facepalm
 
 ---
 
-## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
-![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260425-005-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
-**Score:** 11,259 | **Source:** reddit/r/technicallythetruth
+## outperforming the inflation rate
+![outperforming the inflation rate](20260425-005-outperforming-the-inflation-rate/image.jpg)
+**Score:** 65,052 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Rest in piss
-![Rest in piss](20260425-006-rest-in-piss/image.jpg)
-**Score:** 402 | **Source:** reddit/r/suspiciouslyspecific
+## it’s everywhere
+![it’s everywhere](20260425-006-its-everywhere/image.jpg)
+**Score:** 101 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Don't do that
-![Don't do that](20260425-007-dont-do-that/image.jpg)
-**Score:** 342 | **Source:** reddit/r/oddlyspecific
+## Among cells
+![Among cells](20260425-007-among-cells/image.jpg)
+**Score:** 799 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260425-008-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 74 | **Source:** reddit/r/oddlyspecific
+## Brother what even are these polls😐️
+![Brother what even are these polls😐️](20260425-008-brother-what-even-are-these-polls/image.jpg)
+**Score:** 225 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Darker and darker
-![Darker and darker](20260425-009-darker-and-darker/image.jpg)
-**Score:** 281 | **Source:** reddit/r/HolUp
+## Same same but different.
+![Same same but different.](20260425-009-same-same-but-different/image.jpg)
+**Score:** 1,655 | **Source:** reddit/r/dankmemes
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260425-010-an-augmented-reality-sandbox/image.jpg)
-**Score:** 601 | **Source:** reddit/r/HolUp
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260425-010-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 1,540 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -70,56 +70,56 @@
 
 ---
 
-## There goes another one
-![There goes another one](20260425-012-there-goes-another-one/image.jpg)
-**Score:** 96 | **Source:** reddit/r/dankmemes
-
----
-
-## International memes
-![International memes](20260425-013-international-memes/image.jpg)
-**Score:** 111 | **Source:** reddit/r/dankmemes
-
----
-
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260425-014-fatherhood-baaaaad/image.jpg)
-**Score:** 3,072 | **Source:** reddit/r/dankmemes
-
----
-
-## Same same but different.
-![Same same but different.](20260425-015-same-same-but-different/image.jpg)
-**Score:** 1,655 | **Source:** reddit/r/dankmemes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260425-016-dont-disturb-me/image.jpg)
-**Score:** 1,009 | **Source:** reddit/r/dankmemes
-
----
-
-## Couldn't be me
-![Couldn't be me](20260425-017-couldnt-be-me/image.jpg)
-**Score:** 1,792 | **Source:** reddit/r/dankmemes
-
----
-
-## love having a full-time job and still being in a constant state of pick two and 
-![love having a full-time job and still be](20260425-018-love-having-a-full-time-job-and-still-be/image.jpg)
-**Score:** 107 | **Source:** reddit/r/memes
-
----
-
 ## That is the worst
-![That is the worst](20260425-019-that-is-the-worst/image.jpg)
+![That is the worst](20260425-012-that-is-the-worst/image.jpg)
 **Score:** 17,768 | **Source:** reddit/r/memes
 
 ---
 
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260425-020-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 57 | **Source:** reddit/r/dankmemes
+## love having a full-time job and still being in a constant state of pick two and 
+![love having a full-time job and still be](20260425-013-love-having-a-full-time-job-and-still-be/image.jpg)
+**Score:** 107 | **Source:** reddit/r/memes
+
+---
+
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260425-014-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 323 | **Source:** reddit/r/dankmemes
+
+---
+
+## International memes
+![International memes](20260425-015-international-memes/image.jpg)
+**Score:** 111 | **Source:** reddit/r/dankmemes
+
+---
+
+## How could I make noodles without it?
+![How could I make noodles without it?](20260425-016-how-could-i-make-noodles-without-it/image.jpg)
+**Score:** 3,853 | **Source:** reddit/r/memes
+
+---
+
+## Why not just have chat gpt teach me at that point
+![Why not just have chat gpt teach me at t](20260425-017-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
+**Score:** 202 | **Source:** reddit/r/memes
+
+---
+
+## Wild Thumbnail and Name for a Tax
+![Wild Thumbnail and Name for a Tax](20260425-018-wild-thumbnail-and-name-for-a-tax/image.jpg)
+**Score:** 186 | **Source:** reddit/r/memes
+
+---
+
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260425-019-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,467 | **Source:** reddit/r/dankmemes
+
+---
+
+## Couldn't be me
+![Couldn't be me](20260425-020-couldnt-be-me/image.jpg)
+**Score:** 1,792 | **Source:** reddit/r/dankmemes
 
 ---

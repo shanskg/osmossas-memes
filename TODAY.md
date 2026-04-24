@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-25 02:00
+# Meme Feed — 2026-04-25 02:10
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## They have the self-awareness of a wet fart.
-![They have the self-awareness of a wet fa](20260425-001-they-have-the-self-awareness-of-a-wet-fa/image.jpg)
-**Score:** 7,852 | **Source:** reddit/r/WhitePeopleTwitter
-
----
-
-## She was a honeypot deployed to provide updates on their progress
-![She was a honeypot deployed to provide u](20260425-002-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
-**Score:** 5,719 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260425-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,173 | **Source:** reddit/r/facepalm
+## He's really on top
+![He's really on top](20260425-001-hes-really-on-top/image.jpg)
+**Score:** 1,936 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260425-004-well-did-they-accept-or-not/image.jpg)
+![Well? Did they accept or not?](20260425-002-well-did-they-accept-or-not/image.jpg)
 **Score:** 828 | **Source:** reddit/r/facepalm
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260425-005-enjoy-your-hot-water/image.jpg)
-**Score:** 978 | **Source:** reddit/r/technicallythetruth
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260425-003-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,136 | **Source:** reddit/r/facepalm
 
 ---
 
-## intelligence is not dangerous
-![intelligence is not dangerous](20260425-006-intelligence-is-not-dangerous/image.jpg)
-**Score:** 1,011 | **Source:** reddit/r/technicallythetruth
+## Some inflation is good
+![Some inflation is good](20260425-004-some-inflation-is-good/image.jpg)
+**Score:** 15,674 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## I'm too lazy to take a picture, so I made a drawing more time consuming but anyw
-![I'm too lazy to take a picture, so I mad](20260425-007-im-too-lazy-to-take-a-picture-so-i-made-/image.jpg)
-**Score:** 217 | **Source:** reddit/r/suspiciouslyspecific
+## Among Us Meme
+![Among Us Meme](20260425-005-among-us-meme/image.jpg)
+**Score:** 85 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## SUStainable Copper
-![SUStainable Copper](20260425-008-sustainable-copper/image.jpg)
-**Score:** 259 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260425-009-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 246 | **Source:** reddit/r/oddlyspecific
+## Brother what even are these polls😐️
+![Brother what even are these polls😐️](20260425-006-brother-what-even-are-these-polls/image.jpg)
+**Score:** 233 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260425-010-sure-thing-lady-rushmore/image.jpg)
+![Sure thing , Lady Rushmore](20260425-007-sure-thing-lady-rushmore/image.jpg)
 **Score:** 11,324 | **Source:** reddit/r/HolUp
 
 ---
 
-## International memes
-![International memes](20260425-011-international-memes/image.jpg)
-**Score:** 111 | **Source:** reddit/r/dankmemes
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260425-008-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 323 | **Source:** reddit/r/dankmemes
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260425-012-fatherhood-baaaaad/image.jpg)
-**Score:** 3,072 | **Source:** reddit/r/dankmemes
+## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
+![Not a my opinion but based on recent com](20260425-009-not-a-my-opinion-but-based-on-recent-com/image.jpg)
+**Score:** 1,997 | **Source:** reddit/r/memes
+
+---
+
+## They're the same person!
+![They're the same person!](20260425-010-theyre-the-same-person/image.jpg)
+**Score:** 54 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Couldn't be me
-![Couldn't be me](20260425-013-couldnt-be-me/image.jpg)
+![Couldn't be me](20260425-011-couldnt-be-me/image.jpg)
 **Score:** 1,792 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260425-014-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 140 | **Source:** reddit/r/dankmemes
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260425-012-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 77 | **Source:** reddit/r/dankmemes
 
 ---
 
-## October Be A Feast
-![October Be A Feast](20260425-015-october-be-a-feast/image.jpg)
-**Score:** 75 | **Source:** reddit/r/memes
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260425-013-got-to-time-it-just-right-before-the-amb/image.jpg)
+**Score:** 57 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Such a shame
-![Such a shame](20260425-016-such-a-shame/image.jpg)
-**Score:** 2,201 | **Source:** reddit/r/memes
+## How could I make noodles without it?
+![How could I make noodles without it?](20260425-014-how-could-i-make-noodles-without-it/image.jpg)
+**Score:** 3,853 | **Source:** reddit/r/memes
+
+---
+
+## Lets go im safe
+![Lets go im safe](20260425-015-lets-go-im-safe/image.jpg)
+**Score:** 1,082 | **Source:** reddit/r/dankmemes
+
+---
+
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260425-016-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 2,047 | **Source:** reddit/r/memes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260425-017-fatherhood-baaaaad/image.jpg)
+**Score:** 3,072 | **Source:** reddit/r/dankmemes
+
+---
+
+## Just British Things
+![Just British Things](20260425-018-just-british-things/image.jpg)
+**Score:** 18,819 | **Source:** reddit/r/memes
 
 ---
 
 ## Don't disturb me
-![Don't disturb me](20260425-017-dont-disturb-me/image.jpg)
+![Don't disturb me](20260425-019-dont-disturb-me/image.jpg)
 **Score:** 1,009 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260425-018-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 1,143 | **Source:** reddit/r/memes
-
----
-
-## that took a turn real quick
-![that took a turn real quick](20260425-019-that-took-a-turn-real-quick/image.jpg)
-**Score:** 3,889 | **Source:** reddit/r/memes
-
----
-
-## Inescapable
-![Inescapable](20260425-020-inescapable/image.jpg)
-**Score:** 91 | **Source:** reddit/r/dankmemes
+## Why not just have chat gpt teach me at that point
+![Why not just have chat gpt teach me at t](20260425-020-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
+**Score:** 202 | **Source:** reddit/r/memes
 
 ---

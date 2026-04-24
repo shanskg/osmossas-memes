@@ -1,4 +1,4 @@
-# Meme Feed — 2026-04-24 09:40
+# Meme Feed — 2026-04-24 09:50
 
 **Total:** 20 memes | Refresh every 10 min
 
@@ -10,57 +10,57 @@
 
 ---
 
-## He's really on top
-![He's really on top](20260424-002-hes-really-on-top/image.jpg)
-**Score:** 1,936 | **Source:** reddit/r/BlackPeopleTwitter
+## skins vs skins
+![skins vs skins](20260424-002-skins-vs-skins/image.jpg)
+**Score:** 1,015 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260424-003-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,405 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260424-003-well-did-they-accept-or-not/image.jpg)
+![Well? Did they accept or not?](20260424-004-well-did-they-accept-or-not/image.jpg)
 **Score:** 829 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260424-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260424-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,365 | **Source:** reddit/r/facepalm
 
 ---
 
-## Super rich or bus driver?
-![Super rich or bus driver?](20260424-005-super-rich-or-bus-driver/image.jpg)
-**Score:** 31,009 | **Source:** reddit/r/technicallythetruth
+## I cast stairs... Wrong subReddit
+![I cast stairs... Wrong subReddit](20260424-006-i-cast-stairs-wrong-subreddit/image.jpg)
+**Score:** 2,540 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260424-006-enjoy-your-hot-water/image.jpg)
-**Score:** 971 | **Source:** reddit/r/technicallythetruth
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260424-007-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,402 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Among us irl 🤯
-![Among us irl 🤯](20260424-007-among-us-irl/image.jpg)
-**Score:** 235 | **Source:** reddit/r/suspiciouslyspecific
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260424-008-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 639 | **Source:** reddit/r/HolUp
 
 ---
 
-## I've got my priorities straight!
-![I've got my priorities straight!](20260424-008-ive-got-my-priorities-straight/image.jpg)
-**Score:** 73 | **Source:** reddit/r/dankmemes
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260424-009-an-augmented-reality-sandbox/image.jpg)
+**Score:** 598 | **Source:** reddit/r/HolUp
 
 ---
 
-## Inescapable
-![Inescapable](20260424-009-inescapable/image.jpg)
-**Score:** 63 | **Source:** reddit/r/dankmemes
-
----
-
-## that took a turn real quick
-![that took a turn real quick](20260424-010-that-took-a-turn-real-quick/image.jpg)
-**Score:** 3,418 | **Source:** reddit/r/memes
+## love having a full-time job and still being in a constant state of pick two and 
+![love having a full-time job and still be](20260424-010-love-having-a-full-time-job-and-still-be/image.jpg)
+**Score:** 72 | **Source:** reddit/r/memes
 
 ---
 
@@ -70,56 +70,56 @@
 
 ---
 
-## Wild Thumbnail and Name for a Tax
-![Wild Thumbnail and Name for a Tax](20260424-012-wild-thumbnail-and-name-for-a-tax/image.jpg)
-**Score:** 112 | **Source:** reddit/r/memes
-
----
-
-## Lets go im safe
-![Lets go im safe](20260424-013-lets-go-im-safe/image.jpg)
-**Score:** 1,064 | **Source:** reddit/r/dankmemes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260424-014-dont-disturb-me/image.jpg)
-**Score:** 1,007 | **Source:** reddit/r/dankmemes
-
----
-
-## Drop you best meme
-![Drop you best meme](20260424-015-drop-you-best-meme/image.jpg)
-**Score:** 295 | **Source:** reddit/r/memes
-
----
-
-## Weird behavior
-![Weird behavior](20260424-016-weird-behavior/image.jpg)
-**Score:** 110 | **Source:** reddit/r/dankmemes
-
----
-
 ## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260424-017-we-aura-farming-in-the-pen-bois/image.jpg)
+![We aura farming in the Pen bois](20260424-012-we-aura-farming-in-the-pen-bois/image.jpg)
 **Score:** 77 | **Source:** reddit/r/dankmemes
 
 ---
 
+## Wild Thumbnail and Name for a Tax
+![Wild Thumbnail and Name for a Tax](20260424-013-wild-thumbnail-and-name-for-a-tax/image.jpg)
+**Score:** 112 | **Source:** reddit/r/memes
+
+---
+
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260424-014-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 142 | **Source:** reddit/r/dankmemes
+
+---
+
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260424-015-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 839 | **Source:** reddit/r/memes
+
+---
+
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260424-016-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 321 | **Source:** reddit/r/dankmemes
+
+---
+
+## How could I make noodles without it?
+![How could I make noodles without it?](20260424-017-how-could-i-make-noodles-without-it/image.jpg)
+**Score:** 3,416 | **Source:** reddit/r/memes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260424-018-fatherhood-baaaaad/image.jpg)
+**Score:** 2,526 | **Source:** reddit/r/dankmemes
+
+---
+
+## Inescapable
+![Inescapable](20260424-019-inescapable/image.jpg)
+**Score:** 63 | **Source:** reddit/r/dankmemes
+
+---
+
 ## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260424-018-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
+![I just want to play a wholesome dad and ](20260424-020-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
 **Score:** 9,112 | **Source:** reddit/r/memes
-
----
-
-## 5G human radar
-![5G human radar](20260424-019-5g-human-radar/image.jpg)
-**Score:** 3,452 | **Source:** reddit/r/memes
-
----
-
-## You Okay Babe?
-![You Okay Babe?](20260424-020-you-okay-babe/image.jpg)
-**Score:** 20,512 | **Source:** reddit/r/dankmemes
 
 ---

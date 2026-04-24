@@ -1,65 +1,89 @@
-# Meme Feed — 2026-04-25 00:20
+# Meme Feed — 2026-04-25 00:30
 
-**Total:** 10 memes | Refresh every 10 min
-
----
-
-## Chief Justice John Roberts mischaracterized more than $20 million in household i
-![Chief Justice John Roberts mischaracteri](20260425-001-chief-justice-john-roberts-mischaracteri/image.jpg)
-**Score:** 4,333 | **Source:** reddit/r/WhitePeopleTwitter
+**Total:** 14 memes | Refresh every 10 min
 
 ---
 
-## america is being run by first world criminals
-![america is being run by first world crim](20260425-002-america-is-being-run-by-first-world-crim/image.jpg)
-**Score:** 1,912 | **Source:** reddit/r/WhitePeopleTwitter
+## skins vs skins
+![skins vs skins](20260425-001-skins-vs-skins/image.jpg)
+**Score:** 1,014 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260425-003-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,140 | **Source:** reddit/r/facepalm
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260425-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 4,871 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260425-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,369 | **Source:** reddit/r/facepalm
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260425-003-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 971 | **Source:** reddit/r/facepalm
 
 ---
 
-## The detective didn't find it
-![The detective didn't find it](20260425-005-the-detective-didnt-find-it/image.jpg)
-**Score:** 33,773 | **Source:** reddit/r/technicallythetruth
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260425-004-well-did-they-accept-or-not/image.jpg)
+**Score:** 828 | **Source:** reddit/r/facepalm
 
 ---
 
-## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
-![Oh Oracle, How Will I Die? Surrounded By](20260425-006-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
-**Score:** 3,929 | **Source:** reddit/r/technicallythetruth
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260425-005-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,408 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260425-007-brother-what-even-are-these-polls/image.jpg)
-**Score:** 225 | **Source:** reddit/r/oddlyspecific
+## 125 per hour in Oregon
+![125 per hour in Oregon](20260425-006-125-per-hour-in-oregon/image.jpg)
+**Score:** 12,640 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260425-008-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 51 | **Source:** reddit/r/HolUp
+## Johnny SusStar
+![Johnny SusStar](20260425-007-johnny-susstar/image.jpg)
+**Score:** 77 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## International memes
-![International memes](20260425-009-international-memes/image.jpg)
-**Score:** 111 | **Source:** reddit/r/dankmemes
+## Who is your fav Cambodian gas station explosion survivor that is pregnant?
+![Who is your fav Cambodian gas station ex](20260425-008-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
+**Score:** 1,336 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260425-010-fatherhood-baaaaad/image.jpg)
-**Score:** 3,072 | **Source:** reddit/r/dankmemes
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260425-009-an-augmented-reality-sandbox/image.jpg)
+**Score:** 601 | **Source:** reddit/r/HolUp
+
+---
+
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260425-010-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 642 | **Source:** reddit/r/HolUp
+
+---
+
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260425-011-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 1,540 | **Source:** reddit/r/dankmemes
+
+---
+
+## How could I make noodles without it?
+![How could I make noodles without it?](20260425-012-how-could-i-make-noodles-without-it/image.jpg)
+**Score:** 3,853 | **Source:** reddit/r/memes
+
+---
+
+## Inescapable
+![Inescapable](20260425-013-inescapable/image.jpg)
+**Score:** 91 | **Source:** reddit/r/dankmemes
+
+---
+
+## love having a full-time job and still being in a constant state of pick two and 
+![love having a full-time job and still be](20260425-014-love-having-a-full-time-job-and-still-be/image.jpg)
+**Score:** 107 | **Source:** reddit/r/memes
 
 ---

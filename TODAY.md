@@ -1,72 +1,72 @@
-# Meme Feed — 2026-04-24 22:40
+# Meme Feed — 2026-04-24 22:50
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Word association Schoolboy Q
-![Word association Schoolboy Q](20260424-001-word-association-schoolboy-q/image.jpg)
-**Score:** 575 | **Source:** reddit/r/BlackPeopleTwitter
+## america is being run by first world criminals
+![america is being run by first world crim](20260424-001-america-is-being-run-by-first-world-crim/image.jpg)
+**Score:** 1,528 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260424-002-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,140 | **Source:** reddit/r/facepalm
+## skins vs skins
+![skins vs skins](20260424-002-skins-vs-skins/image.jpg)
+**Score:** 1,021 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260424-003-well-did-they-accept-or-not/image.jpg)
-**Score:** 830 | **Source:** reddit/r/facepalm
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260424-003-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,402 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Super rich or bus driver?
-![Super rich or bus driver?](20260424-004-super-rich-or-bus-driver/image.jpg)
-**Score:** 31,018 | **Source:** reddit/r/technicallythetruth
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260424-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,369 | **Source:** reddit/r/facepalm
 
 ---
 
-## It may appear to be anime, but if you take a closer look
-![It may appear to be anime, but if you ta](20260424-005-it-may-appear-to-be-anime-but-if-you-tak/image.jpg)
-**Score:** 386 | **Source:** reddit/r/suspiciouslyspecific
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260424-005-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 909 | **Source:** reddit/r/facepalm
 
 ---
 
-## imposter syndrome (among us disease)
-![imposter syndrome (among us disease)](20260424-006-imposter-syndrome-among-us-disease/image.jpg)
-**Score:** 2,241 | **Source:** reddit/r/suspiciouslyspecific
+## 125 per hour in Oregon
+![125 per hour in Oregon](20260424-006-125-per-hour-in-oregon/image.jpg)
+**Score:** 12,637 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Who is your fav Cambodian gas station explosion survivor that is pregnant?
-![Who is your fav Cambodian gas station ex](20260424-007-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
-**Score:** 1,249 | **Source:** reddit/r/oddlyspecific
+## Being shot with a depleted uranium bullet can't be good
+![Being shot with a depleted uranium bulle](20260424-007-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+**Score:** 496 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## love having a full-time job and still being in a constant state of pick two and 
-![love having a full-time job and still be](20260424-008-love-having-a-full-time-job-and-still-be/image.jpg)
-**Score:** 110 | **Source:** reddit/r/memes
+## How did none of you notice this?
+![How did none of you notice this?](20260424-008-how-did-none-of-you-notice-this/image.jpg)
+**Score:** 1,077 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260424-009-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 309 | **Source:** reddit/r/dankmemes
+## My 7 year old would love to know what others think of his drawing! Sus?
+![My 7 year old would love to know what ot](20260424-009-my-7-year-old-would-love-to-know-what-ot/image.jpg)
+**Score:** 1,251 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Why not just have chat gpt teach me at that point
-![Why not just have chat gpt teach me at t](20260424-010-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
-**Score:** 141 | **Source:** reddit/r/memes
+## Don't do that
+![Don't do that](20260424-010-dont-do-that/image.jpg)
+**Score:** 340 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260424-011-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 442 | **Source:** reddit/r/memes
+## Futabu anyone ???
+![Futabu anyone ???](20260424-011-futabu-anyone/image.jpg)
+**Score:** 2,273 | **Source:** reddit/r/HolUp
 
 ---
 
@@ -82,44 +82,44 @@
 
 ---
 
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260424-014-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 55 | **Source:** reddit/r/dankmemes
+## Such a shame
+![Such a shame](20260424-014-such-a-shame/image.jpg)
+**Score:** 2,082 | **Source:** reddit/r/memes
 
 ---
 
-## How could I make noodles without it?
-![How could I make noodles without it?](20260424-015-how-could-i-make-noodles-without-it/image.jpg)
-**Score:** 3,856 | **Source:** reddit/r/memes
+## that took a turn real quick
+![that took a turn real quick](20260424-015-that-took-a-turn-real-quick/image.jpg)
+**Score:** 3,873 | **Source:** reddit/r/memes
 
 ---
 
-## October Be A Feast
-![October Be A Feast](20260424-016-october-be-a-feast/image.jpg)
-**Score:** 79 | **Source:** reddit/r/memes
+## Weird behavior
+![Weird behavior](20260424-016-weird-behavior/image.jpg)
+**Score:** 114 | **Source:** reddit/r/dankmemes
 
 ---
 
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260424-017-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 320 | **Source:** reddit/r/dankmemes
+## Don't disturb me
+![Don't disturb me](20260424-017-dont-disturb-me/image.jpg)
+**Score:** 1,003 | **Source:** reddit/r/dankmemes
 
 ---
 
-## That is the worst
-![That is the worst](20260424-018-that-is-the-worst/image.jpg)
-**Score:** 17,705 | **Source:** reddit/r/memes
+## Same same but different.
+![Same same but different.](20260424-018-same-same-but-different/image.jpg)
+**Score:** 1,649 | **Source:** reddit/r/dankmemes
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260424-019-fatherhood-baaaaad/image.jpg)
-**Score:** 3,054 | **Source:** reddit/r/dankmemes
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260424-019-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 81 | **Source:** reddit/r/dankmemes
 
 ---
 
-## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260424-020-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
-**Score:** 1,999 | **Source:** reddit/r/memes
+## love having a full-time job and still being in a constant state of pick two and 
+![love having a full-time job and still be](20260424-020-love-having-a-full-time-job-and-still-be/image.jpg)
+**Score:** 110 | **Source:** reddit/r/memes
 
 ---

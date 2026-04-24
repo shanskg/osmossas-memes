@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-25 00:10
+# Meme Feed — 2026-04-25 00:20
 
-**Total:** 20 memes | Refresh every 10 min
-
----
-
-## Oh Brother, this guy STINKS!
-![Oh Brother, this guy STINKS!](20260425-001-oh-brother-this-guy-stinks/image.jpg)
-**Score:** 163 | **Source:** reddit/r/WhitePeopleTwitter
+**Total:** 10 memes | Refresh every 10 min
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260425-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,076 | **Source:** reddit/r/BlackPeopleTwitter
+## Chief Justice John Roberts mischaracterized more than $20 million in household i
+![Chief Justice John Roberts mischaracteri](20260425-001-chief-justice-john-roberts-mischaracteri/image.jpg)
+**Score:** 4,333 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Leave the whales alone
-![Leave the whales alone](20260425-003-leave-the-whales-alone/image.jpg)
-**Score:** 19,187 | **Source:** reddit/r/BlackPeopleTwitter
+## america is being run by first world criminals
+![america is being run by first world crim](20260425-002-america-is-being-run-by-first-world-crim/image.jpg)
+**Score:** 1,912 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260425-003-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,140 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -28,98 +28,38 @@
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260425-005-well-did-they-accept-or-not/image.jpg)
-**Score:** 830 | **Source:** reddit/r/facepalm
+## The detective didn't find it
+![The detective didn't find it](20260425-005-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,773 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
-![It's anthropomorphism because nature has](20260425-006-its-anthropomorphism-because-nature-has-/image.jpg)
-**Score:** 94 | **Source:** reddit/r/technicallythetruth
+## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
+![Oh Oracle, How Will I Die? Surrounded By](20260425-006-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
+**Score:** 3,929 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## A shower is hot
-![A shower is hot](20260425-007-a-shower-is-hot/image.jpg)
-**Score:** 844 | **Source:** reddit/r/technicallythetruth
+## Brother what even are these polls😐️
+![Brother what even are these polls😐️](20260425-007-brother-what-even-are-these-polls/image.jpg)
+**Score:** 225 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## The Hash-Slinging Slasher
-![The Hash-Slinging Slasher](20260425-008-the-hash-slinging-slasher/image.jpg)
-**Score:** 427 | **Source:** reddit/r/suspiciouslyspecific
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260425-008-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 51 | **Source:** reddit/r/HolUp
 
 ---
 
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260425-009-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 74 | **Source:** reddit/r/oddlyspecific
+## International memes
+![International memes](20260425-009-international-memes/image.jpg)
+**Score:** 111 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Darker and darker
-![Darker and darker](20260425-010-darker-and-darker/image.jpg)
-**Score:** 281 | **Source:** reddit/r/HolUp
-
----
-
-## Drop you best meme
-![Drop you best meme](20260425-011-drop-you-best-meme/image.jpg)
-**Score:** 482 | **Source:** reddit/r/memes
-
----
-
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260425-012-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 55 | **Source:** reddit/r/dankmemes
-
----
-
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260425-013-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 320 | **Source:** reddit/r/dankmemes
-
----
-
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260425-014-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 143 | **Source:** reddit/r/dankmemes
-
----
-
-## Just British Things
-![Just British Things](20260425-015-just-british-things/image.jpg)
-**Score:** 15,984 | **Source:** reddit/r/memes
-
----
-
-## Weird behavior
-![Weird behavior](20260425-016-weird-behavior/image.jpg)
-**Score:** 114 | **Source:** reddit/r/dankmemes
-
----
-
-## love having a full-time job and still being in a constant state of pick two and 
-![love having a full-time job and still be](20260425-017-love-having-a-full-time-job-and-still-be/image.jpg)
-**Score:** 110 | **Source:** reddit/r/memes
-
----
-
-## Lets go im safe
-![Lets go im safe](20260425-018-lets-go-im-safe/image.jpg)
-**Score:** 1,072 | **Source:** reddit/r/dankmemes
-
----
-
-## Why not just have chat gpt teach me at that point
-![Why not just have chat gpt teach me at t](20260425-019-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
-**Score:** 141 | **Source:** reddit/r/memes
-
----
-
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260425-020-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 442 | **Source:** reddit/r/memes
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260425-010-fatherhood-baaaaad/image.jpg)
+**Score:** 3,072 | **Source:** reddit/r/dankmemes
 
 ---

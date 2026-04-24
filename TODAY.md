@@ -1,125 +1,101 @@
-# Meme Feed — 2026-04-24 22:50
+# Meme Feed — 2026-04-24 23:00
 
-**Total:** 20 memes | Refresh every 10 min
-
----
-
-## america is being run by first world criminals
-![america is being run by first world crim](20260424-001-america-is-being-run-by-first-world-crim/image.jpg)
-**Score:** 1,528 | **Source:** reddit/r/WhitePeopleTwitter
+**Total:** 16 memes | Refresh every 10 min
 
 ---
 
-## skins vs skins
-![skins vs skins](20260424-002-skins-vs-skins/image.jpg)
-**Score:** 1,021 | **Source:** reddit/r/BlackPeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260424-001-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,690 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260424-003-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,402 | **Source:** reddit/r/BlackPeopleTwitter
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260424-002-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,140 | **Source:** reddit/r/facepalm
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260424-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,369 | **Source:** reddit/r/facepalm
+## The perfect combination of heading and Reddit mobile jank
+![The perfect combination of heading and R](20260424-003-the-perfect-combination-of-heading-and-r/image.jpg)
+**Score:** 232 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260424-005-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 909 | **Source:** reddit/r/facepalm
+## Guess what game this is (hint it has among us in the name)
+![Guess what game this is (hint it has amo](20260424-004-guess-what-game-this-is-hint-it-has-amon/image.jpg)
+**Score:** 157 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## 125 per hour in Oregon
-![125 per hour in Oregon](20260424-006-125-per-hour-in-oregon/image.jpg)
-**Score:** 12,637 | **Source:** reddit/r/technicallythetruth
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260424-005-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 75 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260424-007-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 496 | **Source:** reddit/r/technicallythetruth
+## Darker and darker
+![Darker and darker](20260424-006-darker-and-darker/image.jpg)
+**Score:** 285 | **Source:** reddit/r/HolUp
 
 ---
 
-## How did none of you notice this?
-![How did none of you notice this?](20260424-008-how-did-none-of-you-notice-this/image.jpg)
-**Score:** 1,077 | **Source:** reddit/r/suspiciouslyspecific
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260424-007-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 309 | **Source:** reddit/r/dankmemes
 
 ---
 
-## My 7 year old would love to know what others think of his drawing! Sus?
-![My 7 year old would love to know what ot](20260424-009-my-7-year-old-would-love-to-know-what-ot/image.jpg)
-**Score:** 1,251 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## Don't do that
-![Don't do that](20260424-010-dont-do-that/image.jpg)
-**Score:** 340 | **Source:** reddit/r/oddlyspecific
-
----
-
-## Futabu anyone ???
-![Futabu anyone ???](20260424-011-futabu-anyone/image.jpg)
-**Score:** 2,273 | **Source:** reddit/r/HolUp
-
----
-
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260424-012-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 1,085 | **Source:** reddit/r/dankmemes
-
----
-
-## There goes another one
-![There goes another one](20260424-013-there-goes-another-one/image.jpg)
-**Score:** 95 | **Source:** reddit/r/dankmemes
-
----
-
-## Such a shame
-![Such a shame](20260424-014-such-a-shame/image.jpg)
-**Score:** 2,082 | **Source:** reddit/r/memes
-
----
-
-## that took a turn real quick
-![that took a turn real quick](20260424-015-that-took-a-turn-real-quick/image.jpg)
-**Score:** 3,873 | **Source:** reddit/r/memes
-
----
-
-## Weird behavior
-![Weird behavior](20260424-016-weird-behavior/image.jpg)
-**Score:** 114 | **Source:** reddit/r/dankmemes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260424-017-dont-disturb-me/image.jpg)
-**Score:** 1,003 | **Source:** reddit/r/dankmemes
-
----
-
-## Same same but different.
-![Same same but different.](20260424-018-same-same-but-different/image.jpg)
-**Score:** 1,649 | **Source:** reddit/r/dankmemes
-
----
-
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260424-019-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 81 | **Source:** reddit/r/dankmemes
+## Lets go im safe
+![Lets go im safe](20260424-008-lets-go-im-safe/image.jpg)
+**Score:** 1,072 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## love having a full-time job and still being in a constant state of pick two and 
-![love having a full-time job and still be](20260424-020-love-having-a-full-time-job-and-still-be/image.jpg)
+![love having a full-time job and still be](20260424-009-love-having-a-full-time-job-and-still-be/image.jpg)
 **Score:** 110 | **Source:** reddit/r/memes
+
+---
+
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260424-010-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 143 | **Source:** reddit/r/dankmemes
+
+---
+
+## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
+![Not a my opinion but based on recent com](20260424-011-not-a-my-opinion-but-based-on-recent-com/image.jpg)
+**Score:** 1,999 | **Source:** reddit/r/memes
+
+---
+
+## Drop you best meme
+![Drop you best meme](20260424-012-drop-you-best-meme/image.jpg)
+**Score:** 482 | **Source:** reddit/r/memes
+
+---
+
+## Such a shame
+![Such a shame](20260424-013-such-a-shame/image.jpg)
+**Score:** 2,082 | **Source:** reddit/r/memes
+
+---
+
+## Inescapable
+![Inescapable](20260424-014-inescapable/image.jpg)
+**Score:** 87 | **Source:** reddit/r/dankmemes
+
+---
+
+## There goes another one
+![There goes another one](20260424-015-there-goes-another-one/image.jpg)
+**Score:** 95 | **Source:** reddit/r/dankmemes
+
+---
+
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260424-016-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 1,999 | **Source:** reddit/r/memes
 
 ---

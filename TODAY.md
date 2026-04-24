@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-24 23:50
+# Meme Feed — 2026-04-25 00:00
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Acting SECNAV is very concerned about witches taking over the US.
-![Acting SECNAV is very concerned about wi](20260424-001-acting-secnav-is-very-concerned-about-wi/image.jpg)
-**Score:** 301 | **Source:** reddit/r/WhitePeopleTwitter
-
----
-
-## Leave the whales alone
-![Leave the whales alone](20260424-002-leave-the-whales-alone/image.jpg)
-**Score:** 19,187 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260424-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,076 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260424-004-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 909 | **Source:** reddit/r/facepalm
+## skins vs skins
+![skins vs skins](20260425-001-skins-vs-skins/image.jpg)
+**Score:** 1,014 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260424-005-another-reminder-of-were-not-a-cult/image.jpg)
+![Another reminder of 'We're not a cult."](20260425-002-another-reminder-of-were-not-a-cult/image.jpg)
 **Score:** 4,140 | **Source:** reddit/r/facepalm
 
 ---
 
-## Some inflation is good
-![Some inflation is good](20260424-006-some-inflation-is-good/image.jpg)
-**Score:** 15,682 | **Source:** reddit/r/technicallythetruth
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260425-003-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 909 | **Source:** reddit/r/facepalm
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260424-007-enjoy-your-hot-water/image.jpg)
-**Score:** 976 | **Source:** reddit/r/technicallythetruth
+## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
+![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260425-004-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
+**Score:** 11,259 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## it’s everywhere
-![it’s everywhere](20260424-008-its-everywhere/image.jpg)
-**Score:** 101 | **Source:** reddit/r/suspiciouslyspecific
+## Being shot with a depleted uranium bullet can't be good
+![Being shot with a depleted uranium bulle](20260425-005-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+**Score:** 501 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260424-009-ai-is-everywhere/image.jpg)
-**Score:** 969 | **Source:** reddit/r/HolUp
+## found an old notebook from 6th grade
+![found an old notebook from 6th grade](20260425-006-found-an-old-notebook-from-6th-grade/image.jpg)
+**Score:** 5,702 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Couldn't be me
-![Couldn't be me](20260424-010-couldnt-be-me/image.jpg)
-**Score:** 1,527 | **Source:** reddit/r/dankmemes
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260425-007-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 411 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## Darker and darker
+![Darker and darker](20260425-008-darker-and-darker/image.jpg)
+**Score:** 281 | **Source:** reddit/r/HolUp
+
+---
+
+## Weird behavior
+![Weird behavior](20260425-009-weird-behavior/image.jpg)
+**Score:** 114 | **Source:** reddit/r/dankmemes
+
+---
+
+## Same same but different.
+![Same same but different.](20260425-010-same-same-but-different/image.jpg)
+**Score:** 1,649 | **Source:** reddit/r/dankmemes
+
+---
+
+## How could I make noodles without it?
+![How could I make noodles without it?](20260425-011-how-could-i-make-noodles-without-it/image.jpg)
+**Score:** 3,856 | **Source:** reddit/r/memes
 
 ---
 
 ## Such a shame
-![Such a shame](20260424-011-such-a-shame/image.jpg)
+![Such a shame](20260425-012-such-a-shame/image.jpg)
 **Score:** 2,082 | **Source:** reddit/r/memes
 
 ---
 
+## Couldn't be me
+![Couldn't be me](20260425-013-couldnt-be-me/image.jpg)
+**Score:** 1,527 | **Source:** reddit/r/dankmemes
+
+---
+
+## Just British Things
+![Just British Things](20260425-014-just-british-things/image.jpg)
+**Score:** 15,984 | **Source:** reddit/r/memes
+
+---
+
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260425-015-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,462 | **Source:** reddit/r/dankmemes
+
+---
+
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260425-016-got-to-time-it-just-right-before-the-amb/image.jpg)
+**Score:** 55 | **Source:** reddit/r/dankmemes
+
+---
+
+## For legal reasons I'm not suggesting anyone actually do this
+![For legal reasons I'm not suggesting any](20260425-017-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
+**Score:** 320 | **Source:** reddit/r/dankmemes
+
+---
+
+## Drop you best meme
+![Drop you best meme](20260425-018-drop-you-best-meme/image.jpg)
+**Score:** 482 | **Source:** reddit/r/memes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260425-019-you-okay-babe/image.jpg)
+**Score:** 20,539 | **Source:** reddit/r/dankmemes
+
+---
+
 ## Wild Thumbnail and Name for a Tax
-![Wild Thumbnail and Name for a Tax](20260424-012-wild-thumbnail-and-name-for-a-tax/image.jpg)
+![Wild Thumbnail and Name for a Tax](20260425-020-wild-thumbnail-and-name-for-a-tax/image.jpg)
 **Score:** 185 | **Source:** reddit/r/memes
-
----
-
-## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
-![Not a my opinion but based on recent com](20260424-013-not-a-my-opinion-but-based-on-recent-com/image.jpg)
-**Score:** 1,999 | **Source:** reddit/r/memes
-
----
-
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260424-014-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 81 | **Source:** reddit/r/dankmemes
-
----
-
-## love having a full-time job and still being in a constant state of pick two and 
-![love having a full-time job and still be](20260424-015-love-having-a-full-time-job-and-still-be/image.jpg)
-**Score:** 110 | **Source:** reddit/r/memes
-
----
-
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260424-016-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 442 | **Source:** reddit/r/memes
-
----
-
-## that took a turn real quick
-![that took a turn real quick](20260424-017-that-took-a-turn-real-quick/image.jpg)
-**Score:** 3,873 | **Source:** reddit/r/memes
-
----
-
-## October Be A Feast
-![October Be A Feast](20260424-018-october-be-a-feast/image.jpg)
-**Score:** 79 | **Source:** reddit/r/memes
-
----
-
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260424-019-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 309 | **Source:** reddit/r/dankmemes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260424-020-dont-disturb-me/image.jpg)
-**Score:** 1,003 | **Source:** reddit/r/dankmemes
 
 ---

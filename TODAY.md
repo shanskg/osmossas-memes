@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-24 15:20
+# Meme Feed — 2026-04-24 15:31
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## He's really on top
-![He's really on top](20260424-001-hes-really-on-top/image.jpg)
-**Score:** 1,940 | **Source:** reddit/r/BlackPeopleTwitter
+## Chief Justice John Roberts mischaracterized more than $20 million in household i
+![Chief Justice John Roberts mischaracteri](20260424-001-chief-justice-john-roberts-mischaracteri/image.jpg)
+**Score:** 4,310 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260424-002-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,361 | **Source:** reddit/r/facepalm
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260424-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,070 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -22,104 +22,104 @@
 
 ---
 
-## Some inflation is good
-![Some inflation is good](20260424-004-some-inflation-is-good/image.jpg)
-**Score:** 15,686 | **Source:** reddit/r/technicallythetruth
+## A shower is hot
+![A shower is hot](20260424-004-a-shower-is-hot/image.jpg)
+**Score:** 760 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## outperforming the inflation rate
-![outperforming the inflation rate](20260424-005-outperforming-the-inflation-rate/image.jpg)
-**Score:** 65,050 | **Source:** reddit/r/technicallythetruth
+## The Great Amongball...
+![The Great Amongball...](20260424-005-the-great-amongball/image.jpg)
+**Score:** 83 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## It's Sabotage
-![It's Sabotage](20260424-006-its-sabotage/image.jpg)
-**Score:** 79 | **Source:** reddit/r/suspiciouslyspecific
+## AI is everywhere
+![AI is everywhere](20260424-006-ai-is-everywhere/image.jpg)
+**Score:** 966 | **Source:** reddit/r/HolUp
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260424-007-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 410 | **Source:** reddit/r/oddlyspecific
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260424-007-fatherhood-baaaaad/image.jpg)
+**Score:** 2,899 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260424-008-futabu-anyone/image.jpg)
-**Score:** 2,261 | **Source:** reddit/r/HolUp
+## Wild Thumbnail and Name for a Tax
+![Wild Thumbnail and Name for a Tax](20260424-008-wild-thumbnail-and-name-for-a-tax/image.jpg)
+**Score:** 146 | **Source:** reddit/r/memes
 
 ---
 
-## What a serene ceremony..
-![What a serene ceremony..](20260424-009-what-a-serene-ceremony/image.jpg)
-**Score:** 146 | **Source:** reddit/r/HolUp
+## That is the worst
+![That is the worst](20260424-009-that-is-the-worst/image.jpg)
+**Score:** 6,094 | **Source:** reddit/r/dankmemes
 
 ---
 
-## 5G human radar
-![5G human radar](20260424-010-5g-human-radar/image.jpg)
-**Score:** 3,488 | **Source:** reddit/r/memes
+## I've got my priorities straight!
+![I've got my priorities straight!](20260424-010-ive-got-my-priorities-straight/image.jpg)
+**Score:** 69 | **Source:** reddit/r/dankmemes
+
+---
+
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260424-011-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 304 | **Source:** reddit/r/dankmemes
+
+---
+
+## That is the worst
+![That is the worst](20260424-012-that-is-the-worst/image.jpg)
+**Score:** 17,405 | **Source:** reddit/r/memes
 
 ---
 
 ## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260424-011-daredevil-spoilers-if-you-care/image.jpg)
+![Daredevil Spoilers if you care](20260424-013-daredevil-spoilers-if-you-care/image.jpg)
 **Score:** 140 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260424-012-dont-disturb-me/image.jpg)
-**Score:** 1,007 | **Source:** reddit/r/dankmemes
+## 5G human radar
+![5G human radar](20260424-014-5g-human-radar/image.jpg)
+**Score:** 3,488 | **Source:** reddit/r/memes
 
 ---
 
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260424-013-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 57 | **Source:** reddit/r/dankmemes
-
----
-
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260424-014-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 325 | **Source:** reddit/r/dankmemes
-
----
-
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260424-015-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 9,127 | **Source:** reddit/r/memes
-
----
-
-## Inescapable
-![Inescapable](20260424-016-inescapable/image.jpg)
-**Score:** 72 | **Source:** reddit/r/dankmemes
-
----
-
-## every single night
-![every single night](20260424-017-every-single-night/image.jpg)
-**Score:** 231 | **Source:** reddit/r/memes
-
----
-
-## How could I make noodles without it?
-![How could I make noodles without it?](20260424-018-how-could-i-make-noodles-without-it/image.jpg)
-**Score:** 3,728 | **Source:** reddit/r/memes
+## Such a shame
+![Such a shame](20260424-015-such-a-shame/image.jpg)
+**Score:** 1,230 | **Source:** reddit/r/memes
 
 ---
 
 ## October Be A Feast
-![October Be A Feast](20260424-019-october-be-a-feast/image.jpg)
+![October Be A Feast](20260424-016-october-be-a-feast/image.jpg)
 **Score:** 63 | **Source:** reddit/r/memes
 
 ---
 
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260424-017-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 1,367 | **Source:** reddit/r/memes
+
+---
+
+## Drop you best meme
+![Drop you best meme](20260424-018-drop-you-best-meme/image.jpg)
+**Score:** 391 | **Source:** reddit/r/memes
+
+---
+
 ## love having a full-time job and still being in a constant state of pick two and 
-![love having a full-time job and still be](20260424-020-love-having-a-full-time-job-and-still-be/image.jpg)
+![love having a full-time job and still be](20260424-019-love-having-a-full-time-job-and-still-be/image.jpg)
 **Score:** 94 | **Source:** reddit/r/memes
+
+---
+
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260424-020-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,394 | **Source:** reddit/r/dankmemes
 
 ---

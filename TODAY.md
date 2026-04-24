@@ -1,6 +1,6 @@
-# Meme Feed — 2026-04-24 22:11
+# Meme Feed — 2026-04-24 22:20
 
-**Total:** 17 memes | Refresh every 10 min
+**Total:** 15 memes | Refresh every 10 min
 
 ---
 
@@ -16,92 +16,80 @@
 
 ---
 
-## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
-![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260424-003-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
-**Score:** 1,361 | **Source:** reddit/r/technicallythetruth
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260424-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,363 | **Source:** reddit/r/facepalm
 
 ---
 
-## When the sausages are sus
-![When the sausages are sus](20260424-004-when-the-sausages-are-sus/image.jpg)
-**Score:** 101 | **Source:** reddit/r/suspiciouslyspecific
+## The detective didn't find it
+![The detective didn't find it](20260424-004-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,771 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260424-005-brother-what-even-are-these-polls/image.jpg)
-**Score:** 211 | **Source:** reddit/r/oddlyspecific
+## i just opened youtube
+![i just opened youtube](20260424-005-i-just-opened-youtube/image.jpg)
+**Score:** 8,962 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## They're the same person!
-![They're the same person!](20260424-006-theyre-the-same-person/image.jpg)
-**Score:** 51 | **Source:** reddit/r/dankmemes
+## The Hash-Slinging Slasher
+![The Hash-Slinging Slasher](20260424-006-the-hash-slinging-slasher/image.jpg)
+**Score:** 423 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260424-007-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 9,142 | **Source:** reddit/r/memes
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260424-007-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 410 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Just British Things
-![Just British Things](20260424-008-just-british-things/image.jpg)
-**Score:** 12,162 | **Source:** reddit/r/memes
-
----
-
-## Weird behavior
-![Weird behavior](20260424-009-weird-behavior/image.jpg)
-**Score:** 112 | **Source:** reddit/r/dankmemes
-
----
-
-## That is the worst
-![That is the worst](20260424-010-that-is-the-worst/image.jpg)
-**Score:** 17,628 | **Source:** reddit/r/memes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260424-011-dont-disturb-me/image.jpg)
-**Score:** 1,007 | **Source:** reddit/r/dankmemes
-
----
-
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260424-012-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 326 | **Source:** reddit/r/dankmemes
+## AI is everywhere
+![AI is everywhere](20260424-008-ai-is-everywhere/image.jpg)
+**Score:** 969 | **Source:** reddit/r/HolUp
 
 ---
 
 ## Drop you best meme
-![Drop you best meme](20260424-013-drop-you-best-meme/image.jpg)
-**Score:** 469 | **Source:** reddit/r/memes
+![Drop you best meme](20260424-009-drop-you-best-meme/image.jpg)
+**Score:** 482 | **Source:** reddit/r/memes
 
 ---
 
 ## October Be A Feast
-![October Be A Feast](20260424-014-october-be-a-feast/image.jpg)
-**Score:** 75 | **Source:** reddit/r/memes
+![October Be A Feast](20260424-010-october-be-a-feast/image.jpg)
+**Score:** 79 | **Source:** reddit/r/memes
 
 ---
 
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260424-015-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 54 | **Source:** reddit/r/dankmemes
+## Why are so many men like this? Based on real facts
+![Why are so many men like this? Based on ](20260424-011-why-are-so-many-men-like-this-based-on-r/image.jpg)
+**Score:** 442 | **Source:** reddit/r/memes
 
 ---
 
-## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260424-016-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
-**Score:** 1,896 | **Source:** reddit/r/memes
+## How could I make noodles without it?
+![How could I make noodles without it?](20260424-012-how-could-i-make-noodles-without-it/image.jpg)
+**Score:** 3,856 | **Source:** reddit/r/memes
 
 ---
 
-## Same same but different.
-![Same same but different.](20260424-017-same-same-but-different/image.jpg)
-**Score:** 1,626 | **Source:** reddit/r/dankmemes
+## They're the same person!
+![They're the same person!](20260424-013-theyre-the-same-person/image.jpg)
+**Score:** 55 | **Source:** reddit/r/dankmemes
+
+---
+
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260424-014-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 1,085 | **Source:** reddit/r/dankmemes
+
+---
+
+## Couldn't be me
+![Couldn't be me](20260424-015-couldnt-be-me/image.jpg)
+**Score:** 1,527 | **Source:** reddit/r/dankmemes
 
 ---

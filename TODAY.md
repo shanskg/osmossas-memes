@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-25 00:40
+# Meme Feed — 2026-04-25 00:50
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## It's funny and not funny because it's true.
-![It's funny and not funny because it's tr](20260425-001-its-funny-and-not-funny-because-its-true/image.jpg)
-**Score:** 3,472 | **Source:** reddit/r/WhitePeopleTwitter
+## They have the self-awareness of a wet fart.
+![They have the self-awareness of a wet fa](20260425-001-they-have-the-self-awareness-of-a-wet-fa/image.jpg)
+**Score:** 7,852 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260425-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,407 | **Source:** reddit/r/BlackPeopleTwitter
+## He's really on top
+![He's really on top](20260425-002-hes-really-on-top/image.jpg)
+**Score:** 1,936 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## She was a honeypot deployed to provide updates on their progress
-![She was a honeypot deployed to provide u](20260425-003-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
-**Score:** 3,849 | **Source:** reddit/r/BlackPeopleTwitter
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260425-003-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 971 | **Source:** reddit/r/facepalm
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260425-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,367 | **Source:** reddit/r/facepalm
+## I cast stairs... Wrong subReddit
+![I cast stairs... Wrong subReddit](20260425-004-i-cast-stairs-wrong-subreddit/image.jpg)
+**Score:** 2,610 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260425-005-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,136 | **Source:** reddit/r/facepalm
+## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
+![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260425-005-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
+**Score:** 11,259 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260425-006-enjoy-your-hot-water/image.jpg)
-**Score:** 976 | **Source:** reddit/r/technicallythetruth
+## Rest in piss
+![Rest in piss](20260425-006-rest-in-piss/image.jpg)
+**Score:** 402 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## He's in there somewhere
-![He's in there somewhere](20260425-007-hes-in-there-somewhere/image.jpg)
-**Score:** 1,531 | **Source:** reddit/r/suspiciouslyspecific
+## Don't do that
+![Don't do that](20260425-007-dont-do-that/image.jpg)
+**Score:** 342 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Just slightly...
-![Just slightly...](20260425-008-just-slightly/image.jpg)
-**Score:** 524 | **Source:** reddit/r/suspiciouslyspecific
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260425-008-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 74 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Who is your fav Cambodian gas station explosion survivor that is pregnant?
-![Who is your fav Cambodian gas station ex](20260425-009-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
-**Score:** 1,336 | **Source:** reddit/r/oddlyspecific
+## Darker and darker
+![Darker and darker](20260425-009-darker-and-darker/image.jpg)
+**Score:** 281 | **Source:** reddit/r/HolUp
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260425-010-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 642 | **Source:** reddit/r/HolUp
-
----
-
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260425-011-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 77 | **Source:** reddit/r/dankmemes
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260425-010-an-augmented-reality-sandbox/image.jpg)
+**Score:** 601 | **Source:** reddit/r/HolUp
 
 ---
 
 ## Lets go im safe
-![Lets go im safe](20260425-012-lets-go-im-safe/image.jpg)
+![Lets go im safe](20260425-011-lets-go-im-safe/image.jpg)
 **Score:** 1,082 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
-![Not a my opinion but based on recent com](20260425-013-not-a-my-opinion-but-based-on-recent-com/image.jpg)
-**Score:** 1,997 | **Source:** reddit/r/memes
+## There goes another one
+![There goes another one](20260425-012-there-goes-another-one/image.jpg)
+**Score:** 96 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Drop you best meme
-![Drop you best meme](20260425-014-drop-you-best-meme/image.jpg)
-**Score:** 495 | **Source:** reddit/r/memes
+## International memes
+![International memes](20260425-013-international-memes/image.jpg)
+**Score:** 111 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260425-015-fatherhood-baaaaad/image.jpg)
+!["Fatherhood baaaaad!!!"](20260425-014-fatherhood-baaaaad/image.jpg)
 **Score:** 3,072 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Wild Thumbnail and Name for a Tax
-![Wild Thumbnail and Name for a Tax](20260425-016-wild-thumbnail-and-name-for-a-tax/image.jpg)
-**Score:** 186 | **Source:** reddit/r/memes
+## Same same but different.
+![Same same but different.](20260425-015-same-same-but-different/image.jpg)
+**Score:** 1,655 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Why not just have chat gpt teach me at that point
-![Why not just have chat gpt teach me at t](20260425-017-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
-**Score:** 202 | **Source:** reddit/r/memes
+## Don't disturb me
+![Don't disturb me](20260425-016-dont-disturb-me/image.jpg)
+**Score:** 1,009 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260425-018-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 1,143 | **Source:** reddit/r/memes
+## Couldn't be me
+![Couldn't be me](20260425-017-couldnt-be-me/image.jpg)
+**Score:** 1,792 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I've got my priorities straight!
-![I've got my priorities straight!](20260425-019-ive-got-my-priorities-straight/image.jpg)
-**Score:** 70 | **Source:** reddit/r/dankmemes
+## love having a full-time job and still being in a constant state of pick two and 
+![love having a full-time job and still be](20260425-018-love-having-a-full-time-job-and-still-be/image.jpg)
+**Score:** 107 | **Source:** reddit/r/memes
 
 ---
 
-## Just British Things
-![Just British Things](20260425-020-just-british-things/image.jpg)
-**Score:** 18,819 | **Source:** reddit/r/memes
+## That is the worst
+![That is the worst](20260425-019-that-is-the-worst/image.jpg)
+**Score:** 17,768 | **Source:** reddit/r/memes
+
+---
+
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260425-020-got-to-time-it-just-right-before-the-amb/image.jpg)
+**Score:** 57 | **Source:** reddit/r/dankmemes
 
 ---

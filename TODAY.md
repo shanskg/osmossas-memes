@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-24 19:21
+# Meme Feed — 2026-04-24 19:34
 
-**Total:** 20 memes | Refresh every 10 min
-
----
-
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260424-001-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,408 | **Source:** reddit/r/BlackPeopleTwitter
+**Total:** 19 memes | Refresh every 10 min
 
 ---
 
 ## Word association Schoolboy Q
-![Word association Schoolboy Q](20260424-002-word-association-schoolboy-q/image.jpg)
+![Word association Schoolboy Q](20260424-001-word-association-schoolboy-q/image.jpg)
 **Score:** 394 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260424-002-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 747 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -22,57 +22,57 @@
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260424-004-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 747 | **Source:** reddit/r/facepalm
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260424-004-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,400 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260424-005-i-cast-stairs-wrong-subreddit/image.jpg)
-**Score:** 2,578 | **Source:** reddit/r/technicallythetruth
+## 125 per hour in Oregon
+![125 per hour in Oregon](20260424-005-125-per-hour-in-oregon/image.jpg)
+**Score:** 12,640 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Among us irl 🤯
-![Among us irl 🤯](20260424-006-among-us-irl/image.jpg)
-**Score:** 235 | **Source:** reddit/r/suspiciouslyspecific
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260424-006-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 75 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260424-007-brother-what-even-are-these-polls/image.jpg)
-**Score:** 202 | **Source:** reddit/r/oddlyspecific
+## Are you sure
+![Are you sure](20260424-007-are-you-sure/image.jpg)
+**Score:** 117 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260424-008-futabu-anyone/image.jpg)
-**Score:** 2,263 | **Source:** reddit/r/HolUp
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260424-008-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 1,723 | **Source:** reddit/r/memes
 
 ---
 
-## Just British Things
-![Just British Things](20260424-009-just-british-things/image.jpg)
-**Score:** 7,237 | **Source:** reddit/r/memes
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260424-009-fatherhood-baaaaad/image.jpg)
+**Score:** 3,003 | **Source:** reddit/r/dankmemes
 
 ---
 
-## October Be A Feast
-![October Be A Feast](20260424-010-october-be-a-feast/image.jpg)
-**Score:** 73 | **Source:** reddit/r/memes
-
----
-
-## Lets go im safe
-![Lets go im safe](20260424-011-lets-go-im-safe/image.jpg)
-**Score:** 1,070 | **Source:** reddit/r/dankmemes
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260424-010-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 145 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260424-012-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+![POV: You posted your art online vs. You'](20260424-011-pov-you-posted-your-art-online-vs-youre-/image.jpg)
 **Score:** 3,444 | **Source:** reddit/r/dankmemes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260424-012-you-okay-babe/image.jpg)
+**Score:** 20,524 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -82,44 +82,38 @@
 
 ---
 
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260424-014-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 75 | **Source:** reddit/r/dankmemes
-
----
-
-## You Okay Babe?
-![You Okay Babe?](20260424-015-you-okay-babe/image.jpg)
-**Score:** 20,524 | **Source:** reddit/r/dankmemes
-
----
-
 ## I've got my priorities straight!
-![I've got my priorities straight!](20260424-016-ive-got-my-priorities-straight/image.jpg)
+![I've got my priorities straight!](20260424-014-ive-got-my-priorities-straight/image.jpg)
 **Score:** 69 | **Source:** reddit/r/dankmemes
 
 ---
 
-## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260424-017-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
-**Score:** 1,723 | **Source:** reddit/r/memes
-
----
-
-## Are you sure
-![Are you sure](20260424-018-are-you-sure/image.jpg)
-**Score:** 117 | **Source:** reddit/r/dankmemes
-
----
-
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260424-019-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 145 | **Source:** reddit/r/dankmemes
-
----
-
 ## 5G human radar
-![5G human radar](20260424-020-5g-human-radar/image.jpg)
+![5G human radar](20260424-015-5g-human-radar/image.jpg)
 **Score:** 3,511 | **Source:** reddit/r/memes
+
+---
+
+## Just British Things
+![Just British Things](20260424-016-just-british-things/image.jpg)
+**Score:** 7,237 | **Source:** reddit/r/memes
+
+---
+
+## October Be A Feast
+![October Be A Feast](20260424-017-october-be-a-feast/image.jpg)
+**Score:** 73 | **Source:** reddit/r/memes
+
+---
+
+## Lets go im safe
+![Lets go im safe](20260424-018-lets-go-im-safe/image.jpg)
+**Score:** 1,070 | **Source:** reddit/r/dankmemes
+
+---
+
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260424-019-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 75 | **Source:** reddit/r/dankmemes
 
 ---

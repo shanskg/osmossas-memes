@@ -1,72 +1,72 @@
-# Meme Feed — 2026-04-24 17:20
+# Meme Feed — 2026-04-24 17:31
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Acting SECNAV is very concerned about witches taking over the US.
-![Acting SECNAV is very concerned about wi](20260424-001-acting-secnav-is-very-concerned-about-wi/image.jpg)
-**Score:** 186 | **Source:** reddit/r/WhitePeopleTwitter
+## Oh Brother, this guy STINKS!
+![Oh Brother, this guy STINKS!](20260424-001-oh-brother-this-guy-stinks/image.jpg)
+**Score:** 97 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Word association Schoolboy Q
-![Word association Schoolboy Q](20260424-002-word-association-schoolboy-q/image.jpg)
-**Score:** 224 | **Source:** reddit/r/BlackPeopleTwitter
+## He's gambling with world economy, no one can disagree.
+![He's gambling with world economy, no one](20260424-002-hes-gambling-with-world-economy-no-one-c/image.jpg)
+**Score:** 3,866 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260424-003-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,403 | **Source:** reddit/r/BlackPeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260424-003-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,668 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## skins vs skins
+![skins vs skins](20260424-004-skins-vs-skins/image.jpg)
+**Score:** 1,015 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260424-005-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,145 | **Source:** reddit/r/facepalm
 
 ---
 
 ## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260424-004-south-korean-pilots-were-taking-selfies-/image.jpg)
+![South Korean Pilots Were Taking Selfies ](20260424-006-south-korean-pilots-were-taking-selfies-/image.jpg)
 **Score:** 675 | **Source:** reddit/r/facepalm
 
 ---
 
-## Look at this track in F-zero (1991, SNES)
-![Look at this track in F-zero (1991, SNES](20260424-005-look-at-this-track-in-f-zero-1991-snes/image.jpg)
-**Score:** 73 | **Source:** reddit/r/suspiciouslyspecific
+## Enjoy your hot water
+![Enjoy your hot water](20260424-007-enjoy-your-hot-water/image.jpg)
+**Score:** 968 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Who is your fav Cambodian gas station explosion survivor that is pregnant?
-![Who is your fav Cambodian gas station ex](20260424-006-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
-**Score:** 1,118 | **Source:** reddit/r/oddlyspecific
+## The perfect combination of heading and Reddit mobile jank
+![The perfect combination of heading and R](20260424-008-the-perfect-combination-of-heading-and-r/image.jpg)
+**Score:** 232 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## What a serene ceremony..
-![What a serene ceremony..](20260424-007-what-a-serene-ceremony/image.jpg)
-**Score:** 244 | **Source:** reddit/r/HolUp
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260424-009-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 75 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260424-008-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,331 | **Source:** reddit/r/HolUp
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260424-010-an-augmented-reality-sandbox/image.jpg)
+**Score:** 600 | **Source:** reddit/r/HolUp
 
 ---
 
-## There goes another one
-![There goes another one](20260424-009-there-goes-another-one/image.jpg)
-**Score:** 92 | **Source:** reddit/r/dankmemes
-
----
-
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260424-010-fatherhood-baaaaad/image.jpg)
-**Score:** 2,956 | **Source:** reddit/r/dankmemes
-
----
-
-## that took a turn real quick
-![that took a turn real quick](20260424-011-that-took-a-turn-real-quick/image.jpg)
-**Score:** 3,774 | **Source:** reddit/r/memes
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260424-011-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 642 | **Source:** reddit/r/HolUp
 
 ---
 
@@ -76,50 +76,50 @@
 
 ---
 
-## Wild Thumbnail and Name for a Tax
-![Wild Thumbnail and Name for a Tax](20260424-013-wild-thumbnail-and-name-for-a-tax/image.jpg)
-**Score:** 162 | **Source:** reddit/r/memes
+## That is the worst
+![That is the worst](20260424-013-that-is-the-worst/image.jpg)
+**Score:** 6,135 | **Source:** reddit/r/dankmemes
 
 ---
 
-## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260424-014-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
-**Score:** 1,560 | **Source:** reddit/r/memes
+## There goes another one
+![There goes another one](20260424-014-there-goes-another-one/image.jpg)
+**Score:** 92 | **Source:** reddit/r/dankmemes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260424-015-fatherhood-baaaaad/image.jpg)
+**Score:** 2,956 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260424-015-excuse-me-pardon-me-coming-thru/image.jpg)
+![excuse me pardon me coming thru](20260424-016-excuse-me-pardon-me-coming-thru/image.jpg)
 **Score:** 310 | **Source:** reddit/r/dankmemes
 
 ---
 
-## every single night
-![every single night](20260424-016-every-single-night/image.jpg)
-**Score:** 232 | **Source:** reddit/r/memes
-
----
-
-## Inescapable
-![Inescapable](20260424-017-inescapable/image.jpg)
-**Score:** 81 | **Source:** reddit/r/dankmemes
-
----
-
 ## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260424-018-daredevil-spoilers-if-you-care/image.jpg)
+![Daredevil Spoilers if you care](20260424-017-daredevil-spoilers-if-you-care/image.jpg)
 **Score:** 139 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Drop you best meme
-![Drop you best meme](20260424-019-drop-you-best-meme/image.jpg)
-**Score:** 420 | **Source:** reddit/r/memes
+## Such a shame
+![Such a shame](20260424-018-such-a-shame/image.jpg)
+**Score:** 1,500 | **Source:** reddit/r/memes
 
 ---
 
-## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
-![Not a my opinion but based on recent com](20260424-020-not-a-my-opinion-but-based-on-recent-com/image.jpg)
-**Score:** 1,964 | **Source:** reddit/r/memes
+## It's like a hierarchy in here
+![It's like a hierarchy in here](20260424-019-its-like-a-hierarchy-in-here/image.jpg)
+**Score:** 100 | **Source:** reddit/r/memes
+
+---
+
+## that took a turn real quick
+![that took a turn real quick](20260424-020-that-took-a-turn-real-quick/image.jpg)
+**Score:** 3,774 | **Source:** reddit/r/memes
 
 ---

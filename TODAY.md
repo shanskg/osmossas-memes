@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-24 08:21
+# Meme Feed — 2026-04-24 08:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260424-001-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 4,436 | **Source:** reddit/r/BlackPeopleTwitter
+## Chief Justice John Roberts mischaracterized more than $20 million in household i
+![Chief Justice John Roberts mischaracteri](20260424-001-chief-justice-john-roberts-mischaracteri/image.jpg)
+**Score:** 4,279 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## Leave the whales alone
+![Leave the whales alone](20260424-002-leave-the-whales-alone/image.jpg)
+**Score:** 19,182 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## He's really on top
+![He's really on top](20260424-003-hes-really-on-top/image.jpg)
+**Score:** 1,933 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260424-002-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260424-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,365 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260424-003-another-reminder-of-were-not-a-cult/image.jpg)
+![Another reminder of 'We're not a cult."](20260424-005-another-reminder-of-were-not-a-cult/image.jpg)
 **Score:** 4,148 | **Source:** reddit/r/facepalm
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260424-004-enjoy-your-hot-water/image.jpg)
-**Score:** 974 | **Source:** reddit/r/technicallythetruth
+## 125 per hour in Oregon
+![125 per hour in Oregon](20260424-006-125-per-hour-in-oregon/image.jpg)
+**Score:** 12,639 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260424-005-i-just-opened-youtube/image.jpg)
-**Score:** 8,966 | **Source:** reddit/r/technicallythetruth
+## when subaru is sus
+![when subaru is sus](20260424-007-when-subaru-is-sus/image.jpg)
+**Score:** 161 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Drop you best meme
-![Drop you best meme](20260424-006-drop-you-best-meme/image.jpg)
-**Score:** 295 | **Source:** reddit/r/memes
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260424-008-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 71 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Weird behavior
-![Weird behavior](20260424-007-weird-behavior/image.jpg)
-**Score:** 110 | **Source:** reddit/r/dankmemes
-
----
-
-## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
-![Not a my opinion but based on recent com](20260424-008-not-a-my-opinion-but-based-on-recent-com/image.jpg)
-**Score:** 1,822 | **Source:** reddit/r/memes
-
----
-
-## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260424-009-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
-**Score:** 839 | **Source:** reddit/r/memes
-
----
-
-## every single night
-![every single night](20260424-010-every-single-night/image.jpg)
-**Score:** 224 | **Source:** reddit/r/memes
-
----
-
-## Same same but different.
-![Same same but different.](20260424-011-same-same-but-different/image.jpg)
-**Score:** 1,416 | **Source:** reddit/r/dankmemes
-
----
-
-## I've got my priorities straight!
-![I've got my priorities straight!](20260424-012-ive-got-my-priorities-straight/image.jpg)
-**Score:** 73 | **Source:** reddit/r/dankmemes
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260424-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 640 | **Source:** reddit/r/HolUp
 
 ---
 
 ## That is the worst
-![That is the worst](20260424-013-that-is-the-worst/image.jpg)
+![That is the worst](20260424-010-that-is-the-worst/image.jpg)
 **Score:** 16,993 | **Source:** reddit/r/memes
 
 ---
 
-## How could I make noodles without it?
-![How could I make noodles without it?](20260424-014-how-could-i-make-noodles-without-it/image.jpg)
-**Score:** 3,416 | **Source:** reddit/r/memes
-
----
-
-## Lets go im safe
-![Lets go im safe](20260424-015-lets-go-im-safe/image.jpg)
-**Score:** 1,064 | **Source:** reddit/r/dankmemes
-
----
-
-## love having a full-time job and still being in a constant state of pick two and 
-![love having a full-time job and still be](20260424-016-love-having-a-full-time-job-and-still-be/image.jpg)
-**Score:** 72 | **Source:** reddit/r/memes
-
----
-
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260424-017-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,456 | **Source:** reddit/r/dankmemes
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260424-011-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,198 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260424-018-excuse-me-pardon-me-coming-thru/image.jpg)
+![excuse me pardon me coming thru](20260424-012-excuse-me-pardon-me-coming-thru/image.jpg)
 **Score:** 306 | **Source:** reddit/r/dankmemes
 
 ---
 
-## the worst thing you can do in the dad's car
-![the worst thing you can do in the dad's ](20260424-019-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
-**Score:** 78 | **Source:** reddit/r/memes
+## every single night
+![every single night](20260424-013-every-single-night/image.jpg)
+**Score:** 224 | **Source:** reddit/r/memes
 
 ---
 
-## Wild Thumbnail and Name for a Tax
-![Wild Thumbnail and Name for a Tax](20260424-020-wild-thumbnail-and-name-for-a-tax/image.jpg)
-**Score:** 112 | **Source:** reddit/r/memes
+## 5G human radar
+![5G human radar](20260424-014-5g-human-radar/image.jpg)
+**Score:** 3,452 | **Source:** reddit/r/memes
+
+---
+
+## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
+![Not a my opinion but based on recent com](20260424-015-not-a-my-opinion-but-based-on-recent-com/image.jpg)
+**Score:** 1,822 | **Source:** reddit/r/memes
+
+---
+
+## that took a turn real quick
+![that took a turn real quick](20260424-016-that-took-a-turn-real-quick/image.jpg)
+**Score:** 3,418 | **Source:** reddit/r/memes
+
+---
+
+## Same same but different.
+![Same same but different.](20260424-017-same-same-but-different/image.jpg)
+**Score:** 1,416 | **Source:** reddit/r/dankmemes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260424-018-fatherhood-baaaaad/image.jpg)
+**Score:** 2,526 | **Source:** reddit/r/dankmemes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260424-019-dont-disturb-me/image.jpg)
+**Score:** 1,007 | **Source:** reddit/r/dankmemes
+
+---
+
+## love having a full-time job and still being in a constant state of pick two and 
+![love having a full-time job and still be](20260424-020-love-having-a-full-time-job-and-still-be/image.jpg)
+**Score:** 72 | **Source:** reddit/r/memes
 
 ---

@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-24 10:50
+# Meme Feed — 2026-04-24 11:00
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## They have the self-awareness of a wet fart.
-![They have the self-awareness of a wet fa](20260424-001-they-have-the-self-awareness-of-a-wet-fa/image.jpg)
-**Score:** 7,835 | **Source:** reddit/r/WhitePeopleTwitter
+## Chief Justice John Roberts mischaracterized more than $20 million in household i
+![Chief Justice John Roberts mischaracteri](20260424-001-chief-justice-john-roberts-mischaracteri/image.jpg)
+**Score:** 4,282 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## U.S. Rep. David Scott (D-GA) has died at the age of 80. He was running for re-el
-![U.S. Rep. David Scott (D-GA) has died at](20260424-002-us-rep-david-scott-d-ga-has-died-at-the-/image.jpg)
-**Score:** 832 | **Source:** reddit/r/WhitePeopleTwitter
+## At this point, it may even be a genetic trait
+![At this point, it may even be a genetic ](20260424-002-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+**Score:** 7,021 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## He's really on top
-![He's really on top](20260424-003-hes-really-on-top/image.jpg)
-**Score:** 1,936 | **Source:** reddit/r/BlackPeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260424-003-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,656 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -28,98 +28,98 @@
 
 ---
 
-## He didn't sound like much of anything in there
-![He didn't sound like much of anything in](20260424-005-he-didnt-sound-like-much-of-anything-in-/image.jpg)
-**Score:** 1,833 | **Source:** reddit/r/technicallythetruth
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260424-005-well-did-they-accept-or-not/image.jpg)
+**Score:** 831 | **Source:** reddit/r/facepalm
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260424-006-i-just-opened-youtube/image.jpg)
-**Score:** 8,968 | **Source:** reddit/r/technicallythetruth
+## He did NOT dodge a bullet
+![He did NOT dodge a bullet](20260424-006-he-did-not-dodge-a-bullet/image.jpg)
+**Score:** 42,257 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260424-007-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 402 | **Source:** reddit/r/oddlyspecific
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260424-007-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,406 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## that took a turn real quick
-![that took a turn real quick](20260424-008-that-took-a-turn-real-quick/image.jpg)
-**Score:** 3,497 | **Source:** reddit/r/memes
+## This is Loading. from among us
+![This is Loading. from among us](20260424-008-this-is-loading-from-among-us/image.jpg)
+**Score:** 111 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## That is the worst
-![That is the worst](20260424-009-that-is-the-worst/image.jpg)
-**Score:** 17,135 | **Source:** reddit/r/memes
+## My local children's Emergency Department doesn't treat Testicular Pain
+![My local children's Emergency Department](20260424-009-my-local-childrens-emergency-department-/image.jpg)
+**Score:** 50 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Wild Thumbnail and Name for a Tax
-![Wild Thumbnail and Name for a Tax](20260424-010-wild-thumbnail-and-name-for-a-tax/image.jpg)
-**Score:** 123 | **Source:** reddit/r/memes
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260424-010-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 639 | **Source:** reddit/r/HolUp
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260424-011-lets-go-im-safe/image.jpg)
-**Score:** 1,060 | **Source:** reddit/r/dankmemes
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260424-011-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 311 | **Source:** reddit/r/dankmemes
 
 ---
 
-## There goes another one
-![There goes another one](20260424-012-there-goes-another-one/image.jpg)
-**Score:** 92 | **Source:** reddit/r/dankmemes
+## International memes
+![International memes](20260424-012-international-memes/image.jpg)
+**Score:** 86 | **Source:** reddit/r/dankmemes
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260424-013-fatherhood-baaaaad/image.jpg)
-**Score:** 2,671 | **Source:** reddit/r/dankmemes
+## love having a full-time job and still being in a constant state of pick two and 
+![love having a full-time job and still be](20260424-013-love-having-a-full-time-job-and-still-be/image.jpg)
+**Score:** 78 | **Source:** reddit/r/memes
 
 ---
 
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260424-014-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 3,306 | **Source:** reddit/r/dankmemes
-
----
-
-## every single night
-![every single night](20260424-015-every-single-night/image.jpg)
-**Score:** 226 | **Source:** reddit/r/memes
-
----
-
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260424-016-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 52 | **Source:** reddit/r/dankmemes
-
----
-
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260424-017-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 81 | **Source:** reddit/r/dankmemes
-
----
-
-## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
-![Not a my opinion but based on recent com](20260424-018-not-a-my-opinion-but-based-on-recent-com/image.jpg)
-**Score:** 1,868 | **Source:** reddit/r/memes
+## Are you sure
+![Are you sure](20260424-014-are-you-sure/image.jpg)
+**Score:** 111 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## the worst thing you can do in the dad's car
-![the worst thing you can do in the dad's ](20260424-019-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
+![the worst thing you can do in the dad's ](20260424-015-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
 **Score:** 83 | **Source:** reddit/r/memes
 
 ---
 
-## It's like a hierarchy in here
-![It's like a hierarchy in here](20260424-020-its-like-a-hierarchy-in-here/image.jpg)
-**Score:** 96 | **Source:** reddit/r/memes
+## There goes another one
+![There goes another one](20260424-016-there-goes-another-one/image.jpg)
+**Score:** 92 | **Source:** reddit/r/dankmemes
+
+---
+
+## How could I make noodles without it?
+![How could I make noodles without it?](20260424-017-how-could-i-make-noodles-without-it/image.jpg)
+**Score:** 3,519 | **Source:** reddit/r/memes
+
+---
+
+## 5G human radar
+![5G human radar](20260424-018-5g-human-radar/image.jpg)
+**Score:** 3,456 | **Source:** reddit/r/memes
+
+---
+
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260424-019-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,451 | **Source:** reddit/r/dankmemes
+
+---
+
+## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
+![Not a my opinion but based on recent com](20260424-020-not-a-my-opinion-but-based-on-recent-com/image.jpg)
+**Score:** 1,868 | **Source:** reddit/r/memes
 
 ---

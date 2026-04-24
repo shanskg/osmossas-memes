@@ -1,4 +1,4 @@
-# Meme Feed — 2026-04-24 16:30
+# Meme Feed — 2026-04-24 16:41
 
 **Total:** 20 memes | Refresh every 10 min
 
@@ -16,57 +16,57 @@
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260424-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,070 | **Source:** reddit/r/BlackPeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260424-003-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,662 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260424-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 835 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260424-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,360 | **Source:** reddit/r/facepalm
 
 ---
 
-## Among cells
-![Among cells](20260424-005-among-cells/image.jpg)
-**Score:** 798 | **Source:** reddit/r/suspiciouslyspecific
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260424-005-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 675 | **Source:** reddit/r/facepalm
 
 ---
 
-## This is Loading. from among us
-![This is Loading. from among us](20260424-006-this-is-loading-from-among-us/image.jpg)
-**Score:** 112 | **Source:** reddit/r/suspiciouslyspecific
+## He didn't sound like much of anything in there
+![He didn't sound like much of anything in](20260424-006-he-didnt-sound-like-much-of-anything-in-/image.jpg)
+**Score:** 1,832 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260424-007-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 410 | **Source:** reddit/r/oddlyspecific
+## Rest in piss
+![Rest in piss](20260424-007-rest-in-piss/image.jpg)
+**Score:** 403 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260424-008-ai-is-everywhere/image.jpg)
-**Score:** 966 | **Source:** reddit/r/HolUp
+## How could I make noodles without it?
+![How could I make noodles without it?](20260424-008-how-could-i-make-noodles-without-it/image.jpg)
+**Score:** 3,774 | **Source:** reddit/r/memes
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260424-009-fatherhood-baaaaad/image.jpg)
-**Score:** 2,956 | **Source:** reddit/r/dankmemes
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260424-009-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 1,560 | **Source:** reddit/r/memes
 
 ---
 
-## Drop you best meme
-![Drop you best meme](20260424-010-drop-you-best-meme/image.jpg)
-**Score:** 420 | **Source:** reddit/r/memes
+## There goes another one
+![There goes another one](20260424-010-there-goes-another-one/image.jpg)
+**Score:** 92 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Not a my opinion but based on recent comments I saw on Euphoria / The Devil Wear
-![Not a my opinion but based on recent com](20260424-011-not-a-my-opinion-but-based-on-recent-com/image.jpg)
-**Score:** 1,964 | **Source:** reddit/r/memes
+## excuse me pardon me coming thru
+![excuse me pardon me coming thru](20260424-011-excuse-me-pardon-me-coming-thru/image.jpg)
+**Score:** 310 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -76,50 +76,50 @@
 
 ---
 
-## love having a full-time job and still being in a constant state of pick two and 
-![love having a full-time job and still be](20260424-013-love-having-a-full-time-job-and-still-be/image.jpg)
-**Score:** 96 | **Source:** reddit/r/memes
+## Wild Thumbnail and Name for a Tax
+![Wild Thumbnail and Name for a Tax](20260424-013-wild-thumbnail-and-name-for-a-tax/image.jpg)
+**Score:** 162 | **Source:** reddit/r/memes
 
 ---
 
-## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260424-014-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
-**Score:** 1,560 | **Source:** reddit/r/memes
-
----
-
-## Such a shame
-![Such a shame](20260424-015-such-a-shame/image.jpg)
-**Score:** 1,500 | **Source:** reddit/r/memes
+## the worst thing you can do in the dad's car
+![the worst thing you can do in the dad's ](20260424-014-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
+**Score:** 89 | **Source:** reddit/r/memes
 
 ---
 
 ## 5G human radar
-![5G human radar](20260424-016-5g-human-radar/image.jpg)
+![5G human radar](20260424-015-5g-human-radar/image.jpg)
 **Score:** 3,497 | **Source:** reddit/r/memes
 
 ---
 
 ## Same same but different.
-![Same same but different.](20260424-017-same-same-but-different/image.jpg)
+![Same same but different.](20260424-016-same-same-but-different/image.jpg)
 **Score:** 1,584 | **Source:** reddit/r/dankmemes
 
 ---
 
-## It's like a hierarchy in here
-![It's like a hierarchy in here](20260424-018-its-like-a-hierarchy-in-here/image.jpg)
-**Score:** 100 | **Source:** reddit/r/memes
-
----
-
-## October Be A Feast
-![October Be A Feast](20260424-019-october-be-a-feast/image.jpg)
-**Score:** 64 | **Source:** reddit/r/memes
+## that took a turn real quick
+![that took a turn real quick](20260424-017-that-took-a-turn-real-quick/image.jpg)
+**Score:** 3,774 | **Source:** reddit/r/memes
 
 ---
 
 ## That is the worst
-![That is the worst](20260424-020-that-is-the-worst/image.jpg)
+![That is the worst](20260424-018-that-is-the-worst/image.jpg)
 **Score:** 6,135 | **Source:** reddit/r/dankmemes
+
+---
+
+## That is the worst
+![That is the worst](20260424-019-that-is-the-worst/image.jpg)
+**Score:** 17,497 | **Source:** reddit/r/memes
+
+---
+
+## October Be A Feast
+![October Be A Feast](20260424-020-october-be-a-feast/image.jpg)
+**Score:** 64 | **Source:** reddit/r/memes
 
 ---

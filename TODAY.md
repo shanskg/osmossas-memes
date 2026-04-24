@@ -1,102 +1,102 @@
-# Meme Feed — 2026-04-24 18:50
+# Meme Feed — 2026-04-24 19:01
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Chief Justice John Roberts mischaracterized more than $20 million in household i
-![Chief Justice John Roberts mischaracteri](20260424-001-chief-justice-john-roberts-mischaracteri/image.jpg)
-**Score:** 4,314 | **Source:** reddit/r/WhitePeopleTwitter
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260424-001-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,412 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## makes me sick
-![makes me sick](20260424-002-makes-me-sick/image.jpg)
-**Score:** 1,002 | **Source:** reddit/r/WhitePeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260424-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 4,789 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260424-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,077 | **Source:** reddit/r/BlackPeopleTwitter
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260424-003-well-did-they-accept-or-not/image.jpg)
+**Score:** 832 | **Source:** reddit/r/facepalm
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260424-004-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,139 | **Source:** reddit/r/facepalm
+## outperforming the inflation rate
+![outperforming the inflation rate](20260424-004-outperforming-the-inflation-rate/image.jpg)
+**Score:** 65,048 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260424-005-enjoy-your-hot-water/image.jpg)
-**Score:** 968 | **Source:** reddit/r/technicallythetruth
+## Among who?
+![Among who?](20260424-005-among-who/image.jpg)
+**Score:** 3,789 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Juicy Amogus pics
-![Juicy Amogus pics](20260424-006-juicy-amogus-pics/image.jpg)
-**Score:** 810 | **Source:** reddit/r/suspiciouslyspecific
+## geometry sus
+![geometry sus](20260424-006-geometry-sus/image.jpg)
+**Score:** 74 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Dippers shadow in this episode of Gravity Falls
-![Dippers shadow in this episode of Gravit](20260424-007-dippers-shadow-in-this-episode-of-gravit/image.jpg)
-**Score:** 1,086 | **Source:** reddit/r/suspiciouslyspecific
+## Don't do that
+![Don't do that](20260424-007-dont-do-that/image.jpg)
+**Score:** 339 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Darker and darker
-![Darker and darker](20260424-008-darker-and-darker/image.jpg)
-**Score:** 281 | **Source:** reddit/r/HolUp
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260424-008-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,325 | **Source:** reddit/r/HolUp
+
+---
+
+## Are you sure
+![Are you sure](20260424-009-are-you-sure/image.jpg)
+**Score:** 117 | **Source:** reddit/r/dankmemes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260424-010-fatherhood-baaaaad/image.jpg)
+**Score:** 3,003 | **Source:** reddit/r/dankmemes
+
+---
+
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260424-011-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 145 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## That is the worst
-![That is the worst](20260424-009-that-is-the-worst/image.jpg)
+![That is the worst](20260424-012-that-is-the-worst/image.jpg)
 **Score:** 17,554 | **Source:** reddit/r/memes
 
 ---
 
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260424-013-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 1,723 | **Source:** reddit/r/memes
+
+---
+
+## We aura farming in the Pen bois
+![We aura farming in the Pen bois](20260424-014-we-aura-farming-in-the-pen-bois/image.jpg)
+**Score:** 75 | **Source:** reddit/r/dankmemes
+
+---
+
 ## Just British Things
-![Just British Things](20260424-010-just-british-things/image.jpg)
+![Just British Things](20260424-015-just-british-things/image.jpg)
 **Score:** 7,237 | **Source:** reddit/r/memes
 
 ---
 
 ## October Be A Feast
-![October Be A Feast](20260424-011-october-be-a-feast/image.jpg)
+![October Be A Feast](20260424-016-october-be-a-feast/image.jpg)
 **Score:** 73 | **Source:** reddit/r/memes
-
----
-
-## 5G human radar
-![5G human radar](20260424-012-5g-human-radar/image.jpg)
-**Score:** 3,511 | **Source:** reddit/r/memes
-
----
-
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260424-013-fatherhood-baaaaad/image.jpg)
-**Score:** 3,003 | **Source:** reddit/r/dankmemes
-
----
-
-## Lets go im safe
-![Lets go im safe](20260424-014-lets-go-im-safe/image.jpg)
-**Score:** 1,070 | **Source:** reddit/r/dankmemes
-
----
-
-## I've got my priorities straight!
-![I've got my priorities straight!](20260424-015-ive-got-my-priorities-straight/image.jpg)
-**Score:** 69 | **Source:** reddit/r/dankmemes
-
----
-
-## We aura farming in the Pen bois
-![We aura farming in the Pen bois](20260424-016-we-aura-farming-in-the-pen-bois/image.jpg)
-**Score:** 75 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -106,20 +106,20 @@
 
 ---
 
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260424-018-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 145 | **Source:** reddit/r/dankmemes
+## 5G human radar
+![5G human radar](20260424-018-5g-human-radar/image.jpg)
+**Score:** 3,511 | **Source:** reddit/r/memes
 
 ---
 
-## You Okay Babe?
-![You Okay Babe?](20260424-019-you-okay-babe/image.jpg)
-**Score:** 20,524 | **Source:** reddit/r/dankmemes
+## I've got my priorities straight!
+![I've got my priorities straight!](20260424-019-ive-got-my-priorities-straight/image.jpg)
+**Score:** 69 | **Source:** reddit/r/dankmemes
 
 ---
 
-## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260424-020-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
-**Score:** 1,723 | **Source:** reddit/r/memes
+## Lets go im safe
+![Lets go im safe](20260424-020-lets-go-im-safe/image.jpg)
+**Score:** 1,070 | **Source:** reddit/r/dankmemes
 
 ---

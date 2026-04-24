@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-24 08:50
+# Meme Feed — 2026-04-24 09:00
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## skins vs skins
-![skins vs skins](20260424-001-skins-vs-skins/image.jpg)
-**Score:** 1,015 | **Source:** reddit/r/BlackPeopleTwitter
+## Navy Secretary leaving in the MIDDLE OF A WAR? Clown show.
+![Navy Secretary leaving in the MIDDLE OF ](20260424-001-navy-secretary-leaving-in-the-middle-of-/image.jpg)
+**Score:** 134 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260424-002-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,365 | **Source:** reddit/r/facepalm
+## At this point, it may even be a genetic trait
+![At this point, it may even be a genetic ](20260424-002-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+**Score:** 7,023 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## This a celly, that's a tool
+![This a celly, that's a tool](20260424-003-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,641 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260424-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260424-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,179 | **Source:** reddit/r/facepalm
 
 ---
 
-## Super rich or bus driver?
-![Super rich or bus driver?](20260424-004-super-rich-or-bus-driver/image.jpg)
-**Score:** 31,009 | **Source:** reddit/r/technicallythetruth
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260424-005-well-did-they-accept-or-not/image.jpg)
+**Score:** 829 | **Source:** reddit/r/facepalm
 
 ---
 
-## Among Us Meme
-![Among Us Meme](20260424-005-among-us-meme/image.jpg)
-**Score:** 86 | **Source:** reddit/r/suspiciouslyspecific
+## To be fair an Avocado is just Guacamole in ball form.
+![To be fair an Avocado is just Guacamole ](20260424-006-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
+**Score:** 10,070 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## My 7 year old would love to know what others think of his drawing! Sus?
-![My 7 year old would love to know what ot](20260424-006-my-7-year-old-would-love-to-know-what-ot/image.jpg)
-**Score:** 1,253 | **Source:** reddit/r/suspiciouslyspecific
+## it’s everywhere
+![it’s everywhere](20260424-007-its-everywhere/image.jpg)
+**Score:** 100 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260424-007-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 230 | **Source:** reddit/r/oddlyspecific
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260424-008-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 70 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260424-008-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 640 | **Source:** reddit/r/HolUp
-
----
-
-## How could I make noodles without it?
-![How could I make noodles without it?](20260424-009-how-could-i-make-noodles-without-it/image.jpg)
-**Score:** 3,416 | **Source:** reddit/r/memes
-
----
-
-## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260424-010-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
-**Score:** 839 | **Source:** reddit/r/memes
-
----
-
-## Same same but different.
-![Same same but different.](20260424-011-same-same-but-different/image.jpg)
-**Score:** 1,416 | **Source:** reddit/r/dankmemes
-
----
-
-## It's in the blood
-![It's in the blood](20260424-012-its-in-the-blood/image.jpg)
-**Score:** 275 | **Source:** reddit/r/dankmemes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260424-013-dont-disturb-me/image.jpg)
-**Score:** 1,007 | **Source:** reddit/r/dankmemes
-
----
-
-## Inescapable
-![Inescapable](20260424-014-inescapable/image.jpg)
-**Score:** 63 | **Source:** reddit/r/dankmemes
+## Darker and darker
+![Darker and darker](20260424-009-darker-and-darker/image.jpg)
+**Score:** 284 | **Source:** reddit/r/HolUp
 
 ---
 
 ## Wild Thumbnail and Name for a Tax
-![Wild Thumbnail and Name for a Tax](20260424-015-wild-thumbnail-and-name-for-a-tax/image.jpg)
+![Wild Thumbnail and Name for a Tax](20260424-010-wild-thumbnail-and-name-for-a-tax/image.jpg)
 **Score:** 112 | **Source:** reddit/r/memes
 
 ---
 
-## Chuckled a lot seeing this
-![Chuckled a lot seeing this](20260424-016-chuckled-a-lot-seeing-this/image.jpg)
-**Score:** 4,433 | **Source:** reddit/r/memes
+## How could I make noodles without it?
+![How could I make noodles without it?](20260424-011-how-could-i-make-noodles-without-it/image.jpg)
+**Score:** 3,416 | **Source:** reddit/r/memes
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260424-017-fatherhood-baaaaad/image.jpg)
-**Score:** 2,526 | **Source:** reddit/r/dankmemes
-
----
-
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260424-018-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,456 | **Source:** reddit/r/dankmemes
+## every single night
+![every single night](20260424-012-every-single-night/image.jpg)
+**Score:** 224 | **Source:** reddit/r/memes
 
 ---
 
 ## Drop you best meme
-![Drop you best meme](20260424-019-drop-you-best-meme/image.jpg)
+![Drop you best meme](20260424-013-drop-you-best-meme/image.jpg)
 **Score:** 295 | **Source:** reddit/r/memes
 
 ---
 
-## For legal reasons I'm not suggesting anyone actually do this
-![For legal reasons I'm not suggesting any](20260424-020-for-legal-reasons-im-not-suggesting-anyo/image.jpg)
-**Score:** 321 | **Source:** reddit/r/dankmemes
+## love having a full-time job and still being in a constant state of pick two and 
+![love having a full-time job and still be](20260424-014-love-having-a-full-time-job-and-still-be/image.jpg)
+**Score:** 72 | **Source:** reddit/r/memes
+
+---
+
+## You Okay Babe?
+![You Okay Babe?](20260424-015-you-okay-babe/image.jpg)
+**Score:** 20,512 | **Source:** reddit/r/dankmemes
+
+---
+
+## the worst thing you can do in the dad's car
+![the worst thing you can do in the dad's ](20260424-016-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
+**Score:** 78 | **Source:** reddit/r/memes
+
+---
+
+## International memes
+![International memes](20260424-017-international-memes/image.jpg)
+**Score:** 78 | **Source:** reddit/r/dankmemes
+
+---
+
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260424-018-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 142 | **Source:** reddit/r/dankmemes
+
+---
+
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260424-019-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,456 | **Source:** reddit/r/dankmemes
+
+---
+
+## Same same but different.
+![Same same but different.](20260424-020-same-same-but-different/image.jpg)
+**Score:** 1,416 | **Source:** reddit/r/dankmemes
 
 ---

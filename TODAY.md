@@ -1,96 +1,96 @@
-# Meme Feed — 2026-04-25 03:51
+# Meme Feed — 2026-04-25 04:01
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## This might have never come out if she wasn't dumb enough to run for office.
-![This might have never come out if she wa](20260425-001-this-might-have-never-come-out-if-she-wa/image.jpg)
-**Score:** 2,996 | **Source:** reddit/r/WhitePeopleTwitter
+## You know you are in a cult when you try to somehow justify the WRONG math of the
+![You know you are in a cult when you try ](20260425-001-you-know-you-are-in-a-cult-when-you-try-/image.jpg)
+**Score:** 11,034 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260425-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,406 | **Source:** reddit/r/BlackPeopleTwitter
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260425-002-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,405 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## skins vs skins
-![skins vs skins](20260425-003-skins-vs-skins/image.jpg)
-**Score:** 1,015 | **Source:** reddit/r/BlackPeopleTwitter
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260425-003-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 995 | **Source:** reddit/r/facepalm
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260425-004-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,140 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260425-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,360 | **Source:** reddit/r/facepalm
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260425-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,169 | **Source:** reddit/r/facepalm
+## Some inflation is good
+![Some inflation is good](20260425-005-some-inflation-is-good/image.jpg)
+**Score:** 15,688 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## outperforming the inflation rate
-![outperforming the inflation rate](20260425-006-outperforming-the-inflation-rate/image.jpg)
-**Score:** 65,058 | **Source:** reddit/r/technicallythetruth
+## Enjoy your hot water
+![Enjoy your hot water](20260425-006-enjoy-your-hot-water/image.jpg)
+**Score:** 972 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
-![Oh Oracle, How Will I Die? Surrounded By](20260425-007-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
-**Score:** 3,930 | **Source:** reddit/r/technicallythetruth
+## Rest in piss
+![Rest in piss](20260425-007-rest-in-piss/image.jpg)
+**Score:** 406 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Sus adventures
-![Sus adventures](20260425-008-sus-adventures/image.jpg)
-**Score:** 138 | **Source:** reddit/r/suspiciouslyspecific
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260425-008-an-augmented-reality-sandbox/image.jpg)
+**Score:** 597 | **Source:** reddit/r/HolUp
 
 ---
 
-## SUStainable Copper
-![SUStainable Copper](20260425-009-sustainable-copper/image.jpg)
-**Score:** 259 | **Source:** reddit/r/suspiciouslyspecific
+## How could I make noodles without it?
+![How could I make noodles without it?](20260425-009-how-could-i-make-noodles-without-it/image.jpg)
+**Score:** 3,861 | **Source:** reddit/r/memes
 
 ---
 
-## Inescapable
-![Inescapable](20260425-010-inescapable/image.jpg)
-**Score:** 94 | **Source:** reddit/r/dankmemes
-
----
-
-## There goes another one
-![There goes another one](20260425-011-there-goes-another-one/image.jpg)
-**Score:** 96 | **Source:** reddit/r/dankmemes
-
----
-
-## Just British Things
-![Just British Things](20260425-012-just-british-things/image.jpg)
-**Score:** 20,170 | **Source:** reddit/r/memes
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260425-010-got-to-time-it-just-right-before-the-amb/image.jpg)
+**Score:** 58 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260425-013-daredevil-spoilers-if-you-care/image.jpg)
+![Daredevil Spoilers if you care](20260425-011-daredevil-spoilers-if-you-care/image.jpg)
 **Score:** 139 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260425-014-fatherhood-baaaaad/image.jpg)
+!["Fatherhood baaaaad!!!"](20260425-012-fatherhood-baaaaad/image.jpg)
 **Score:** 3,092 | **Source:** reddit/r/dankmemes
 
 ---
 
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260425-015-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 3,472 | **Source:** reddit/r/dankmemes
+## Same same but different.
+![Same same but different.](20260425-013-same-same-but-different/image.jpg)
+**Score:** 1,669 | **Source:** reddit/r/dankmemes
+
+---
+
+## Just British Things
+![Just British Things](20260425-014-just-british-things/image.jpg)
+**Score:** 20,170 | **Source:** reddit/r/memes
+
+---
+
+## Don't disturb me
+![Don't disturb me](20260425-015-dont-disturb-me/image.jpg)
+**Score:** 1,014 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -100,26 +100,26 @@
 
 ---
 
-## poisonous animal
-![poisonous animal](20260425-017-poisonous-animal/image.jpg)
-**Score:** 52 | **Source:** reddit/r/dankmemes
-
----
-
-## International memes
-![International memes](20260425-018-international-memes/image.jpg)
-**Score:** 114 | **Source:** reddit/r/dankmemes
-
----
-
 ## Couldn't be me
-![Couldn't be me](20260425-019-couldnt-be-me/image.jpg)
+![Couldn't be me](20260425-017-couldnt-be-me/image.jpg)
 **Score:** 1,950 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Lets go im safe
-![Lets go im safe](20260425-020-lets-go-im-safe/image.jpg)
+![Lets go im safe](20260425-018-lets-go-im-safe/image.jpg)
 **Score:** 1,076 | **Source:** reddit/r/dankmemes
+
+---
+
+## International memes
+![International memes](20260425-019-international-memes/image.jpg)
+**Score:** 114 | **Source:** reddit/r/dankmemes
+
+---
+
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260425-020-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,472 | **Source:** reddit/r/dankmemes
 
 ---

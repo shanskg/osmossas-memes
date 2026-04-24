@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-24 11:10
+# Meme Feed — 2026-04-24 11:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Yes, we trust his market manipulation skill.
-![Yes, we trust his market manipulation sk](20260424-001-yes-we-trust-his-market-manipulation-ski/image.jpg)
-**Score:** 85 | **Source:** reddit/r/WhitePeopleTwitter
+## At this point, it may even be a genetic trait
+![At this point, it may even be a genetic ](20260424-001-at-this-point-it-may-even-be-a-genetic-t/image.jpg)
+**Score:** 7,021 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## He's really on top
-![He's really on top](20260424-002-hes-really-on-top/image.jpg)
-**Score:** 1,936 | **Source:** reddit/r/BlackPeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260424-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,074 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## skins vs skins
-![skins vs skins](20260424-003-skins-vs-skins/image.jpg)
-**Score:** 1,011 | **Source:** reddit/r/BlackPeopleTwitter
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260424-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,369 | **Source:** reddit/r/facepalm
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260424-004-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 318 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260424-004-well-did-they-accept-or-not/image.jpg)
+**Score:** 831 | **Source:** reddit/r/facepalm
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260424-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,176 | **Source:** reddit/r/facepalm
+## i just opened youtube
+![i just opened youtube](20260424-005-i-just-opened-youtube/image.jpg)
+**Score:** 8,968 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Some inflation is good
-![Some inflation is good](20260424-006-some-inflation-is-good/image.jpg)
-**Score:** 15,678 | **Source:** reddit/r/technicallythetruth
+## The detective didn't find it
+![The detective didn't find it](20260424-006-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,777 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260424-007-enjoy-your-hot-water/image.jpg)
-**Score:** 975 | **Source:** reddit/r/technicallythetruth
+## Sus adventures
+![Sus adventures](20260424-007-sus-adventures/image.jpg)
+**Score:** 134 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Bingo's eyes are lookin a little sus.
-![Bingo's eyes are lookin a little sus.](20260424-008-bingos-eyes-are-lookin-a-little-sus/image.jpg)
-**Score:** 242 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260424-009-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 402 | **Source:** reddit/r/oddlyspecific
+## Brother what even are these polls😐️
+![Brother what even are these polls😐️](20260424-008-brother-what-even-are-these-polls/image.jpg)
+**Score:** 166 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260424-010-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+![“Godzilla really pulled up on Lady Liber](20260424-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
 **Score:** 639 | **Source:** reddit/r/HolUp
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260424-011-futabu-anyone/image.jpg)
-**Score:** 2,259 | **Source:** reddit/r/HolUp
+## That is the worst
+![That is the worst](20260424-010-that-is-the-worst/image.jpg)
+**Score:** 17,135 | **Source:** reddit/r/memes
 
 ---
 
-## An unfortunate name for an aircraft company.
-![An unfortunate name for an aircraft comp](20260424-012-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
-**Score:** 1,451 | **Source:** reddit/r/dankmemes
-
----
-
-## It's like a hierarchy in here
-![It's like a hierarchy in here](20260424-013-its-like-a-hierarchy-in-here/image.jpg)
-**Score:** 96 | **Source:** reddit/r/memes
-
----
-
-## Drop you best meme
-![Drop you best meme](20260424-014-drop-you-best-meme/image.jpg)
-**Score:** 335 | **Source:** reddit/r/memes
-
----
-
-## excuse me pardon me coming thru
-![excuse me pardon me coming thru](20260424-015-excuse-me-pardon-me-coming-thru/image.jpg)
-**Score:** 311 | **Source:** reddit/r/dankmemes
-
----
-
-## I just want to play a wholesome dad and daughter game 😭
-![I just want to play a wholesome dad and ](20260424-016-i-just-want-to-play-a-wholesome-dad-and-/image.jpg)
-**Score:** 9,108 | **Source:** reddit/r/memes
-
----
-
-## Wild Thumbnail and Name for a Tax
-![Wild Thumbnail and Name for a Tax](20260424-017-wild-thumbnail-and-name-for-a-tax/image.jpg)
-**Score:** 123 | **Source:** reddit/r/memes
-
----
-
-## How could I make noodles without it?
-![How could I make noodles without it?](20260424-018-how-could-i-make-noodles-without-it/image.jpg)
-**Score:** 3,519 | **Source:** reddit/r/memes
-
----
-
-## October Be A Feast
-![October Be A Feast](20260424-019-october-be-a-feast/image.jpg)
-**Score:** 50 | **Source:** reddit/r/memes
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260424-011-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 140 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## that took a turn real quick
-![that took a turn real quick](20260424-020-that-took-a-turn-real-quick/image.jpg)
+![that took a turn real quick](20260424-012-that-took-a-turn-real-quick/image.jpg)
 **Score:** 3,497 | **Source:** reddit/r/memes
+
+---
+
+## Same same but different.
+![Same same but different.](20260424-013-same-same-but-different/image.jpg)
+**Score:** 1,489 | **Source:** reddit/r/dankmemes
+
+---
+
+## Weird behavior
+![Weird behavior](20260424-014-weird-behavior/image.jpg)
+**Score:** 109 | **Source:** reddit/r/dankmemes
+
+---
+
+## love having a full-time job and still being in a constant state of pick two and 
+![love having a full-time job and still be](20260424-015-love-having-a-full-time-job-and-still-be/image.jpg)
+**Score:** 78 | **Source:** reddit/r/memes
+
+---
+
+## Inescapable
+![Inescapable](20260424-016-inescapable/image.jpg)
+**Score:** 68 | **Source:** reddit/r/dankmemes
+
+---
+
+## An unfortunate name for an aircraft company.
+![An unfortunate name for an aircraft comp](20260424-017-an-unfortunate-name-for-an-aircraft-comp/image.jpg)
+**Score:** 1,451 | **Source:** reddit/r/dankmemes
+
+---
+
+## the worst thing you can do in the dad's car
+![the worst thing you can do in the dad's ](20260424-018-the-worst-thing-you-can-do-in-the-dads-c/image.jpg)
+**Score:** 83 | **Source:** reddit/r/memes
+
+---
+
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260424-019-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 974 | **Source:** reddit/r/memes
+
+---
+
+## International memes
+![International memes](20260424-020-international-memes/image.jpg)
+**Score:** 86 | **Source:** reddit/r/dankmemes
 
 ---

@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-26 05:10
+# Meme Feed — 2026-04-26 05:21
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## This might have never come out if she wasn't dumb enough to run for office.
-![This might have never come out if she wa](20260426-001-this-might-have-never-come-out-if-she-wa/image.jpg)
-**Score:** 3,046 | **Source:** reddit/r/WhitePeopleTwitter
+## Acting SECNAV is very concerned about witches taking over the US.
+![Acting SECNAV is very concerned about wi](20260426-001-acting-secnav-is-very-concerned-about-wi/image.jpg)
+**Score:** 365 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## skins vs skins
-![skins vs skins](20260426-002-skins-vs-skins/image.jpg)
-**Score:** 1,013 | **Source:** reddit/r/BlackPeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260426-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,081 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260426-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,176 | **Source:** reddit/r/facepalm
+## This a celly, that's a tool
+![This a celly, that's a tool](20260426-003-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,744 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260426-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,365 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260426-004-well-did-they-accept-or-not/image.jpg)
+**Score:** 834 | **Source:** reddit/r/facepalm
 
 ---
 
-## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
-![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260426-005-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
-**Score:** 11,539 | **Source:** reddit/r/technicallythetruth
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260426-005-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 1,393 | **Source:** reddit/r/facepalm
 
 ---
 
-## intelligence is not dangerous
-![intelligence is not dangerous](20260426-006-intelligence-is-not-dangerous/image.jpg)
-**Score:** 42,180 | **Source:** reddit/r/technicallythetruth
+## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
+![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260426-006-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
+**Score:** 1,464 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS 
-![GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS ](20260426-007-guys-guys-guys-guys-guys-guys-guys-guys-/image.jpg)
-**Score:** 314 | **Source:** reddit/r/suspiciouslyspecific
+## Inescapable
+![Inescapable](20260426-007-inescapable/image.jpg)
+**Score:** 123 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Rest in piss
-![Rest in piss](20260426-008-rest-in-piss/image.jpg)
-**Score:** 405 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260426-009-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 414 | **Source:** reddit/r/oddlyspecific
-
----
-
-## AI is everywhere
-![AI is everywhere](20260426-010-ai-is-everywhere/image.jpg)
-**Score:** 1,007 | **Source:** reddit/r/HolUp
-
----
-
-## Futabu anyone ???
-![Futabu anyone ???](20260426-011-futabu-anyone/image.jpg)
-**Score:** 2,325 | **Source:** reddit/r/HolUp
-
----
-
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260426-012-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 2,752 | **Source:** reddit/r/memes
-
----
-
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260426-013-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,319 | **Source:** reddit/r/dankmemes
-
----
-
-## well....75% of the code is AI written....soo.....
-![well....75% of the code is AI written...](20260426-014-well75-of-the-code-is-ai-writtensoo/image.jpg)
-**Score:** 267 | **Source:** reddit/r/memes
+## POV: you’re on vacation
+![POV: you’re on vacation](20260426-008-pov-youre-on-vacation/image.jpg)
+**Score:** 2,400 | **Source:** reddit/r/memes
 
 ---
 
 ## The middle class: :(
-![The middle class: :(](20260426-015-the-middle-class/image.jpg)
+![The middle class: :(](20260426-009-the-middle-class/image.jpg)
 **Score:** 87 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260426-016-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 59 | **Source:** reddit/r/dankmemes
+## They're the same person!
+![They're the same person!](20260426-010-theyre-the-same-person/image.jpg)
+**Score:** 62 | **Source:** reddit/r/dankmemes
+
+---
+
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260426-011-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 412 | **Source:** reddit/r/dankmemes
+
+---
+
+## After this, i will remember this everytime i play or see someone Play r.p.s
+![After this, i will remember this everyti](20260426-012-after-this-i-will-remember-this-everytim/image.jpg)
+**Score:** 555 | **Source:** reddit/r/memes
 
 ---
 
 ## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260426-017-fatherhood-baaaaad/image.jpg)
+!["Fatherhood baaaaad!!!"](20260426-013-fatherhood-baaaaad/image.jpg)
 **Score:** 3,151 | **Source:** reddit/r/dankmemes
 
 ---
 
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260426-018-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 123 | **Source:** reddit/r/memes
+## food waste
+![food waste](20260426-014-food-waste/image.jpg)
+**Score:** 298 | **Source:** reddit/r/dankmemes
 
 ---
 
-## International memes
-![International memes](20260426-019-international-memes/image.jpg)
-**Score:** 129 | **Source:** reddit/r/dankmemes
+## Same same but different.
+![Same same but different.](20260426-015-same-same-but-different/image.jpg)
+**Score:** 1,695 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260426-020-lets-go-im-safe/image.jpg)
-**Score:** 1,078 | **Source:** reddit/r/dankmemes
+## Can't Unsee It
+![Can't Unsee It](20260426-016-cant-unsee-it/image.jpg)
+**Score:** 77 | **Source:** reddit/r/dankmemes
+
+---
+
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260426-017-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 3,319 | **Source:** reddit/r/dankmemes
+
+---
+
+## poisonous animal
+![poisonous animal](20260426-018-poisonous-animal/image.jpg)
+**Score:** 116 | **Source:** reddit/r/dankmemes
+
+---
+
+## Couldn't be me
+![Couldn't be me](20260426-019-couldnt-be-me/image.jpg)
+**Score:** 2,385 | **Source:** reddit/r/dankmemes
+
+---
+
+## Teachers be like
+![Teachers be like](20260426-020-teachers-be-like/image.jpg)
+**Score:** 71 | **Source:** reddit/r/memes
 
 ---

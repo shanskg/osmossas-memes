@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-26 07:20
+# Meme Feed — 2026-04-26 07:31
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## This might have never come out if she wasn't dumb enough to run for office.
-![This might have never come out if she wa](20260426-001-this-might-have-never-come-out-if-she-wa/image.jpg)
-**Score:** 3,044 | **Source:** reddit/r/WhitePeopleTwitter
+## Word association Schoolboy Q
+![Word association Schoolboy Q](20260426-001-word-association-schoolboy-q/image.jpg)
+**Score:** 1,436 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260426-002-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,417 | **Source:** reddit/r/BlackPeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260426-002-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,745 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -22,51 +22,51 @@
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260426-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 831 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260426-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,369 | **Source:** reddit/r/facepalm
 
 ---
 
-## It's easy to find a 1-step solution if the prior guesses weren't considered.
-![It's easy to find a 1-step solution if t](20260426-005-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
-**Score:** 2,407 | **Source:** reddit/r/technicallythetruth
+## i just opened youtube
+![i just opened youtube](20260426-005-i-just-opened-youtube/image.jpg)
+**Score:** 8,970 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Sus adventures
-![Sus adventures](20260426-006-sus-adventures/image.jpg)
-**Score:** 133 | **Source:** reddit/r/suspiciouslyspecific
+## This is Loading. from among us
+![This is Loading. from among us](20260426-006-this-is-loading-from-among-us/image.jpg)
+**Score:** 108 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260426-007-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 79 | **Source:** reddit/r/oddlyspecific
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260426-007-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 77 | **Source:** reddit/r/HolUp
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260426-008-ai-is-everywhere/image.jpg)
-**Score:** 1,007 | **Source:** reddit/r/HolUp
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260426-008-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 422 | **Source:** reddit/r/dankmemes
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260426-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 643 | **Source:** reddit/r/HolUp
+## yh she said this 💀
+![yh she said this 💀](20260426-009-yh-she-said-this/image.jpg)
+**Score:** 95 | **Source:** reddit/r/memes
 
 ---
 
-## I need a new mechanic…
-![I need a new mechanic…](20260426-010-i-need-a-new-mechanic/image.jpg)
-**Score:** 166 | **Source:** reddit/r/dankmemes
+## They're the same person!
+![They're the same person!](20260426-010-theyre-the-same-person/image.jpg)
+**Score:** 64 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Inescapable
-![Inescapable](20260426-011-inescapable/image.jpg)
-**Score:** 129 | **Source:** reddit/r/dankmemes
+## The middle class: :(
+![The middle class: :(](20260426-011-the-middle-class/image.jpg)
+**Score:** 87 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -76,9 +76,9 @@
 
 ---
 
-## POV: you’re on vacation
-![POV: you’re on vacation](20260426-013-pov-youre-on-vacation/image.jpg)
-**Score:** 11,230 | **Source:** reddit/r/memes
+## That is the worst
+![That is the worst](20260426-013-that-is-the-worst/image.jpg)
+**Score:** 6,249 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -88,38 +88,38 @@
 
 ---
 
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260426-015-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,352 | **Source:** reddit/r/dankmemes
+## Can't Unsee It
+![Can't Unsee It](20260426-015-cant-unsee-it/image.jpg)
+**Score:** 82 | **Source:** reddit/r/dankmemes
+
+---
+
+## I need a new mechanic…
+![I need a new mechanic…](20260426-016-i-need-a-new-mechanic/image.jpg)
+**Score:** 166 | **Source:** reddit/r/dankmemes
+
+---
+
+## Teachers be like
+![Teachers be like](20260426-017-teachers-be-like/image.jpg)
+**Score:** 73 | **Source:** reddit/r/memes
 
 ---
 
 ## poisonous animal
-![poisonous animal](20260426-016-poisonous-animal/image.jpg)
+![poisonous animal](20260426-018-poisonous-animal/image.jpg)
 **Score:** 120 | **Source:** reddit/r/dankmemes
 
 ---
 
-## They're the same person!
-![They're the same person!](20260426-017-theyre-the-same-person/image.jpg)
-**Score:** 64 | **Source:** reddit/r/dankmemes
+## After this, i will remember this everytime i play or see someone Play r.p.s
+![After this, i will remember this everyti](20260426-019-after-this-i-will-remember-this-everytim/image.jpg)
+**Score:** 549 | **Source:** reddit/r/memes
 
 ---
 
-## food waste
-![food waste](20260426-018-food-waste/image.jpg)
-**Score:** 417 | **Source:** reddit/r/dankmemes
-
----
-
-## well....75% of the code is AI written....soo.....
-![well....75% of the code is AI written...](20260426-019-well75-of-the-code-is-ai-writtensoo/image.jpg)
-**Score:** 274 | **Source:** reddit/r/memes
-
----
-
-## Can't Unsee It
-![Can't Unsee It](20260426-020-cant-unsee-it/image.jpg)
-**Score:** 82 | **Source:** reddit/r/dankmemes
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260426-020-got-to-time-it-just-right-before-the-amb/image.jpg)
+**Score:** 58 | **Source:** reddit/r/dankmemes
 
 ---

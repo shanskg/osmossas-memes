@@ -1,4 +1,4 @@
-# Meme Feed — 2026-04-25 18:50
+# Meme Feed — 2026-04-25 19:01
 
 **Total:** 20 memes | Refresh every 10 min
 
@@ -10,15 +10,15 @@
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260425-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,080 | **Source:** reddit/r/BlackPeopleTwitter
+## He's really on top
+![He's really on top](20260425-002-hes-really-on-top/image.jpg)
+**Score:** 1,936 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260425-003-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,725 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260425-003-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 5,023 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -28,75 +28,75 @@
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260425-005-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,146 | **Source:** reddit/r/facepalm
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260425-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,186 | **Source:** reddit/r/facepalm
 
 ---
 
-## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
-![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260425-006-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
-**Score:** 11,456 | **Source:** reddit/r/technicallythetruth
+## Enjoy your hot water
+![Enjoy your hot water](20260425-006-enjoy-your-hot-water/image.jpg)
+**Score:** 973 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260425-007-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 499 | **Source:** reddit/r/technicallythetruth
+## Just slightly...
+![Just slightly...](20260425-007-just-slightly/image.jpg)
+**Score:** 521 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## it’s everywhere
-![it’s everywhere](20260425-008-its-everywhere/image.jpg)
-**Score:** 101 | **Source:** reddit/r/suspiciouslyspecific
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260425-008-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 77 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Rest in piss
-![Rest in piss](20260425-009-rest-in-piss/image.jpg)
-**Score:** 402 | **Source:** reddit/r/suspiciouslyspecific
+## AI is everywhere
+![AI is everywhere](20260425-009-ai-is-everywhere/image.jpg)
+**Score:** 992 | **Source:** reddit/r/HolUp
 
 ---
 
-## LinkedIn: where I go to be reminded why I don't go on LinkedIn.
-![LinkedIn: where I go to be reminded why ](20260425-010-linkedin-where-i-go-to-be-reminded-why-i/image.jpg)
-**Score:** 2,404 | **Source:** reddit/r/oddlyspecific
-
----
-
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260425-011-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 66 | **Source:** reddit/r/HolUp
-
----
-
-## Such a shame
-![Such a shame](20260425-012-such-a-shame/image.jpg)
-**Score:** 2,629 | **Source:** reddit/r/memes
-
----
-
-## Same same but different.
-![Same same but different.](20260425-013-same-same-but-different/image.jpg)
-**Score:** 1,687 | **Source:** reddit/r/dankmemes
-
----
-
-## Chat am I cooked?!
-![Chat am I cooked?!](20260425-014-chat-am-i-cooked/image.jpg)
-**Score:** 639 | **Source:** reddit/r/memes
-
----
-
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-015-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 348 | **Source:** reddit/r/dankmemes
+## poisonous animal
+![poisonous animal](20260425-010-poisonous-animal/image.jpg)
+**Score:** 98 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260425-016-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+![brøther, I cräve the forbidden lämp](20260425-011-brøther-i-cräve-the-forbidden-lämp/image.jpg)
 **Score:** 3,036 | **Source:** reddit/r/dankmemes
+
+---
+
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260425-012-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,494 | **Source:** reddit/r/dankmemes
+
+---
+
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260425-013-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 348 | **Source:** reddit/r/dankmemes
+
+---
+
+## Lets go im safe
+![Lets go im safe](20260425-014-lets-go-im-safe/image.jpg)
+**Score:** 1,083 | **Source:** reddit/r/dankmemes
+
+---
+
+## Why are so many men like this? Based on real facts
+![Why are so many men like this? Based on ](20260425-015-why-are-so-many-men-like-this-based-on-r/image.jpg)
+**Score:** 2,645 | **Source:** reddit/r/memes
+
+---
+
+## After this, i will remember this everytime i play or see someone Play r.p.s
+![After this, i will remember this everyti](20260425-016-after-this-i-will-remember-this-everytim/image.jpg)
+**Score:** 448 | **Source:** reddit/r/memes
 
 ---
 
@@ -106,20 +106,20 @@
 
 ---
 
-## Inescapable
-![Inescapable](20260425-018-inescapable/image.jpg)
-**Score:** 120 | **Source:** reddit/r/dankmemes
+## Such a shame
+![Such a shame](20260425-018-such-a-shame/image.jpg)
+**Score:** 2,629 | **Source:** reddit/r/memes
 
 ---
 
-## They're the same person!
-![They're the same person!](20260425-019-theyre-the-same-person/image.jpg)
-**Score:** 62 | **Source:** reddit/r/dankmemes
+## well....75% of the code is AI written....soo.....
+![well....75% of the code is AI written...](20260425-019-well75-of-the-code-is-ai-writtensoo/image.jpg)
+**Score:** 70 | **Source:** reddit/r/memes
 
 ---
 
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-020-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 77 | **Source:** reddit/r/memes
+## Why not just have chat gpt teach me at that point
+![Why not just have chat gpt teach me at t](20260425-020-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
+**Score:** 501 | **Source:** reddit/r/memes
 
 ---

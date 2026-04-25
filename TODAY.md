@@ -1,4 +1,4 @@
-# Meme Feed — 2026-04-25 16:17
+# Meme Feed — 2026-04-25 16:24
 
 **Total:** 20 memes | Refresh every 10 min
 
@@ -10,116 +10,116 @@
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260425-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,408 | **Source:** reddit/r/BlackPeopleTwitter
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260425-002-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,365 | **Source:** reddit/r/facepalm
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260425-003-well-did-they-accept-or-not/image.jpg)
-**Score:** 836 | **Source:** reddit/r/facepalm
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260425-003-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,144 | **Source:** reddit/r/facepalm
 
 ---
 
-## He didn't sound like much of anything in there
-![He didn't sound like much of anything in](20260425-004-he-didnt-sound-like-much-of-anything-in-/image.jpg)
-**Score:** 1,838 | **Source:** reddit/r/technicallythetruth
+## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
+![Oh Oracle, How Will I Die? Surrounded By](20260425-004-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
+**Score:** 3,928 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## He did NOT dodge a bullet
-![He did NOT dodge a bullet](20260425-005-he-did-not-dodge-a-bullet/image.jpg)
-**Score:** 42,248 | **Source:** reddit/r/technicallythetruth
+## outperforming the inflation rate
+![outperforming the inflation rate](20260425-005-outperforming-the-inflation-rate/image.jpg)
+**Score:** 65,067 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Guess what game this is (hint it has among us in the name)
-![Guess what game this is (hint it has amo](20260425-006-guess-what-game-this-is-hint-it-has-amon/image.jpg)
-**Score:** 157 | **Source:** reddit/r/suspiciouslyspecific
+## The Great Amongball...
+![The Great Amongball...](20260425-006-the-great-amongball/image.jpg)
+**Score:** 78 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-007-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 304 | **Source:** reddit/r/dankmemes
+## Don't do that
+![Don't do that](20260425-007-dont-do-that/image.jpg)
+**Score:** 339 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260425-008-fatherhood-baaaaad/image.jpg)
-**Score:** 3,131 | **Source:** reddit/r/dankmemes
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260425-008-an-augmented-reality-sandbox/image.jpg)
+**Score:** 607 | **Source:** reddit/r/HolUp
 
 ---
 
-## Good Ending: Instant Relief / Bad Ending: Shart
-![Good Ending: Instant Relief / Bad Ending](20260425-009-good-ending-instant-relief-bad-ending-sh/image.jpg)
-**Score:** 57 | **Source:** reddit/r/memes
-
----
-
-## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260425-010-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
-**Score:** 2,164 | **Source:** reddit/r/memes
-
----
-
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260425-011-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 141 | **Source:** reddit/r/dankmemes
-
----
-
-## Such a shame
-![Such a shame](20260425-012-such-a-shame/image.jpg)
-**Score:** 2,598 | **Source:** reddit/r/memes
-
----
-
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260425-013-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 2,514 | **Source:** reddit/r/memes
-
----
-
-## Why not just have chat gpt teach me at that point
-![Why not just have chat gpt teach me at t](20260425-014-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
-**Score:** 486 | **Source:** reddit/r/memes
-
----
-
-## Inescapable
-![Inescapable](20260425-015-inescapable/image.jpg)
-**Score:** 115 | **Source:** reddit/r/dankmemes
-
----
-
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260425-016-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 56 | **Source:** reddit/r/dankmemes
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260425-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 639 | **Source:** reddit/r/HolUp
 
 ---
 
 ## There goes another one
-![There goes another one](20260425-017-there-goes-another-one/image.jpg)
-**Score:** 100 | **Source:** reddit/r/dankmemes
+![There goes another one](20260425-010-there-goes-another-one/image.jpg)
+**Score:** 99 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-018-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 71 | **Source:** reddit/r/memes
+![Even in video games, they don't want you](20260425-011-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 326 | **Source:** reddit/r/dankmemes
 
 ---
 
-## After this, i will remember this everytime i play or see someone Play r.p.s
-![After this, i will remember this everyti](20260425-019-after-this-i-will-remember-this-everytim/image.jpg)
-**Score:** 287 | **Source:** reddit/r/memes
+## Why not just have chat gpt teach me at that point
+![Why not just have chat gpt teach me at t](20260425-012-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
+**Score:** 490 | **Source:** reddit/r/memes
 
 ---
 
-## That is the worst
-![That is the worst](20260425-020-that-is-the-worst/image.jpg)
-**Score:** 6,223 | **Source:** reddit/r/dankmemes
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260425-013-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 2,169 | **Source:** reddit/r/memes
+
+---
+
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260425-014-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 143 | **Source:** reddit/r/dankmemes
+
+---
+
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260425-015-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 75 | **Source:** reddit/r/memes
+
+---
+
+## I need a new mechanic…
+![I need a new mechanic…](20260425-016-i-need-a-new-mechanic/image.jpg)
+**Score:** 90 | **Source:** reddit/r/dankmemes
+
+---
+
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260425-017-got-to-time-it-just-right-before-the-amb/image.jpg)
+**Score:** 59 | **Source:** reddit/r/dankmemes
+
+---
+
+## Inescapable
+![Inescapable](20260425-018-inescapable/image.jpg)
+**Score:** 114 | **Source:** reddit/r/dankmemes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260425-019-fatherhood-baaaaad/image.jpg)
+**Score:** 3,139 | **Source:** reddit/r/dankmemes
+
+---
+
+## Good Ending: Instant Relief / Bad Ending: Shart
+![Good Ending: Instant Relief / Bad Ending](20260425-020-good-ending-instant-relief-bad-ending-sh/image.jpg)
+**Score:** 78 | **Source:** reddit/r/memes
 
 ---

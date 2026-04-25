@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-25 20:20
+# Meme Feed — 2026-04-25 20:31
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Melania pushing aI
-![Melania pushing aI](20260425-001-melania-pushing-ai/image.jpg)
-**Score:** 53 | **Source:** reddit/r/WhitePeopleTwitter
-
----
-
-## They are painting the reflecting pool blue.
-![They are painting the reflecting pool bl](20260425-002-they-are-painting-the-reflecting-pool-bl/image.jpg)
-**Score:** 2,311 | **Source:** reddit/r/WhitePeopleTwitter
-
----
-
-## skins vs skins
-![skins vs skins](20260425-003-skins-vs-skins/image.jpg)
-**Score:** 1,020 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Word association Schoolboy Q
-![Word association Schoolboy Q](20260425-004-word-association-schoolboy-q/image.jpg)
-**Score:** 1,328 | **Source:** reddit/r/BlackPeopleTwitter
+## Leave the whales alone
+![Leave the whales alone](20260425-001-leave-the-whales-alone/image.jpg)
+**Score:** 19,187 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260425-005-another-reminder-of-were-not-a-cult/image.jpg)
+![Another reminder of 'We're not a cult."](20260425-002-another-reminder-of-were-not-a-cult/image.jpg)
 **Score:** 4,146 | **Source:** reddit/r/facepalm
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260425-006-well-did-they-accept-or-not/image.jpg)
-**Score:** 832 | **Source:** reddit/r/facepalm
+## 125 per hour in Oregon
+![125 per hour in Oregon](20260425-003-125-per-hour-in-oregon/image.jpg)
+**Score:** 12,636 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
-![It's anthropomorphism because nature has](20260425-007-its-anthropomorphism-because-nature-has-/image.jpg)
-**Score:** 112 | **Source:** reddit/r/technicallythetruth
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260425-004-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 77 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260425-008-i-cast-stairs-wrong-subreddit/image.jpg)
-**Score:** 2,642 | **Source:** reddit/r/technicallythetruth
+## Darker and darker
+![Darker and darker](20260425-005-darker-and-darker/image.jpg)
+**Score:** 283 | **Source:** reddit/r/HolUp
 
 ---
 
-## Among us irl 🤯
-![Among us irl 🤯](20260425-009-among-us-irl/image.jpg)
-**Score:** 237 | **Source:** reddit/r/suspiciouslyspecific
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260425-006-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,330 | **Source:** reddit/r/HolUp
 
 ---
 
-## among oose
-![among oose](20260425-010-among-oose/image.jpg)
-**Score:** 524 | **Source:** reddit/r/suspiciouslyspecific
+## I've got my priorities straight!
+![I've got my priorities straight!](20260425-007-ive-got-my-priorities-straight/image.jpg)
+**Score:** 72 | **Source:** reddit/r/dankmemes
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260425-011-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 259 | **Source:** reddit/r/oddlyspecific
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260425-008-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 2,178 | **Source:** reddit/r/memes
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260425-012-an-augmented-reality-sandbox/image.jpg)
-**Score:** 605 | **Source:** reddit/r/HolUp
+## Lets go im safe
+![Lets go im safe](20260425-009-lets-go-im-safe/image.jpg)
+**Score:** 1,074 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260425-013-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 58 | **Source:** reddit/r/HolUp
+## Such a shame
+![Such a shame](20260425-010-such-a-shame/image.jpg)
+**Score:** 2,639 | **Source:** reddit/r/memes
+
+---
+
+## Same same but different.
+![Same same but different.](20260425-011-same-same-but-different/image.jpg)
+**Score:** 1,688 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Chat am I cooked?!
-![Chat am I cooked?!](20260425-014-chat-am-i-cooked/image.jpg)
+![Chat am I cooked?!](20260425-012-chat-am-i-cooked/image.jpg)
 **Score:** 2,105 | **Source:** reddit/r/memes
 
 ---
 
 ## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-015-even-in-video-games-they-dont-want-you-t/image.jpg)
+![Even in video games, they don't want you](20260425-013-even-in-video-games-they-dont-want-you-t/image.jpg)
 **Score:** 73 | **Source:** reddit/r/memes
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260425-016-lets-go-im-safe/image.jpg)
-**Score:** 1,074 | **Source:** reddit/r/dankmemes
+## Good Ending: Instant Relief / Bad Ending: Shart
+![Good Ending: Instant Relief / Bad Ending](20260425-014-good-ending-instant-relief-bad-ending-sh/image.jpg)
+**Score:** 102 | **Source:** reddit/r/memes
 
 ---
 
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260425-017-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,129 | **Source:** reddit/r/dankmemes
-
----
-
-## well....75% of the code is AI written....soo.....
-![well....75% of the code is AI written...](20260425-018-well75-of-the-code-is-ai-writtensoo/image.jpg)
-**Score:** 112 | **Source:** reddit/r/memes
+## I need a new mechanic…
+![I need a new mechanic…](20260425-015-i-need-a-new-mechanic/image.jpg)
+**Score:** 56 | **Source:** reddit/r/memes
 
 ---
 
 ## International memes
-![International memes](20260425-019-international-memes/image.jpg)
+![International memes](20260425-016-international-memes/image.jpg)
 **Score:** 122 | **Source:** reddit/r/dankmemes
 
 ---
 
-## After this, i will remember this everytime i play or see someone Play r.p.s
-![After this, i will remember this everyti](20260425-020-after-this-i-will-remember-this-everytim/image.jpg)
-**Score:** 480 | **Source:** reddit/r/memes
+## We can all relate.
+![We can all relate.](20260425-017-we-can-all-relate/image.jpg)
+**Score:** 231 | **Source:** reddit/r/memes
+
+---
+
+## Why are so many men like this? Based on real facts
+![Why are so many men like this? Based on ](20260425-018-why-are-so-many-men-like-this-based-on-r/image.jpg)
+**Score:** 2,686 | **Source:** reddit/r/memes
+
+---
+
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260425-019-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 3,129 | **Source:** reddit/r/dankmemes
+
+---
+
+## Why not just have chat gpt teach me at that point
+![Why not just have chat gpt teach me at t](20260425-020-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
+**Score:** 502 | **Source:** reddit/r/memes
 
 ---

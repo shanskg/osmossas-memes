@@ -1,96 +1,96 @@
-# Meme Feed — 2026-04-25 14:17
+# Meme Feed — 2026-04-25 14:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260425-001-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,080 | **Source:** reddit/r/BlackPeopleTwitter
+## If you steal from the wealthy, you go to prison. If you steal from the poor, you
+![If you steal from the wealthy, you go to](20260425-001-if-you-steal-from-the-wealthy-you-go-to-/image.jpg)
+**Score:** 3,243 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260425-002-well-did-they-accept-or-not/image.jpg)
-**Score:** 836 | **Source:** reddit/r/facepalm
+## This might have never come out if she wasn't dumb enough to run for office.
+![This might have never come out if she wa](20260425-002-this-might-have-never-come-out-if-she-wa/image.jpg)
+**Score:** 3,027 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Some inflation is good
-![Some inflation is good](20260425-003-some-inflation-is-good/image.jpg)
-**Score:** 15,676 | **Source:** reddit/r/technicallythetruth
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260425-003-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,408 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## intelligence is not dangerous
-![intelligence is not dangerous](20260425-004-intelligence-is-not-dangerous/image.jpg)
-**Score:** 30,375 | **Source:** reddit/r/technicallythetruth
+## skins vs skins
+![skins vs skins](20260425-004-skins-vs-skins/image.jpg)
+**Score:** 1,016 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## They're the same person!
-![They're the same person!](20260425-005-theyre-the-same-person/image.jpg)
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260425-005-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,143 | **Source:** reddit/r/facepalm
+
+---
+
+## The detective didn't find it
+![The detective didn't find it](20260425-006-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,769 | **Source:** reddit/r/technicallythetruth
+
+---
+
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260425-007-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,403 | **Source:** reddit/r/technicallythetruth
+
+---
+
+## When the sausages are sus
+![When the sausages are sus](20260425-008-when-the-sausages-are-sus/image.jpg)
+**Score:** 102 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260425-009-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 79 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## Darker and darker
+![Darker and darker](20260425-010-darker-and-darker/image.jpg)
+**Score:** 282 | **Source:** reddit/r/HolUp
+
+---
+
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260425-011-got-to-time-it-just-right-before-the-amb/image.jpg)
 **Score:** 56 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Why not just have chat gpt teach me at that point
-![Why not just have chat gpt teach me at t](20260425-006-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
-**Score:** 464 | **Source:** reddit/r/memes
+## Inescapable
+![Inescapable](20260425-012-inescapable/image.jpg)
+**Score:** 115 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-007-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 289 | **Source:** reddit/r/dankmemes
+![Even in video games, they don't want you](20260425-013-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 304 | **Source:** reddit/r/dankmemes
 
 ---
 
-## That is the worst
-![That is the worst](20260425-008-that-is-the-worst/image.jpg)
-**Score:** 6,223 | **Source:** reddit/r/dankmemes
+## Good Ending: Instant Relief / Bad Ending: Shart
+![Good Ending: Instant Relief / Bad Ending](20260425-014-good-ending-instant-relief-bad-ending-sh/image.jpg)
+**Score:** 57 | **Source:** reddit/r/memes
 
 ---
 
-## Don't disturb me
-![Don't disturb me](20260425-009-dont-disturb-me/image.jpg)
-**Score:** 1,010 | **Source:** reddit/r/dankmemes
-
----
-
-## poisonous animal
-![poisonous animal](20260425-010-poisonous-animal/image.jpg)
-**Score:** 85 | **Source:** reddit/r/dankmemes
-
----
-
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260425-011-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 3,493 | **Source:** reddit/r/dankmemes
-
----
-
-## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260425-012-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
-**Score:** 2,160 | **Source:** reddit/r/memes
-
----
-
-## Such a shame
-![Such a shame](20260425-013-such-a-shame/image.jpg)
-**Score:** 2,528 | **Source:** reddit/r/memes
-
----
-
-## The middle class: :(
-![The middle class: :(](20260425-014-the-middle-class/image.jpg)
-**Score:** 70 | **Source:** reddit/r/dankmemes
-
----
-
-## Inescapable
-![Inescapable](20260425-015-inescapable/image.jpg)
-**Score:** 111 | **Source:** reddit/r/dankmemes
+## Why are so many men like this? Based on real facts
+![Why are so many men like this? Based on ](20260425-015-why-are-so-many-men-like-this-based-on-r/image.jpg)
+**Score:** 2,514 | **Source:** reddit/r/memes
 
 ---
 
@@ -106,15 +106,15 @@
 
 ---
 
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260425-018-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 56 | **Source:** reddit/r/dankmemes
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260425-018-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 2,164 | **Source:** reddit/r/memes
 
 ---
 
-## Good Ending: Instant Relief / Bad Ending: Shart
-![Good Ending: Instant Relief / Bad Ending](20260425-019-good-ending-instant-relief-bad-ending-sh/image.jpg)
-**Score:** 57 | **Source:** reddit/r/memes
+## Such a shame
+![Such a shame](20260425-019-such-a-shame/image.jpg)
+**Score:** 2,598 | **Source:** reddit/r/memes
 
 ---
 

@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-26 05:01
+# Meme Feed — 2026-04-26 05:10
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## The world leads and the US can't even follow anymore.
-![The world leads and the US can't even fo](20260426-001-the-world-leads-and-the-us-cant-even-fol/image.jpg)
-**Score:** 22,296 | **Source:** reddit/r/WhitePeopleTwitter
+## This might have never come out if she wasn't dumb enough to run for office.
+![This might have never come out if she wa](20260426-001-this-might-have-never-come-out-if-she-wa/image.jpg)
+**Score:** 3,046 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260426-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 5,060 | **Source:** reddit/r/BlackPeopleTwitter
+## skins vs skins
+![skins vs skins](20260426-002-skins-vs-skins/image.jpg)
+**Score:** 1,013 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -22,104 +22,104 @@
 
 ---
 
-## My friend sent me this photo
-![My friend sent me this photo](20260426-004-my-friend-sent-me-this-photo/image.jpg)
-**Score:** 845 | **Source:** reddit/r/suspiciouslyspecific
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260426-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,365 | **Source:** reddit/r/facepalm
 
 ---
 
-## among oose
-![among oose](20260426-005-among-oose/image.jpg)
-**Score:** 517 | **Source:** reddit/r/suspiciouslyspecific
+## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
+![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260426-005-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
+**Score:** 11,539 | **Source:** reddit/r/technicallythetruth
+
+---
+
+## intelligence is not dangerous
+![intelligence is not dangerous](20260426-006-intelligence-is-not-dangerous/image.jpg)
+**Score:** 42,180 | **Source:** reddit/r/technicallythetruth
+
+---
+
+## GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS 
+![GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS ](20260426-007-guys-guys-guys-guys-guys-guys-guys-guys-/image.jpg)
+**Score:** 314 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## Rest in piss
+![Rest in piss](20260426-008-rest-in-piss/image.jpg)
+**Score:** 405 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
 ## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260426-006-17-strong-opinions-no-more-no-less/image.jpg)
+![17 strong opinions. No more, no less.](20260426-009-17-strong-opinions-no-more-no-less/image.jpg)
 **Score:** 414 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260426-007-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,341 | **Source:** reddit/r/HolUp
+## AI is everywhere
+![AI is everywhere](20260426-010-ai-is-everywhere/image.jpg)
+**Score:** 1,007 | **Source:** reddit/r/HolUp
 
 ---
 
-## Darker and darker
-![Darker and darker](20260426-008-darker-and-darker/image.jpg)
-**Score:** 284 | **Source:** reddit/r/HolUp
-
----
-
-## They're the same person!
-![They're the same person!](20260426-009-theyre-the-same-person/image.jpg)
-**Score:** 62 | **Source:** reddit/r/dankmemes
-
----
-
-## Good Ending: Instant Relief / Bad Ending: Shart
-![Good Ending: Instant Relief / Bad Ending](20260426-010-good-ending-instant-relief-bad-ending-sh/image.jpg)
-**Score:** 127 | **Source:** reddit/r/memes
-
----
-
-## Same same but different.
-![Same same but different.](20260426-011-same-same-but-different/image.jpg)
-**Score:** 1,695 | **Source:** reddit/r/dankmemes
-
----
-
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260426-012-fatherhood-baaaaad/image.jpg)
-**Score:** 3,151 | **Source:** reddit/r/dankmemes
-
----
-
-## That is the worst
-![That is the worst](20260426-013-that-is-the-worst/image.jpg)
-**Score:** 6,252 | **Source:** reddit/r/dankmemes
-
----
-
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260426-014-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 59 | **Source:** reddit/r/dankmemes
-
----
-
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260426-015-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 3,506 | **Source:** reddit/r/dankmemes
-
----
-
-## POV: you’re on vacation
-![POV: you’re on vacation](20260426-016-pov-youre-on-vacation/image.jpg)
-**Score:** 2,400 | **Source:** reddit/r/memes
-
----
-
-## I need a new mechanic…
-![I need a new mechanic…](20260426-017-i-need-a-new-mechanic/image.jpg)
-**Score:** 156 | **Source:** reddit/r/dankmemes
-
----
-
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260426-018-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,319 | **Source:** reddit/r/dankmemes
-
----
-
-## After this, i will remember this everytime i play or see someone Play r.p.s
-![After this, i will remember this everyti](20260426-019-after-this-i-will-remember-this-everytim/image.jpg)
-**Score:** 555 | **Source:** reddit/r/memes
+## Futabu anyone ???
+![Futabu anyone ???](20260426-011-futabu-anyone/image.jpg)
+**Score:** 2,325 | **Source:** reddit/r/HolUp
 
 ---
 
 ## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260426-020-why-are-so-many-men-like-this-based-on-r/image.jpg)
+![Why are so many men like this? Based on ](20260426-012-why-are-so-many-men-like-this-based-on-r/image.jpg)
 **Score:** 2,752 | **Source:** reddit/r/memes
+
+---
+
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260426-013-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 3,319 | **Source:** reddit/r/dankmemes
+
+---
+
+## well....75% of the code is AI written....soo.....
+![well....75% of the code is AI written...](20260426-014-well75-of-the-code-is-ai-writtensoo/image.jpg)
+**Score:** 267 | **Source:** reddit/r/memes
+
+---
+
+## The middle class: :(
+![The middle class: :(](20260426-015-the-middle-class/image.jpg)
+**Score:** 87 | **Source:** reddit/r/dankmemes
+
+---
+
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260426-016-got-to-time-it-just-right-before-the-amb/image.jpg)
+**Score:** 59 | **Source:** reddit/r/dankmemes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260426-017-fatherhood-baaaaad/image.jpg)
+**Score:** 3,151 | **Source:** reddit/r/dankmemes
+
+---
+
+## This is the way- the eyes splitter
+![This is the way- the eyes splitter](20260426-018-this-is-the-way-the-eyes-splitter/image.jpg)
+**Score:** 123 | **Source:** reddit/r/memes
+
+---
+
+## International memes
+![International memes](20260426-019-international-memes/image.jpg)
+**Score:** 129 | **Source:** reddit/r/dankmemes
+
+---
+
+## Lets go im safe
+![Lets go im safe](20260426-020-lets-go-im-safe/image.jpg)
+**Score:** 1,078 | **Source:** reddit/r/dankmemes
 
 ---

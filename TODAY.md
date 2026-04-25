@@ -1,102 +1,102 @@
-# Meme Feed — 2026-04-26 06:50
+# Meme Feed — 2026-04-26 07:00
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Me too, George.
-![Me too, George.](20260426-001-me-too-george/image.jpg)
-**Score:** 3,667 | **Source:** reddit/r/WhitePeopleTwitter
+## This might have never come out if she wasn't dumb enough to run for office.
+![This might have never come out if she wa](20260426-001-this-might-have-never-come-out-if-she-wa/image.jpg)
+**Score:** 3,044 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## She was a honeypot deployed to provide updates on their progress
-![She was a honeypot deployed to provide u](20260426-002-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
-**Score:** 12,321 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260426-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 5,064 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Word association Schoolboy Q
-![Word association Schoolboy Q](20260426-003-word-association-schoolboy-q/image.jpg)
-**Score:** 1,421 | **Source:** reddit/r/BlackPeopleTwitter
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260426-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,176 | **Source:** reddit/r/facepalm
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260426-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,365 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260426-004-well-did-they-accept-or-not/image.jpg)
+**Score:** 831 | **Source:** reddit/r/facepalm
 
 ---
 
-## outperforming the inflation rate
-![outperforming the inflation rate](20260426-005-outperforming-the-inflation-rate/image.jpg)
-**Score:** 65,072 | **Source:** reddit/r/technicallythetruth
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260426-005-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,407 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## tell me if this is wrong?
-![tell me if this is wrong?](20260426-006-tell-me-if-this-is-wrong/image.jpg)
-**Score:** 51 | **Source:** reddit/r/suspiciouslyspecific
+## The perfect combination of heading and Reddit mobile jank
+![The perfect combination of heading and R](20260426-006-the-perfect-combination-of-heading-and-r/image.jpg)
+**Score:** 233 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260426-007-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 260 | **Source:** reddit/r/oddlyspecific
+## Guess what game this is (hint it has among us in the name)
+![Guess what game this is (hint it has amo](20260426-007-guess-what-game-this-is-hint-it-has-amon/image.jpg)
+**Score:** 161 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## Among cells
+![Among cells](20260426-008-among-cells/image.jpg)
+**Score:** 801 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260426-009-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 418 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## Futabu anyone ???
-![Futabu anyone ???](20260426-008-futabu-anyone/image.jpg)
+![Futabu anyone ???](20260426-010-futabu-anyone/image.jpg)
 **Score:** 2,322 | **Source:** reddit/r/HolUp
 
 ---
 
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260426-009-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 58 | **Source:** reddit/r/dankmemes
+## food waste
+![food waste](20260426-011-food-waste/image.jpg)
+**Score:** 417 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Not all dogs
-![Not all dogs](20260426-010-not-all-dogs/image.jpg)
-**Score:** 53 | **Source:** reddit/r/dankmemes
-
----
-
-## They're the same person!
-![They're the same person!](20260426-011-theyre-the-same-person/image.jpg)
-**Score:** 64 | **Source:** reddit/r/dankmemes
+## Teachers be like
+![Teachers be like](20260426-012-teachers-be-like/image.jpg)
+**Score:** 73 | **Source:** reddit/r/memes
 
 ---
 
 ## poisonous animal
-![poisonous animal](20260426-012-poisonous-animal/image.jpg)
+![poisonous animal](20260426-013-poisonous-animal/image.jpg)
 **Score:** 120 | **Source:** reddit/r/dankmemes
 
 ---
 
-## yh she said this 💀
-![yh she said this 💀](20260426-013-yh-she-said-this/image.jpg)
-**Score:** 95 | **Source:** reddit/r/memes
+## well....75% of the code is AI written....soo.....
+![well....75% of the code is AI written...](20260426-014-well75-of-the-code-is-ai-writtensoo/image.jpg)
+**Score:** 274 | **Source:** reddit/r/memes
 
 ---
 
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260426-014-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 3,512 | **Source:** reddit/r/dankmemes
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260426-015-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 3,352 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Same same but different.
-![Same same but different.](20260426-015-same-same-but-different/image.jpg)
-**Score:** 1,693 | **Source:** reddit/r/dankmemes
-
----
-
-## Lets go im safe
-![Lets go im safe](20260426-016-lets-go-im-safe/image.jpg)
-**Score:** 1,081 | **Source:** reddit/r/dankmemes
+## They're the same person!
+![They're the same person!](20260426-016-theyre-the-same-person/image.jpg)
+**Score:** 64 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -106,20 +106,20 @@
 
 ---
 
-## Couldn't be me
-![Couldn't be me](20260426-018-couldnt-be-me/image.jpg)
-**Score:** 2,397 | **Source:** reddit/r/dankmemes
+## International memes
+![International memes](20260426-018-international-memes/image.jpg)
+**Score:** 136 | **Source:** reddit/r/dankmemes
 
 ---
 
-## That is the worst
-![That is the worst](20260426-019-that-is-the-worst/image.jpg)
-**Score:** 6,249 | **Source:** reddit/r/dankmemes
+## Why are so many men like this? Based on real facts
+![Why are so many men like this? Based on ](20260426-019-why-are-so-many-men-like-this-based-on-r/image.jpg)
+**Score:** 2,761 | **Source:** reddit/r/memes
 
 ---
 
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260426-020-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 163 | **Source:** reddit/r/memes
+## I need a new mechanic…
+![I need a new mechanic…](20260426-020-i-need-a-new-mechanic/image.jpg)
+**Score:** 166 | **Source:** reddit/r/dankmemes
 
 ---

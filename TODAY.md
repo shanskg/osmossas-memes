@@ -1,96 +1,96 @@
-# Meme Feed — 2026-04-25 08:03
+# Meme Feed — 2026-04-25 08:16
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Chief Justice John Roberts mischaracterized more than $20 million in household i
-![Chief Justice John Roberts mischaracteri](20260425-001-chief-justice-john-roberts-mischaracteri/image.jpg)
-**Score:** 4,336 | **Source:** reddit/r/WhitePeopleTwitter
+## She was a honeypot deployed to provide updates on their progress
+![She was a honeypot deployed to provide u](20260425-001-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
+**Score:** 9,216 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## This a celly, that's a tool
 ![This a celly, that's a tool](20260425-002-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,697 | **Source:** reddit/r/BlackPeopleTwitter
+**Score:** 5,702 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260425-003-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,138 | **Source:** reddit/r/facepalm
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260425-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,179 | **Source:** reddit/r/facepalm
 
 ---
 
-## intelligence is not dangerous
-![intelligence is not dangerous](20260425-004-intelligence-is-not-dangerous/image.jpg)
-**Score:** 18,835 | **Source:** reddit/r/technicallythetruth
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260425-004-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,408 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Dippers shadow in this episode of Gravity Falls
-![Dippers shadow in this episode of Gravit](20260425-005-dippers-shadow-in-this-episode-of-gravit/image.jpg)
-**Score:** 1,091 | **Source:** reddit/r/suspiciouslyspecific
+## GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS 
+![GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS ](20260425-005-guys-guys-guys-guys-guys-guys-guys-guys-/image.jpg)
+**Score:** 311 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Who is your fav Cambodian gas station explosion survivor that is pregnant?
-![Who is your fav Cambodian gas station ex](20260425-006-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
-**Score:** 1,470 | **Source:** reddit/r/oddlyspecific
+## Rest in piss
+![Rest in piss](20260425-006-rest-in-piss/image.jpg)
+**Score:** 397 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260425-007-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 637 | **Source:** reddit/r/HolUp
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260425-007-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 56 | **Source:** reddit/r/HolUp
+
+---
+
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260425-008-an-augmented-reality-sandbox/image.jpg)
+**Score:** 603 | **Source:** reddit/r/HolUp
 
 ---
 
 ## Just British Things
-![Just British Things](20260425-008-just-british-things/image.jpg)
+![Just British Things](20260425-009-just-british-things/image.jpg)
 **Score:** 22,374 | **Source:** reddit/r/memes
 
 ---
 
-## The middle class: :(
-![The middle class: :(](20260425-009-the-middle-class/image.jpg)
-**Score:** 55 | **Source:** reddit/r/dankmemes
+## There goes another one
+![There goes another one](20260425-010-there-goes-another-one/image.jpg)
+**Score:** 95 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Such a shame
-![Such a shame](20260425-010-such-a-shame/image.jpg)
+![Such a shame](20260425-011-such-a-shame/image.jpg)
 **Score:** 2,397 | **Source:** reddit/r/memes
 
 ---
 
 ## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-011-even-in-video-games-they-dont-want-you-t/image.jpg)
+![Even in video games, they don't want you](20260425-012-even-in-video-games-they-dont-want-you-t/image.jpg)
 **Score:** 193 | **Source:** reddit/r/dankmemes
 
 ---
 
-## There goes another one
-![There goes another one](20260425-012-there-goes-another-one/image.jpg)
-**Score:** 95 | **Source:** reddit/r/dankmemes
-
----
-
-## poisonous animal
-![poisonous animal](20260425-013-poisonous-animal/image.jpg)
-**Score:** 67 | **Source:** reddit/r/dankmemes
-
----
-
 ## Drop you best meme
-![Drop you best meme](20260425-014-drop-you-best-meme/image.jpg)
+![Drop you best meme](20260425-013-drop-you-best-meme/image.jpg)
 **Score:** 508 | **Source:** reddit/r/memes
 
 ---
 
 ## Inescapable
-![Inescapable](20260425-015-inescapable/image.jpg)
+![Inescapable](20260425-014-inescapable/image.jpg)
 **Score:** 105 | **Source:** reddit/r/dankmemes
+
+---
+
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260425-015-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 2,410 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -100,26 +100,26 @@
 
 ---
 
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260425-017-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 59 | **Source:** reddit/r/dankmemes
+## The middle class: :(
+![The middle class: :(](20260425-017-the-middle-class/image.jpg)
+**Score:** 55 | **Source:** reddit/r/dankmemes
+
+---
+
+## poisonous animal
+![poisonous animal](20260425-018-poisonous-animal/image.jpg)
+**Score:** 67 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-018-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 52 | **Source:** reddit/r/memes
+![Even in video games, they don't want you](20260425-019-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 62 | **Source:** reddit/r/memes
 
 ---
 
-## They're the same person!
-![They're the same person!](20260425-019-theyre-the-same-person/image.jpg)
-**Score:** 58 | **Source:** reddit/r/dankmemes
-
----
-
-## After this, i will remember this everytime i play or see someone Play r.p.s
-![After this, i will remember this everyti](20260425-020-after-this-i-will-remember-this-everytim/image.jpg)
-**Score:** 93 | **Source:** reddit/r/memes
+## Why not just have chat gpt teach me at that point
+![Why not just have chat gpt teach me at t](20260425-020-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
+**Score:** 412 | **Source:** reddit/r/memes
 
 ---

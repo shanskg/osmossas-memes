@@ -1,12 +1,12 @@
-# Meme Feed — 2026-04-25 11:40
+# Meme Feed — 2026-04-25 11:50
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Acting SECNAV is very concerned about witches taking over the US.
-![Acting SECNAV is very concerned about wi](20260425-001-acting-secnav-is-very-concerned-about-wi/image.jpg)
-**Score:** 347 | **Source:** reddit/r/WhitePeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260425-001-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,076 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -16,9 +16,9 @@
 
 ---
 
-## Leave the whales alone
-![Leave the whales alone](20260425-003-leave-the-whales-alone/image.jpg)
-**Score:** 19,180 | **Source:** reddit/r/BlackPeopleTwitter
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260425-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,361 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -28,98 +28,98 @@
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260425-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,361 | **Source:** reddit/r/facepalm
+## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
+![Oh Oracle, How Will I Die? Surrounded By](20260425-005-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
+**Score:** 3,926 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260425-006-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,074 | **Source:** reddit/r/technicallythetruth
+## A shower is hot
+![A shower is hot](20260425-006-a-shower-is-hot/image.jpg)
+**Score:** 894 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260425-007-i-cast-stairs-wrong-subreddit/image.jpg)
-**Score:** 2,617 | **Source:** reddit/r/technicallythetruth
+## He's in there somewhere
+![He's in there somewhere](20260425-007-hes-in-there-somewhere/image.jpg)
+**Score:** 1,527 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## among oose
-![among oose](20260425-008-among-oose/image.jpg)
-**Score:** 519 | **Source:** reddit/r/suspiciouslyspecific
+## Johnny SusStar
+![Johnny SusStar](20260425-008-johnny-susstar/image.jpg)
+**Score:** 77 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## I'm too lazy to take a picture, so I made a drawing more time consuming but anyw
-![I'm too lazy to take a picture, so I mad](20260425-009-im-too-lazy-to-take-a-picture-so-i-made-/image.jpg)
-**Score:** 214 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## LinkedIn: where I go to be reminded why I don't go on LinkedIn.
-![LinkedIn: where I go to be reminded why ](20260425-010-linkedin-where-i-go-to-be-reminded-why-i/image.jpg)
-**Score:** 836 | **Source:** reddit/r/oddlyspecific
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260425-009-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 79 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## An augmented reality sandbox...
-![An augmented reality sandbox...](20260425-011-an-augmented-reality-sandbox/image.jpg)
+![An augmented reality sandbox...](20260425-010-an-augmented-reality-sandbox/image.jpg)
 **Score:** 604 | **Source:** reddit/r/HolUp
 
 ---
 
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-012-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 70 | **Source:** reddit/r/memes
+## Don't disturb me
+![Don't disturb me](20260425-011-dont-disturb-me/image.jpg)
+**Score:** 1,015 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Such a shame
-![Such a shame](20260425-013-such-a-shame/image.jpg)
-**Score:** 2,488 | **Source:** reddit/r/memes
+## Just British Things
+![Just British Things](20260425-012-just-british-things/image.jpg)
+**Score:** 23,840 | **Source:** reddit/r/memes
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260425-014-fatherhood-baaaaad/image.jpg)
-**Score:** 3,131 | **Source:** reddit/r/dankmemes
+## Lets go im safe
+![Lets go im safe](20260425-013-lets-go-im-safe/image.jpg)
+**Score:** 1,074 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Why not just have chat gpt teach me at that point
-![Why not just have chat gpt teach me at t](20260425-015-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
-**Score:** 442 | **Source:** reddit/r/memes
+## I've got my priorities straight!
+![I've got my priorities straight!](20260425-014-ive-got-my-priorities-straight/image.jpg)
+**Score:** 73 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260425-016-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 2,242 | **Source:** reddit/r/memes
+## There goes another one
+![There goes another one](20260425-015-there-goes-another-one/image.jpg)
+**Score:** 94 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Inescapable
-![Inescapable](20260425-017-inescapable/image.jpg)
+![Inescapable](20260425-016-inescapable/image.jpg)
 **Score:** 109 | **Source:** reddit/r/dankmemes
 
 ---
 
-## That is the worst
-![That is the worst](20260425-018-that-is-the-worst/image.jpg)
-**Score:** 6,217 | **Source:** reddit/r/dankmemes
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260425-017-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 258 | **Source:** reddit/r/dankmemes
 
 ---
 
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260425-019-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 2,704 | **Source:** reddit/r/dankmemes
+## After this, i will remember this everytime i play or see someone Play r.p.s
+![After this, i will remember this everyti](20260425-018-after-this-i-will-remember-this-everytim/image.jpg)
+**Score:** 182 | **Source:** reddit/r/memes
 
 ---
 
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260425-020-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 58 | **Source:** reddit/r/dankmemes
+## poisonous animal
+![poisonous animal](20260425-019-poisonous-animal/image.jpg)
+**Score:** 80 | **Source:** reddit/r/dankmemes
+
+---
+
+## Such a shame
+![Such a shame](20260425-020-such-a-shame/image.jpg)
+**Score:** 2,488 | **Source:** reddit/r/memes
 
 ---

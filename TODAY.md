@@ -1,30 +1,30 @@
-# Meme Feed — 2026-04-25 23:12
+# Meme Feed — 2026-04-25 23:43
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Acting SECNAV is very concerned about witches taking over the US.
-![Acting SECNAV is very concerned about wi](20260425-001-acting-secnav-is-very-concerned-about-wi/image.jpg)
-**Score:** 361 | **Source:** reddit/r/WhitePeopleTwitter
+## america is being run by first world criminals
+![america is being run by first world crim](20260425-001-america-is-being-run-by-first-world-crim/image.jpg)
+**Score:** 2,562 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## The world leads and the US can't even follow anymore.
+![The world leads and the US can't even fo](20260425-002-the-world-leads-and-the-us-cant-even-fol/image.jpg)
+**Score:** 21,110 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260425-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,077 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260425-002-proximity-to-systematic-wealth-but-still/image.jpg)
+![Proximity to systematic wealth but still](20260425-004-proximity-to-systematic-wealth-but-still/image.jpg)
 **Score:** 10,416 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260425-003-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 5,049 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260425-004-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,133 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -34,51 +34,51 @@
 
 ---
 
-## 125 per hour in Oregon
-![125 per hour in Oregon](20260425-006-125-per-hour-in-oregon/image.jpg)
-**Score:** 12,644 | **Source:** reddit/r/technicallythetruth
-
----
-
 ## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260425-007-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 499 | **Source:** reddit/r/technicallythetruth
+![Being shot with a depleted uranium bulle](20260425-006-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+**Score:** 501 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## SUStainable Copper
-![SUStainable Copper](20260425-008-sustainable-copper/image.jpg)
-**Score:** 258 | **Source:** reddit/r/suspiciouslyspecific
+## Enjoy your hot water
+![Enjoy your hot water](20260425-007-enjoy-your-hot-water/image.jpg)
+**Score:** 973 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260425-009-an-augmented-reality-sandbox/image.jpg)
-**Score:** 602 | **Source:** reddit/r/HolUp
+## Look at this track in F-zero (1991, SNES)
+![Look at this track in F-zero (1991, SNES](20260425-008-look-at-this-track-in-f-zero-1991-snes/image.jpg)
+**Score:** 66 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260425-010-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 641 | **Source:** reddit/r/HolUp
+## Among cells
+![Among cells](20260425-009-among-cells/image.jpg)
+**Score:** 799 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## Don't do that
+![Don't do that](20260425-010-dont-do-that/image.jpg)
+**Score:** 340 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260425-011-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,330 | **Source:** reddit/r/HolUp
+
+---
+
+## Strategy: 100
+![Strategy: 100](20260425-012-strategy-100/image.jpg)
+**Score:** 80 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Why not just have chat gpt teach me at that point
-![Why not just have chat gpt teach me at t](20260425-011-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
+![Why not just have chat gpt teach me at t](20260425-013-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
 **Score:** 513 | **Source:** reddit/r/memes
-
----
-
-## They're the same person!
-![They're the same person!](20260425-012-theyre-the-same-person/image.jpg)
-**Score:** 65 | **Source:** reddit/r/dankmemes
-
----
-
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260425-013-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 3,500 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -88,38 +88,38 @@
 
 ---
 
-## Such a shame
-![Such a shame](20260425-015-such-a-shame/image.jpg)
-**Score:** 2,617 | **Source:** reddit/r/memes
-
----
-
-## The middle class: :(
-![The middle class: :(](20260425-016-the-middle-class/image.jpg)
-**Score:** 76 | **Source:** reddit/r/dankmemes
-
----
-
-## Strategy: 100
-![Strategy: 100](20260425-017-strategy-100/image.jpg)
-**Score:** 80 | **Source:** reddit/r/dankmemes
+## They're the same person!
+![They're the same person!](20260425-015-theyre-the-same-person/image.jpg)
+**Score:** 65 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## That is the worst
-![That is the worst](20260425-018-that-is-the-worst/image.jpg)
+![That is the worst](20260425-016-that-is-the-worst/image.jpg)
 **Score:** 6,242 | **Source:** reddit/r/dankmemes
 
 ---
 
-## poisonous animal
-![poisonous animal](20260425-019-poisonous-animal/image.jpg)
-**Score:** 103 | **Source:** reddit/r/dankmemes
+## Such a shame
+![Such a shame](20260425-017-such-a-shame/image.jpg)
+**Score:** 2,617 | **Source:** reddit/r/memes
 
 ---
 
-## I need a new mechanic…
-![I need a new mechanic…](20260425-020-i-need-a-new-mechanic/image.jpg)
-**Score:** 132 | **Source:** reddit/r/dankmemes
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260425-018-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,500 | **Source:** reddit/r/dankmemes
+
+---
+
+## The middle class: :(
+![The middle class: :(](20260425-019-the-middle-class/image.jpg)
+**Score:** 76 | **Source:** reddit/r/dankmemes
+
+---
+
+## poisonous animal
+![poisonous animal](20260425-020-poisonous-animal/image.jpg)
+**Score:** 103 | **Source:** reddit/r/dankmemes
 
 ---

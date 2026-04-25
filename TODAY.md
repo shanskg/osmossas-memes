@@ -1,12 +1,12 @@
-# Meme Feed — 2026-04-26 02:30
+# Meme Feed — 2026-04-26 02:40
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## ICE has thoroughly investigated the deliveries and found that they should have c
-![ICE has thoroughly investigated the deli](20260426-001-ice-has-thoroughly-investigated-the-deli/image.jpg)
-**Score:** 205 | **Source:** reddit/r/WhitePeopleTwitter
+## THAT IS NOT HOW MATH AND PERCENTAGES WORK YOU BRAINDEAD DONKEY
+![THAT IS NOT HOW MATH AND PERCENTAGES WOR](20260426-001-that-is-not-how-math-and-percentages-wor/image.jpg)
+**Score:** 7,824 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
@@ -16,110 +16,110 @@
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260426-003-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,735 | **Source:** reddit/r/BlackPeopleTwitter
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260426-003-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,145 | **Source:** reddit/r/facepalm
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260426-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,178 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260426-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,369 | **Source:** reddit/r/facepalm
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260426-005-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 1,339 | **Source:** reddit/r/facepalm
+## An insult or Anne in salt?
+![An insult or Anne in salt?](20260426-005-an-insult-or-anne-in-salt/image.jpg)
+**Score:** 722 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## It's easy to find a 1-step solution if the prior guesses weren't considered.
-![It's easy to find a 1-step solution if t](20260426-006-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
-**Score:** 2,407 | **Source:** reddit/r/technicallythetruth
+## i just opened youtube
+![i just opened youtube](20260426-006-i-just-opened-youtube/image.jpg)
+**Score:** 8,967 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## This surely must be a major loss for Glitch Productions...
-![This surely must be a major loss for Gli](20260426-007-this-surely-must-be-a-major-loss-for-gli/image.jpg)
-**Score:** 74 | **Source:** reddit/r/technicallythetruth
+## when subaru is sus
+![when subaru is sus](20260426-007-when-subaru-is-sus/image.jpg)
+**Score:** 159 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## This is Loading. from among us
-![This is Loading. from among us](20260426-008-this-is-loading-from-among-us/image.jpg)
-**Score:** 111 | **Source:** reddit/r/suspiciouslyspecific
+## Look at this track in F-zero (1991, SNES)
+![Look at this track in F-zero (1991, SNES](20260426-008-look-at-this-track-in-f-zero-1991-snes/image.jpg)
+**Score:** 70 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Among Us Meme
-![Among Us Meme](20260426-009-among-us-meme/image.jpg)
-**Score:** 82 | **Source:** reddit/r/suspiciouslyspecific
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260426-009-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,335 | **Source:** reddit/r/HolUp
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260426-010-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 416 | **Source:** reddit/r/oddlyspecific
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260426-010-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 407 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Don't do that
-![Don't do that](20260426-011-dont-do-that/image.jpg)
-**Score:** 343 | **Source:** reddit/r/oddlyspecific
-
----
-
-## Darker and darker
-![Darker and darker](20260426-012-darker-and-darker/image.jpg)
-**Score:** 287 | **Source:** reddit/r/HolUp
-
----
-
-## Futabu anyone ???
-![Futabu anyone ???](20260426-013-futabu-anyone/image.jpg)
-**Score:** 2,323 | **Source:** reddit/r/HolUp
-
----
-
-## Teachers be like
-![Teachers be like](20260426-014-teachers-be-like/image.jpg)
-**Score:** 62 | **Source:** reddit/r/memes
-
----
-
-## After this, i will remember this everytime i play or see someone Play r.p.s
-![After this, i will remember this everyti](20260426-015-after-this-i-will-remember-this-everytim/image.jpg)
-**Score:** 544 | **Source:** reddit/r/memes
-
----
-
-## Good Ending: Instant Relief / Bad Ending: Shart
-![Good Ending: Instant Relief / Bad Ending](20260426-016-good-ending-instant-relief-bad-ending-sh/image.jpg)
-**Score:** 118 | **Source:** reddit/r/memes
-
----
-
-## I need a new mechanic…
-![I need a new mechanic…](20260426-017-i-need-a-new-mechanic/image.jpg)
-**Score:** 57 | **Source:** reddit/r/memes
-
----
-
-## The middle class: :(
-![The middle class: :(](20260426-018-the-middle-class/image.jpg)
-**Score:** 85 | **Source:** reddit/r/dankmemes
+## Strategy: 100
+![Strategy: 100](20260426-011-strategy-100/image.jpg)
+**Score:** 86 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## That is the worst
-![That is the worst](20260426-019-that-is-the-worst/image.jpg)
+![That is the worst](20260426-012-that-is-the-worst/image.jpg)
 **Score:** 6,252 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260426-020-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 2,745 | **Source:** reddit/r/memes
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260426-013-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 3,286 | **Source:** reddit/r/dankmemes
+
+---
+
+## They're the same person!
+![They're the same person!](20260426-014-theyre-the-same-person/image.jpg)
+**Score:** 63 | **Source:** reddit/r/dankmemes
+
+---
+
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260426-015-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,504 | **Source:** reddit/r/dankmemes
+
+---
+
+## I need a new mechanic…
+![I need a new mechanic…](20260426-016-i-need-a-new-mechanic/image.jpg)
+**Score:** 148 | **Source:** reddit/r/dankmemes
+
+---
+
+## Same same but different.
+![Same same but different.](20260426-017-same-same-but-different/image.jpg)
+**Score:** 1,692 | **Source:** reddit/r/dankmemes
+
+---
+
+## poisonous animal
+![poisonous animal](20260426-018-poisonous-animal/image.jpg)
+**Score:** 113 | **Source:** reddit/r/dankmemes
+
+---
+
+## Lets go im safe
+![Lets go im safe](20260426-019-lets-go-im-safe/image.jpg)
+**Score:** 1,083 | **Source:** reddit/r/dankmemes
+
+---
+
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260426-020-got-to-time-it-just-right-before-the-amb/image.jpg)
+**Score:** 61 | **Source:** reddit/r/dankmemes
 
 ---

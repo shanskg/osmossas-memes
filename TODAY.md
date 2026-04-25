@@ -1,4 +1,4 @@
-# Meme Feed — 2026-04-26 03:31
+# Meme Feed — 2026-04-26 03:40
 
 **Total:** 20 memes | Refresh every 10 min
 
@@ -6,120 +6,120 @@
 
 ## THAT IS NOT HOW MATH AND PERCENTAGES WORK YOU BRAINDEAD DONKEY
 ![THAT IS NOT HOW MATH AND PERCENTAGES WOR](20260426-001-that-is-not-how-math-and-percentages-wor/image.jpg)
-**Score:** 7,824 | **Source:** reddit/r/WhitePeopleTwitter
+**Score:** 7,823 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260426-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,077 | **Source:** reddit/r/BlackPeopleTwitter
+## The creative director of INFOWARS has a message for Alex Jones
+![The creative director of INFOWARS has a ](20260426-002-the-creative-director-of-infowars-has-a-/image.jpg)
+**Score:** 469 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260426-003-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 1,369 | **Source:** reddit/r/facepalm
+## skins vs skins
+![skins vs skins](20260426-003-skins-vs-skins/image.jpg)
+**Score:** 1,013 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
-![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260426-004-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
-**Score:** 1,461 | **Source:** reddit/r/technicallythetruth
+## Leave the whales alone
+![Leave the whales alone](20260426-004-leave-the-whales-alone/image.jpg)
+**Score:** 19,184 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## They're the same person!
-![They're the same person!](20260426-005-theyre-the-same-person/image.jpg)
-**Score:** 63 | **Source:** reddit/r/dankmemes
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260426-005-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,138 | **Source:** reddit/r/facepalm
 
 ---
 
-## The middle class: :(
-![The middle class: :(](20260426-006-the-middle-class/image.jpg)
-**Score:** 85 | **Source:** reddit/r/dankmemes
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260426-006-well-did-they-accept-or-not/image.jpg)
+**Score:** 833 | **Source:** reddit/r/facepalm
 
 ---
 
-## Strategy: 100
-![Strategy: 100](20260426-007-strategy-100/image.jpg)
-**Score:** 86 | **Source:** reddit/r/dankmemes
+## Being shot with a depleted uranium bullet can't be good
+![Being shot with a depleted uranium bulle](20260426-007-being-shot-with-a-depleted-uranium-bulle/image.jpg)
+**Score:** 502 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## I need a new mechanic…
-![I need a new mechanic…](20260426-008-i-need-a-new-mechanic/image.jpg)
-**Score:** 57 | **Source:** reddit/r/memes
+## imposter syndrome (among us disease)
+![imposter syndrome (among us disease)](20260426-008-imposter-syndrome-among-us-disease/image.jpg)
+**Score:** 2,247 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## poisonous animal
-![poisonous animal](20260426-009-poisonous-animal/image.jpg)
-**Score:** 113 | **Source:** reddit/r/dankmemes
+## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
+![If I go to a cookout and bite a hot dog ](20260426-009-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
+**Score:** 259 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260426-010-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,286 | **Source:** reddit/r/dankmemes
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260426-010-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,335 | **Source:** reddit/r/HolUp
 
 ---
 
-## food waste
-![food waste](20260426-011-food-waste/image.jpg)
-**Score:** 209 | **Source:** reddit/r/dankmemes
-
----
-
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260426-012-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 3,504 | **Source:** reddit/r/dankmemes
-
----
-
-## well....75% of the code is AI written....soo.....
-![well....75% of the code is AI written...](20260426-013-well75-of-the-code-is-ai-writtensoo/image.jpg)
-**Score:** 256 | **Source:** reddit/r/memes
-
----
-
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260426-014-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 54 | **Source:** reddit/r/memes
-
----
-
-## International memes
-![International memes](20260426-015-international-memes/image.jpg)
-**Score:** 130 | **Source:** reddit/r/dankmemes
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260426-011-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 67 | **Source:** reddit/r/HolUp
 
 ---
 
 ## Teachers be like
-![Teachers be like](20260426-016-teachers-be-like/image.jpg)
+![Teachers be like](20260426-012-teachers-be-like/image.jpg)
 **Score:** 62 | **Source:** reddit/r/memes
 
 ---
 
-## Inescapable
-![Inescapable](20260426-017-inescapable/image.jpg)
-**Score:** 130 | **Source:** reddit/r/dankmemes
+## Lets go im safe
+![Lets go im safe](20260426-013-lets-go-im-safe/image.jpg)
+**Score:** 1,083 | **Source:** reddit/r/dankmemes
 
 ---
 
-## That is the worst
-![That is the worst](20260426-018-that-is-the-worst/image.jpg)
-**Score:** 6,252 | **Source:** reddit/r/dankmemes
+## poisonous animal
+![poisonous animal](20260426-014-poisonous-animal/image.jpg)
+**Score:** 113 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I need a new mechanic…
-![I need a new mechanic…](20260426-019-i-need-a-new-mechanic/image.jpg)
-**Score:** 148 | **Source:** reddit/r/dankmemes
+## This is the way- the eyes splitter
+![This is the way- the eyes splitter](20260426-015-this-is-the-way-the-eyes-splitter/image.jpg)
+**Score:** 54 | **Source:** reddit/r/memes
+
+---
+
+## Such a shame
+![Such a shame](20260426-016-such-a-shame/image.jpg)
+**Score:** 2,611 | **Source:** reddit/r/memes
+
+---
+
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260426-017-got-to-time-it-just-right-before-the-amb/image.jpg)
+**Score:** 61 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## After this, i will remember this everytime i play or see someone Play r.p.s
-![After this, i will remember this everyti](20260426-020-after-this-i-will-remember-this-everytim/image.jpg)
+![After this, i will remember this everyti](20260426-018-after-this-i-will-remember-this-everytim/image.jpg)
 **Score:** 544 | **Source:** reddit/r/memes
+
+---
+
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260426-019-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,504 | **Source:** reddit/r/dankmemes
+
+---
+
+## Why are so many men like this? Based on real facts
+![Why are so many men like this? Based on ](20260426-020-why-are-so-many-men-like-this-based-on-r/image.jpg)
+**Score:** 2,745 | **Source:** reddit/r/memes
 
 ---

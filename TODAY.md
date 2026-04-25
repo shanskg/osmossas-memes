@@ -1,66 +1,66 @@
-# Meme Feed — 2026-04-25 20:00
+# Meme Feed — 2026-04-25 20:10
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Me too, George.
-![Me too, George.](20260425-001-me-too-george/image.jpg)
-**Score:** 3,643 | **Source:** reddit/r/WhitePeopleTwitter
+## The world leads and the US can't even follow anymore.
+![The world leads and the US can't even fo](20260425-001-the-world-leads-and-the-us-cant-even-fol/image.jpg)
+**Score:** 18,781 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## ICE has thoroughly investigated the deliveries and found that they should have c
-![ICE has thoroughly investigated the deli](20260425-002-ice-has-thoroughly-investigated-the-deli/image.jpg)
-**Score:** 158 | **Source:** reddit/r/WhitePeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260425-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,080 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Word association Schoolboy Q
-![Word association Schoolboy Q](20260425-003-word-association-schoolboy-q/image.jpg)
-**Score:** 1,328 | **Source:** reddit/r/BlackPeopleTwitter
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260425-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,366 | **Source:** reddit/r/facepalm
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260425-004-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,413 | **Source:** reddit/r/BlackPeopleTwitter
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260425-004-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 1,249 | **Source:** reddit/r/facepalm
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260425-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,186 | **Source:** reddit/r/facepalm
+## i just opened youtube
+![i just opened youtube](20260425-005-i-just-opened-youtube/image.jpg)
+**Score:** 8,971 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
-![Oh Oracle, How Will I Die? Surrounded By](20260425-006-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
-**Score:** 3,929 | **Source:** reddit/r/technicallythetruth
+## Johnny SusStar
+![Johnny SusStar](20260425-006-johnny-susstar/image.jpg)
+**Score:** 80 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## I'm too lazy to take a picture, so I made a drawing more time consuming but anyw
-![I'm too lazy to take a picture, so I mad](20260425-007-im-too-lazy-to-take-a-picture-so-i-made-/image.jpg)
-**Score:** 218 | **Source:** reddit/r/suspiciouslyspecific
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260425-007-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 414 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## found an old notebook from 6th grade
-![found an old notebook from 6th grade](20260425-008-found-an-old-notebook-from-6th-grade/image.jpg)
-**Score:** 5,704 | **Source:** reddit/r/suspiciouslyspecific
+## AI is everywhere
+![AI is everywhere](20260425-008-ai-is-everywhere/image.jpg)
+**Score:** 997 | **Source:** reddit/r/HolUp
 
 ---
 
-## Who is your fav Cambodian gas station explosion survivor that is pregnant?
-![Who is your fav Cambodian gas station ex](20260425-009-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
-**Score:** 1,560 | **Source:** reddit/r/oddlyspecific
+## Futabu anyone ???
+![Futabu anyone ???](20260425-009-futabu-anyone/image.jpg)
+**Score:** 2,311 | **Source:** reddit/r/HolUp
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260425-010-an-augmented-reality-sandbox/image.jpg)
-**Score:** 605 | **Source:** reddit/r/HolUp
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260425-010-got-to-time-it-just-right-before-the-amb/image.jpg)
+**Score:** 57 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -70,56 +70,56 @@
 
 ---
 
-## well....75% of the code is AI written....soo.....
-![well....75% of the code is AI written...](20260425-012-well75-of-the-code-is-ai-writtensoo/image.jpg)
-**Score:** 70 | **Source:** reddit/r/memes
-
----
-
-## Inescapable
-![Inescapable](20260425-013-inescapable/image.jpg)
-**Score:** 120 | **Source:** reddit/r/dankmemes
-
----
-
-## After this, i will remember this everytime i play or see someone Play r.p.s
-![After this, i will remember this everyti](20260425-014-after-this-i-will-remember-this-everytim/image.jpg)
-**Score:** 448 | **Source:** reddit/r/memes
-
----
-
-## That is the worst
-![That is the worst](20260425-015-that-is-the-worst/image.jpg)
-**Score:** 6,235 | **Source:** reddit/r/dankmemes
-
----
-
-## Such a shame
-![Such a shame](20260425-016-such-a-shame/image.jpg)
-**Score:** 2,629 | **Source:** reddit/r/memes
-
----
-
-## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260425-017-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
-**Score:** 2,172 | **Source:** reddit/r/memes
-
----
-
-## I need a new mechanic…
-![I need a new mechanic…](20260425-018-i-need-a-new-mechanic/image.jpg)
-**Score:** 106 | **Source:** reddit/r/dankmemes
+## They're the same person!
+![They're the same person!](20260425-012-theyre-the-same-person/image.jpg)
+**Score:** 62 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Lets go im safe
-![Lets go im safe](20260425-019-lets-go-im-safe/image.jpg)
+![Lets go im safe](20260425-013-lets-go-im-safe/image.jpg)
 **Score:** 1,083 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Couldn't be me
-![Couldn't be me](20260425-020-couldnt-be-me/image.jpg)
-**Score:** 2,340 | **Source:** reddit/r/dankmemes
+## I've got my priorities straight!
+![I've got my priorities straight!](20260425-014-ive-got-my-priorities-straight/image.jpg)
+**Score:** 73 | **Source:** reddit/r/dankmemes
+
+---
+
+## Good Ending: Instant Relief / Bad Ending: Shart
+![Good Ending: Instant Relief / Bad Ending](20260425-015-good-ending-instant-relief-bad-ending-sh/image.jpg)
+**Score:** 91 | **Source:** reddit/r/memes
+
+---
+
+## After this, i will remember this everytime i play or see someone Play r.p.s
+![After this, i will remember this everyti](20260425-016-after-this-i-will-remember-this-everytim/image.jpg)
+**Score:** 448 | **Source:** reddit/r/memes
+
+---
+
+## There goes another one
+![There goes another one](20260425-017-there-goes-another-one/image.jpg)
+**Score:** 100 | **Source:** reddit/r/dankmemes
+
+---
+
+## International memes
+![International memes](20260425-018-international-memes/image.jpg)
+**Score:** 125 | **Source:** reddit/r/dankmemes
+
+---
+
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260425-019-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 348 | **Source:** reddit/r/dankmemes
+
+---
+
+## Such a shame
+![Such a shame](20260425-020-such-a-shame/image.jpg)
+**Score:** 2,629 | **Source:** reddit/r/memes
 
 ---

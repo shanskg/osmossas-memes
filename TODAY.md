@@ -1,108 +1,108 @@
-# Meme Feed — 2026-04-25 09:21
+# Meme Feed — 2026-04-25 09:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260425-001-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 4,942 | **Source:** reddit/r/BlackPeopleTwitter
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260425-001-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,412 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260425-002-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,702 | **Source:** reddit/r/BlackPeopleTwitter
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260425-002-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,172 | **Source:** reddit/r/facepalm
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260425-003-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 1,071 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260425-003-well-did-they-accept-or-not/image.jpg)
+**Score:** 836 | **Source:** reddit/r/facepalm
 
 ---
 
-## when subaru is sus
-![when subaru is sus](20260425-004-when-subaru-is-sus/image.jpg)
-**Score:** 160 | **Source:** reddit/r/suspiciouslyspecific
+## intelligence is not dangerous
+![intelligence is not dangerous](20260425-004-intelligence-is-not-dangerous/image.jpg)
+**Score:** 24,114 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## There goes another one
-![There goes another one](20260425-005-there-goes-another-one/image.jpg)
-**Score:** 99 | **Source:** reddit/r/dankmemes
+## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
+![It's anthropomorphism because nature has](20260425-005-its-anthropomorphism-because-nature-has-/image.jpg)
+**Score:** 105 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-006-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 244 | **Source:** reddit/r/dankmemes
-
----
-
-## After this, i will remember this everytime i play or see someone Play r.p.s
-![After this, i will remember this everyti](20260425-007-after-this-i-will-remember-this-everytim/image.jpg)
-**Score:** 128 | **Source:** reddit/r/memes
-
----
-
-## That is the worst
-![That is the worst](20260425-008-that-is-the-worst/image.jpg)
-**Score:** 6,219 | **Source:** reddit/r/dankmemes
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260425-006-an-augmented-reality-sandbox/image.jpg)
+**Score:** 603 | **Source:** reddit/r/HolUp
 
 ---
 
 ## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260425-009-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+![How do I get off Mr. Reddit's Wild ride?](20260425-007-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
 **Score:** 2,139 | **Source:** reddit/r/memes
 
 ---
 
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260425-010-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 55 | **Source:** reddit/r/dankmemes
-
----
-
-## Just British Things
-![Just British Things](20260425-011-just-british-things/image.jpg)
-**Score:** 23,254 | **Source:** reddit/r/memes
-
----
-
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260425-012-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 2,114 | **Source:** reddit/r/memes
-
----
-
-## The middle class: :(
-![The middle class: :(](20260425-013-the-middle-class/image.jpg)
-**Score:** 59 | **Source:** reddit/r/dankmemes
-
----
-
-## They're the same person!
-![They're the same person!](20260425-014-theyre-the-same-person/image.jpg)
-**Score:** 56 | **Source:** reddit/r/dankmemes
-
----
-
-## Daredevil Spoilers if you care
-![Daredevil Spoilers if you care](20260425-015-daredevil-spoilers-if-you-care/image.jpg)
-**Score:** 146 | **Source:** reddit/r/dankmemes
-
----
-
-## Such a shame
-![Such a shame](20260425-016-such-a-shame/image.jpg)
-**Score:** 2,446 | **Source:** reddit/r/memes
+## Drop you best meme
+![Drop you best meme](20260425-008-drop-you-best-meme/image.jpg)
+**Score:** 509 | **Source:** reddit/r/memes
 
 ---
 
 ## poisonous animal
-![poisonous animal](20260425-017-poisonous-animal/image.jpg)
+![poisonous animal](20260425-009-poisonous-animal/image.jpg)
 **Score:** 72 | **Source:** reddit/r/dankmemes
+
+---
+
+## Couldn't be me
+![Couldn't be me](20260425-010-couldnt-be-me/image.jpg)
+**Score:** 2,201 | **Source:** reddit/r/dankmemes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260425-011-fatherhood-baaaaad/image.jpg)
+**Score:** 3,128 | **Source:** reddit/r/dankmemes
+
+---
+
+## Lets go im safe
+![Lets go im safe](20260425-012-lets-go-im-safe/image.jpg)
+**Score:** 1,082 | **Source:** reddit/r/dankmemes
+
+---
+
+## Same same but different.
+![Same same but different.](20260425-013-same-same-but-different/image.jpg)
+**Score:** 1,679 | **Source:** reddit/r/dankmemes
+
+---
+
+## Why not just have chat gpt teach me at that point
+![Why not just have chat gpt teach me at t](20260425-014-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
+**Score:** 412 | **Source:** reddit/r/memes
+
+---
+
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260425-015-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 61 | **Source:** reddit/r/memes
+
+---
+
+## I've got my priorities straight!
+![I've got my priorities straight!](20260425-016-ive-got-my-priorities-straight/image.jpg)
+**Score:** 70 | **Source:** reddit/r/dankmemes
+
+---
+
+## Inescapable
+![Inescapable](20260425-017-inescapable/image.jpg)
+**Score:** 110 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -112,14 +112,14 @@
 
 ---
 
-## Why not just have chat gpt teach me at that point
-![Why not just have chat gpt teach me at t](20260425-019-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
-**Score:** 412 | **Source:** reddit/r/memes
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260425-019-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 146 | **Source:** reddit/r/dankmemes
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260425-020-fatherhood-baaaaad/image.jpg)
-**Score:** 3,128 | **Source:** reddit/r/dankmemes
+## Just British Things
+![Just British Things](20260425-020-just-british-things/image.jpg)
+**Score:** 23,254 | **Source:** reddit/r/memes
 
 ---

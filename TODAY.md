@@ -1,102 +1,102 @@
-# Meme Feed — 2026-04-26 04:20
+# Meme Feed — 2026-04-26 04:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Acting SECNAV is very concerned about witches taking over the US.
-![Acting SECNAV is very concerned about wi](20260426-001-acting-secnav-is-very-concerned-about-wi/image.jpg)
-**Score:** 365 | **Source:** reddit/r/WhitePeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260426-001-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 5,060 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Word association Schoolboy Q
-![Word association Schoolboy Q](20260426-002-word-association-schoolboy-q/image.jpg)
-**Score:** 1,404 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260426-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,414 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260426-003-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,416 | **Source:** reddit/r/BlackPeopleTwitter
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260426-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,364 | **Source:** reddit/r/facepalm
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260426-004-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 1,369 | **Source:** reddit/r/facepalm
+## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
+![It's anthropomorphism because nature has](20260426-004-its-anthropomorphism-because-nature-has-/image.jpg)
+**Score:** 115 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260426-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,182 | **Source:** reddit/r/facepalm
+## Just slightly...
+![Just slightly...](20260426-005-just-slightly/image.jpg)
+**Score:** 520 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## intelligence is not dangerous
-![intelligence is not dangerous](20260426-006-intelligence-is-not-dangerous/image.jpg)
-**Score:** 42,180 | **Source:** reddit/r/technicallythetruth
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260426-006-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 78 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260426-007-i-just-opened-youtube/image.jpg)
-**Score:** 8,971 | **Source:** reddit/r/technicallythetruth
+## Don't do that
+![Don't do that](20260426-007-dont-do-that/image.jpg)
+**Score:** 344 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260426-008-an-augmented-reality-sandbox/image.jpg)
-**Score:** 598 | **Source:** reddit/r/HolUp
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260426-008-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 74 | **Source:** reddit/r/HolUp
+
+---
+
+## food waste
+![food waste](20260426-009-food-waste/image.jpg)
+**Score:** 298 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Teachers be like
-![Teachers be like](20260426-009-teachers-be-like/image.jpg)
+![Teachers be like](20260426-010-teachers-be-like/image.jpg)
 **Score:** 71 | **Source:** reddit/r/memes
 
 ---
 
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260426-010-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,319 | **Source:** reddit/r/dankmemes
-
----
-
-## Same same but different.
-![Same same but different.](20260426-011-same-same-but-different/image.jpg)
-**Score:** 1,695 | **Source:** reddit/r/dankmemes
-
----
-
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260426-012-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 3,506 | **Source:** reddit/r/dankmemes
-
----
-
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260426-013-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 123 | **Source:** reddit/r/memes
-
----
-
-## POV: you’re on vacation
-![POV: you’re on vacation](20260426-014-pov-youre-on-vacation/image.jpg)
-**Score:** 2,400 | **Source:** reddit/r/memes
-
----
-
 ## Can't Unsee It
-![Can't Unsee It](20260426-015-cant-unsee-it/image.jpg)
+![Can't Unsee It](20260426-011-cant-unsee-it/image.jpg)
 **Score:** 77 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Good Ending: Instant Relief / Bad Ending: Shart
-![Good Ending: Instant Relief / Bad Ending](20260426-016-good-ending-instant-relief-bad-ending-sh/image.jpg)
-**Score:** 127 | **Source:** reddit/r/memes
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260426-012-fatherhood-baaaaad/image.jpg)
+**Score:** 3,151 | **Source:** reddit/r/dankmemes
+
+---
+
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260426-013-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 412 | **Source:** reddit/r/dankmemes
+
+---
+
+## That is the worst
+![That is the worst](20260426-014-that-is-the-worst/image.jpg)
+**Score:** 6,252 | **Source:** reddit/r/dankmemes
+
+---
+
+## Lets go im safe
+![Lets go im safe](20260426-015-lets-go-im-safe/image.jpg)
+**Score:** 1,078 | **Source:** reddit/r/dankmemes
+
+---
+
+## Why are so many men like this? Based on real facts
+![Why are so many men like this? Based on ](20260426-016-why-are-so-many-men-like-this-based-on-r/image.jpg)
+**Score:** 2,752 | **Source:** reddit/r/memes
 
 ---
 
@@ -106,20 +106,20 @@
 
 ---
 
-## poisonous animal
-![poisonous animal](20260426-018-poisonous-animal/image.jpg)
-**Score:** 116 | **Source:** reddit/r/dankmemes
-
----
-
-## Couldn't be me
-![Couldn't be me](20260426-019-couldnt-be-me/image.jpg)
-**Score:** 2,385 | **Source:** reddit/r/dankmemes
-
----
-
 ## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260426-020-got-to-time-it-just-right-before-the-amb/image.jpg)
+![Got to time it just right before the amb](20260426-018-got-to-time-it-just-right-before-the-amb/image.jpg)
 **Score:** 59 | **Source:** reddit/r/dankmemes
+
+---
+
+## The middle class: :(
+![The middle class: :(](20260426-019-the-middle-class/image.jpg)
+**Score:** 87 | **Source:** reddit/r/dankmemes
+
+---
+
+## well....75% of the code is AI written....soo.....
+![well....75% of the code is AI written...](20260426-020-well75-of-the-code-is-ai-writtensoo/image.jpg)
+**Score:** 267 | **Source:** reddit/r/memes
 
 ---

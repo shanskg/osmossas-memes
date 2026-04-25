@@ -1,12 +1,12 @@
-# Meme Feed — 2026-04-26 07:40
+# Meme Feed — 2026-04-26 07:50
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Me too, George.
-![Me too, George.](20260426-001-me-too-george/image.jpg)
-**Score:** 3,667 | **Source:** reddit/r/WhitePeopleTwitter
+## "I'm a very cost-conscious person' says the man who bankrupted casinos and wants
+!["I'm a very cost-conscious person' says ](20260426-001-im-a-very-cost-conscious-person-says-the/image.jpg)
+**Score:** 219 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
@@ -16,9 +16,9 @@
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260426-003-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,745 | **Source:** reddit/r/BlackPeopleTwitter
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260426-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,176 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -28,98 +28,98 @@
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260426-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,369 | **Source:** reddit/r/facepalm
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260426-005-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,407 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
-![Oh Oracle, How Will I Die? Surrounded By](20260426-006-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
-**Score:** 3,925 | **Source:** reddit/r/technicallythetruth
+## i just opened youtube
+![i just opened youtube](20260426-006-i-just-opened-youtube/image.jpg)
+**Score:** 8,970 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Some inflation is good
-![Some inflation is good](20260426-007-some-inflation-is-good/image.jpg)
-**Score:** 15,683 | **Source:** reddit/r/technicallythetruth
+## Just slightly...
+![Just slightly...](20260426-007-just-slightly/image.jpg)
+**Score:** 522 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## My friend sent me this photo
-![My friend sent me this photo](20260426-008-my-friend-sent-me-this-photo/image.jpg)
-**Score:** 850 | **Source:** reddit/r/suspiciouslyspecific
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260426-008-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 79 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260426-009-ai-is-everywhere/image.jpg)
-**Score:** 1,007 | **Source:** reddit/r/HolUp
+## Who is your fav Cambodian gas station explosion survivor that is pregnant?
+![Who is your fav Cambodian gas station ex](20260426-009-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
+**Score:** 1,575 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Strategy: 100
-![Strategy: 100](20260426-010-strategy-100/image.jpg)
-**Score:** 94 | **Source:** reddit/r/dankmemes
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260426-010-an-augmented-reality-sandbox/image.jpg)
+**Score:** 605 | **Source:** reddit/r/HolUp
 
 ---
 
-## Can't Unsee It
-![Can't Unsee It](20260426-011-cant-unsee-it/image.jpg)
-**Score:** 82 | **Source:** reddit/r/dankmemes
-
----
-
-## After this, i will remember this everytime i play or see someone Play r.p.s
-![After this, i will remember this everyti](20260426-012-after-this-i-will-remember-this-everytim/image.jpg)
-**Score:** 549 | **Source:** reddit/r/memes
-
----
-
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260426-013-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 2,761 | **Source:** reddit/r/memes
-
----
-
-## well....75% of the code is AI written....soo.....
-![well....75% of the code is AI written...](20260426-014-well75-of-the-code-is-ai-writtensoo/image.jpg)
-**Score:** 274 | **Source:** reddit/r/memes
-
----
-
-## Not all dogs
-![Not all dogs](20260426-015-not-all-dogs/image.jpg)
-**Score:** 53 | **Source:** reddit/r/dankmemes
-
----
-
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260426-016-fatherhood-baaaaad/image.jpg)
-**Score:** 3,147 | **Source:** reddit/r/dankmemes
-
----
-
-## Average CarX online interaction.
-![Average CarX online interaction.](20260426-017-average-carx-online-interaction/image.jpg)
-**Score:** 57 | **Source:** reddit/r/dankmemes
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260426-011-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 77 | **Source:** reddit/r/HolUp
 
 ---
 
 ## food waste
-![food waste](20260426-018-food-waste/image.jpg)
+![food waste](20260426-012-food-waste/image.jpg)
 **Score:** 417 | **Source:** reddit/r/dankmemes
 
 ---
 
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260426-019-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 163 | **Source:** reddit/r/memes
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260426-013-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 422 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I need a new mechanic…
-![I need a new mechanic…](20260426-020-i-need-a-new-mechanic/image.jpg)
-**Score:** 166 | **Source:** reddit/r/dankmemes
+## Inescapable
+![Inescapable](20260426-014-inescapable/image.jpg)
+**Score:** 129 | **Source:** reddit/r/dankmemes
+
+---
+
+## That is the worst
+![That is the worst](20260426-015-that-is-the-worst/image.jpg)
+**Score:** 6,249 | **Source:** reddit/r/dankmemes
+
+---
+
+## Why are so many men like this? Based on real facts
+![Why are so many men like this? Based on ](20260426-016-why-are-so-many-men-like-this-based-on-r/image.jpg)
+**Score:** 2,761 | **Source:** reddit/r/memes
+
+---
+
+## poisonous animal
+![poisonous animal](20260426-017-poisonous-animal/image.jpg)
+**Score:** 120 | **Source:** reddit/r/dankmemes
+
+---
+
+## yh she said this 💀
+![yh she said this 💀](20260426-018-yh-she-said-this/image.jpg)
+**Score:** 95 | **Source:** reddit/r/memes
+
+---
+
+## POV: you’re on vacation
+![POV: you’re on vacation](20260426-019-pov-youre-on-vacation/image.jpg)
+**Score:** 11,230 | **Source:** reddit/r/memes
+
+---
+
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260426-020-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 3,352 | **Source:** reddit/r/dankmemes
 
 ---

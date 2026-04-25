@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-25 18:20
+# Meme Feed — 2026-04-25 18:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260425-001-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 5,014 | **Source:** reddit/r/BlackPeopleTwitter
+## If you steal from the wealthy, you go to prison. If you steal from the poor, you
+![If you steal from the wealthy, you go to](20260425-001-if-you-steal-from-the-wealthy-you-go-to-/image.jpg)
+**Score:** 3,615 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## skins vs skins
-![skins vs skins](20260425-002-skins-vs-skins/image.jpg)
-**Score:** 1,016 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260425-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,410 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -28,87 +28,87 @@
 
 ---
 
-## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260425-005-i-cast-stairs-wrong-subreddit/image.jpg)
-**Score:** 2,636 | **Source:** reddit/r/technicallythetruth
-
----
-
 ## The detective didn't find it
-![The detective didn't find it](20260425-006-the-detective-didnt-find-it/image.jpg)
+![The detective didn't find it](20260425-005-the-detective-didnt-find-it/image.jpg)
 **Score:** 33,778 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Don't do that
-![Don't do that](20260425-007-dont-do-that/image.jpg)
-**Score:** 338 | **Source:** reddit/r/oddlyspecific
+## Among who?
+![Among who?](20260425-006-among-who/image.jpg)
+**Score:** 3,789 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260425-008-futabu-anyone/image.jpg)
-**Score:** 2,303 | **Source:** reddit/r/HolUp
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260425-007-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,333 | **Source:** reddit/r/HolUp
 
 ---
 
-## Why not just have chat gpt teach me at that point
-![Why not just have chat gpt teach me at t](20260425-009-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
-**Score:** 501 | **Source:** reddit/r/memes
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260425-008-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 66 | **Source:** reddit/r/HolUp
 
 ---
 
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-010-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 348 | **Source:** reddit/r/dankmemes
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260425-009-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 2,172 | **Source:** reddit/r/memes
 
 ---
 
-## Same same but different.
-![Same same but different.](20260425-011-same-same-but-different/image.jpg)
-**Score:** 1,687 | **Source:** reddit/r/dankmemes
+## Such a shame
+![Such a shame](20260425-010-such-a-shame/image.jpg)
+**Score:** 2,629 | **Source:** reddit/r/memes
 
 ---
 
-## Couldn't be me
-![Couldn't be me](20260425-012-couldnt-be-me/image.jpg)
-**Score:** 2,340 | **Source:** reddit/r/dankmemes
-
----
-
-## I need a new mechanic…
-![I need a new mechanic…](20260425-013-i-need-a-new-mechanic/image.jpg)
-**Score:** 106 | **Source:** reddit/r/dankmemes
-
----
-
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260425-014-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 57 | **Source:** reddit/r/dankmemes
+## The middle class: :(
+![The middle class: :(](20260425-011-the-middle-class/image.jpg)
+**Score:** 80 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## poisonous animal
-![poisonous animal](20260425-015-poisonous-animal/image.jpg)
+![poisonous animal](20260425-012-poisonous-animal/image.jpg)
 **Score:** 98 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Inescapable
-![Inescapable](20260425-016-inescapable/image.jpg)
-**Score:** 120 | **Source:** reddit/r/dankmemes
+## Good Ending: Instant Relief / Bad Ending: Shart
+![Good Ending: Instant Relief / Bad Ending](20260425-013-good-ending-instant-relief-bad-ending-sh/image.jpg)
+**Score:** 91 | **Source:** reddit/r/memes
+
+---
+
+## There goes another one
+![There goes another one](20260425-014-there-goes-another-one/image.jpg)
+**Score:** 100 | **Source:** reddit/r/dankmemes
+
+---
+
+## Same same but different.
+![Same same but different.](20260425-015-same-same-but-different/image.jpg)
+**Score:** 1,687 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260425-017-fatherhood-baaaaad/image.jpg)
+!["Fatherhood baaaaad!!!"](20260425-016-fatherhood-baaaaad/image.jpg)
 **Score:** 3,141 | **Source:** reddit/r/dankmemes
 
 ---
 
-## well....75% of the code is AI written....soo.....
-![well....75% of the code is AI written...](20260425-018-well75-of-the-code-is-ai-writtensoo/image.jpg)
-**Score:** 70 | **Source:** reddit/r/memes
+## After this, i will remember this everytime i play or see someone Play r.p.s
+![After this, i will remember this everyti](20260425-017-after-this-i-will-remember-this-everytim/image.jpg)
+**Score:** 448 | **Source:** reddit/r/memes
+
+---
+
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260425-018-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 3,036 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -118,8 +118,8 @@
 
 ---
 
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-020-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 77 | **Source:** reddit/r/memes
+## Chat am I cooked?!
+![Chat am I cooked?!](20260425-020-chat-am-i-cooked/image.jpg)
+**Score:** 639 | **Source:** reddit/r/memes
 
 ---

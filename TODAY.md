@@ -1,72 +1,72 @@
-# Meme Feed — 2026-04-25 17:11
+# Meme Feed — 2026-04-25 17:27
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## It's funny and not funny because it's true.
-![It's funny and not funny because it's tr](20260425-001-its-funny-and-not-funny-because-its-true/image.jpg)
-**Score:** 3,504 | **Source:** reddit/r/WhitePeopleTwitter
+## THAT IS NOT HOW MATH AND PERCENTAGES WORK YOU BRAINDEAD DONKEY
+![THAT IS NOT HOW MATH AND PERCENTAGES WOR](20260425-001-that-is-not-how-math-and-percentages-wor/image.jpg)
+**Score:** 7,799 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Oh Brother, this guy STINKS!
-![Oh Brother, this guy STINKS!](20260425-002-oh-brother-this-guy-stinks/image.jpg)
-**Score:** 169 | **Source:** reddit/r/WhitePeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260425-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,075 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260425-003-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,410 | **Source:** reddit/r/BlackPeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260425-003-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,726 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Leave the whales alone
-![Leave the whales alone](20260425-004-leave-the-whales-alone/image.jpg)
-**Score:** 19,191 | **Source:** reddit/r/BlackPeopleTwitter
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260425-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,362 | **Source:** reddit/r/facepalm
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260425-005-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,137 | **Source:** reddit/r/facepalm
+## A shower is hot
+![A shower is hot](20260425-005-a-shower-is-hot/image.jpg)
+**Score:** 921 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260425-006-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 1,217 | **Source:** reddit/r/facepalm
+## Just slightly...
+![Just slightly...](20260425-006-just-slightly/image.jpg)
+**Score:** 520 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## This surely must be a major loss for Glitch Productions...
-![This surely must be a major loss for Gli](20260425-007-this-surely-must-be-a-major-loss-for-gli/image.jpg)
-**Score:** 70 | **Source:** reddit/r/technicallythetruth
+## Guess what game this is (hint it has among us in the name)
+![Guess what game this is (hint it has amo](20260425-007-guess-what-game-this-is-hint-it-has-amon/image.jpg)
+**Score:** 160 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
-![It's anthropomorphism because nature has](20260425-008-its-anthropomorphism-because-nature-has-/image.jpg)
-**Score:** 110 | **Source:** reddit/r/technicallythetruth
+## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
+![If I go to a cookout and bite a hot dog ](20260425-008-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
+**Score:** 258 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Johnny SusStar
-![Johnny SusStar](20260425-009-johnny-susstar/image.jpg)
-**Score:** 80 | **Source:** reddit/r/suspiciouslyspecific
+## I need a new mechanic…
+![I need a new mechanic…](20260425-009-i-need-a-new-mechanic/image.jpg)
+**Score:** 90 | **Source:** reddit/r/dankmemes
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260425-010-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 415 | **Source:** reddit/r/oddlyspecific
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260425-010-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 143 | **Source:** reddit/r/dankmemes
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260425-011-fatherhood-baaaaad/image.jpg)
-**Score:** 3,139 | **Source:** reddit/r/dankmemes
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260425-011-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 326 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -76,50 +76,50 @@
 
 ---
 
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260425-013-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 59 | **Source:** reddit/r/dankmemes
-
----
-
-## Inescapable
-![Inescapable](20260425-014-inescapable/image.jpg)
-**Score:** 114 | **Source:** reddit/r/dankmemes
-
----
-
 ## Why not just have chat gpt teach me at that point
-![Why not just have chat gpt teach me at t](20260425-015-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
+![Why not just have chat gpt teach me at t](20260425-013-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
 **Score:** 490 | **Source:** reddit/r/memes
 
 ---
 
 ## There goes another one
-![There goes another one](20260425-016-there-goes-another-one/image.jpg)
+![There goes another one](20260425-014-there-goes-another-one/image.jpg)
 **Score:** 99 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I need a new mechanic…
-![I need a new mechanic…](20260425-017-i-need-a-new-mechanic/image.jpg)
-**Score:** 90 | **Source:** reddit/r/dankmemes
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260425-015-fatherhood-baaaaad/image.jpg)
+**Score:** 3,139 | **Source:** reddit/r/dankmemes
+
+---
+
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260425-016-got-to-time-it-just-right-before-the-amb/image.jpg)
+**Score:** 59 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-018-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 326 | **Source:** reddit/r/dankmemes
-
----
-
-## poisonous animal
-![poisonous animal](20260425-019-poisonous-animal/image.jpg)
-**Score:** 92 | **Source:** reddit/r/dankmemes
-
----
-
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-020-even-in-video-games-they-dont-want-you-t/image.jpg)
+![Even in video games, they don't want you](20260425-017-even-in-video-games-they-dont-want-you-t/image.jpg)
 **Score:** 75 | **Source:** reddit/r/memes
+
+---
+
+## Inescapable
+![Inescapable](20260425-018-inescapable/image.jpg)
+**Score:** 114 | **Source:** reddit/r/dankmemes
+
+---
+
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260425-019-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,494 | **Source:** reddit/r/dankmemes
+
+---
+
+## They're the same person!
+![They're the same person!](20260425-020-theyre-the-same-person/image.jpg)
+**Score:** 62 | **Source:** reddit/r/dankmemes
 
 ---

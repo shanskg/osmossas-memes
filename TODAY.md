@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-25 19:10
+# Meme Feed — 2026-04-25 19:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260425-001-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 5,023 | **Source:** reddit/r/BlackPeopleTwitter
+## The pro-life party, folks
+![The pro-life party, folks](20260425-001-the-pro-life-party-folks/image.jpg)
+**Score:** 491 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Leave the whales alone
-![Leave the whales alone](20260425-002-leave-the-whales-alone/image.jpg)
-**Score:** 19,187 | **Source:** reddit/r/BlackPeopleTwitter
+## Accountability is literally not a word in their lexicon
+![Accountability is literally not a word i](20260425-002-accountability-is-literally-not-a-word-i/image.jpg)
+**Score:** 3,014 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## This a celly, that's a tool
+![This a celly, that's a tool](20260425-003-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,725 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260425-003-south-korean-pilots-were-taking-selfies-/image.jpg)
+![South Korean Pilots Were Taking Selfies ](20260425-004-south-korean-pilots-were-taking-selfies-/image.jpg)
 **Score:** 1,249 | **Source:** reddit/r/facepalm
 
 ---
 
-## outperforming the inflation rate
-![outperforming the inflation rate](20260425-004-outperforming-the-inflation-rate/image.jpg)
-**Score:** 65,058 | **Source:** reddit/r/technicallythetruth
+## How did none of you notice this?
+![How did none of you notice this?](20260425-005-how-did-none-of-you-notice-this/image.jpg)
+**Score:** 1,078 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## imposter syndrome (among us disease)
-![imposter syndrome (among us disease)](20260425-005-imposter-syndrome-among-us-disease/image.jpg)
-**Score:** 2,240 | **Source:** reddit/r/suspiciouslyspecific
+## Brother what even are these polls😐️
+![Brother what even are these polls😐️](20260425-006-brother-what-even-are-these-polls/image.jpg)
+**Score:** 282 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Don't do that
-![Don't do that](20260425-006-dont-do-that/image.jpg)
-**Score:** 341 | **Source:** reddit/r/oddlyspecific
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260425-007-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 414 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260425-007-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,333 | **Source:** reddit/r/HolUp
-
----
-
-## poisonous animal
-![poisonous animal](20260425-008-poisonous-animal/image.jpg)
-**Score:** 98 | **Source:** reddit/r/dankmemes
-
----
-
-## There goes another one
-![There goes another one](20260425-009-there-goes-another-one/image.jpg)
-**Score:** 100 | **Source:** reddit/r/dankmemes
+## Couldn't be me
+![Couldn't be me](20260425-008-couldnt-be-me/image.jpg)
+**Score:** 2,340 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## After this, i will remember this everytime i play or see someone Play r.p.s
-![After this, i will remember this everyti](20260425-010-after-this-i-will-remember-this-everytim/image.jpg)
+![After this, i will remember this everyti](20260425-009-after-this-i-will-remember-this-everytim/image.jpg)
 **Score:** 448 | **Source:** reddit/r/memes
 
 ---
 
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260425-011-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,036 | **Source:** reddit/r/dankmemes
-
----
-
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-012-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 77 | **Source:** reddit/r/memes
-
----
-
 ## Good Ending: Instant Relief / Bad Ending: Shart
-![Good Ending: Instant Relief / Bad Ending](20260425-013-good-ending-instant-relief-bad-ending-sh/image.jpg)
+![Good Ending: Instant Relief / Bad Ending](20260425-010-good-ending-instant-relief-bad-ending-sh/image.jpg)
 **Score:** 91 | **Source:** reddit/r/memes
 
 ---
 
+## Why not just have chat gpt teach me at that point
+![Why not just have chat gpt teach me at t](20260425-011-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
+**Score:** 501 | **Source:** reddit/r/memes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260425-012-fatherhood-baaaaad/image.jpg)
+**Score:** 3,141 | **Source:** reddit/r/dankmemes
+
+---
+
+## well....75% of the code is AI written....soo.....
+![well....75% of the code is AI written...](20260425-013-well75-of-the-code-is-ai-writtensoo/image.jpg)
+**Score:** 70 | **Source:** reddit/r/memes
+
+---
+
+## The middle class: :(
+![The middle class: :(](20260425-014-the-middle-class/image.jpg)
+**Score:** 80 | **Source:** reddit/r/dankmemes
+
+---
+
 ## They're the same person!
-![They're the same person!](20260425-014-theyre-the-same-person/image.jpg)
+![They're the same person!](20260425-015-theyre-the-same-person/image.jpg)
 **Score:** 62 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Such a shame
-![Such a shame](20260425-015-such-a-shame/image.jpg)
-**Score:** 2,629 | **Source:** reddit/r/memes
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260425-016-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,494 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260425-016-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 2,645 | **Source:** reddit/r/memes
+## Chat am I cooked?!
+![Chat am I cooked?!](20260425-017-chat-am-i-cooked/image.jpg)
+**Score:** 639 | **Source:** reddit/r/memes
+
+---
+
+## Same same but different.
+![Same same but different.](20260425-018-same-same-but-different/image.jpg)
+**Score:** 1,687 | **Source:** reddit/r/dankmemes
+
+---
+
+## I need a new mechanic…
+![I need a new mechanic…](20260425-019-i-need-a-new-mechanic/image.jpg)
+**Score:** 106 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Lets go im safe
-![Lets go im safe](20260425-017-lets-go-im-safe/image.jpg)
+![Lets go im safe](20260425-020-lets-go-im-safe/image.jpg)
 **Score:** 1,083 | **Source:** reddit/r/dankmemes
-
----
-
-## That is the worst
-![That is the worst](20260425-018-that-is-the-worst/image.jpg)
-**Score:** 6,235 | **Source:** reddit/r/dankmemes
-
----
-
-## I've got my priorities straight!
-![I've got my priorities straight!](20260425-019-ive-got-my-priorities-straight/image.jpg)
-**Score:** 73 | **Source:** reddit/r/dankmemes
-
----
-
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-020-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 348 | **Source:** reddit/r/dankmemes
 
 ---

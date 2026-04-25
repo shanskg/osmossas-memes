@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-26 03:20
+# Meme Feed — 2026-04-26 03:31
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## skins vs skins
-![skins vs skins](20260426-001-skins-vs-skins/image.jpg)
-**Score:** 1,013 | **Source:** reddit/r/BlackPeopleTwitter
+## THAT IS NOT HOW MATH AND PERCENTAGES WORK YOU BRAINDEAD DONKEY
+![THAT IS NOT HOW MATH AND PERCENTAGES WOR](20260426-001-that-is-not-how-math-and-percentages-wor/image.jpg)
+**Score:** 7,824 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260426-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 5,060 | **Source:** reddit/r/BlackPeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260426-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,077 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260426-003-well-did-they-accept-or-not/image.jpg)
-**Score:** 833 | **Source:** reddit/r/facepalm
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260426-003-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 1,369 | **Source:** reddit/r/facepalm
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260426-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,364 | **Source:** reddit/r/facepalm
+## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
+![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260426-004-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
+**Score:** 1,461 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## This surely must be a major loss for Glitch Productions...
-![This surely must be a major loss for Gli](20260426-005-this-surely-must-be-a-major-loss-for-gli/image.jpg)
-**Score:** 74 | **Source:** reddit/r/technicallythetruth
+## They're the same person!
+![They're the same person!](20260426-005-theyre-the-same-person/image.jpg)
+**Score:** 63 | **Source:** reddit/r/dankmemes
 
 ---
 
-## outperforming the inflation rate
-![outperforming the inflation rate](20260426-006-outperforming-the-inflation-rate/image.jpg)
-**Score:** 65,068 | **Source:** reddit/r/technicallythetruth
+## The middle class: :(
+![The middle class: :(](20260426-006-the-middle-class/image.jpg)
+**Score:** 85 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I'm too lazy to take a picture, so I made a drawing more time consuming but anyw
-![I'm too lazy to take a picture, so I mad](20260426-007-im-too-lazy-to-take-a-picture-so-i-made-/image.jpg)
-**Score:** 214 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260426-008-brother-what-even-are-these-polls/image.jpg)
-**Score:** 283 | **Source:** reddit/r/oddlyspecific
-
----
-
-## Darker and darker
-![Darker and darker](20260426-009-darker-and-darker/image.jpg)
-**Score:** 287 | **Source:** reddit/r/HolUp
-
----
-
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260426-010-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 2,745 | **Source:** reddit/r/memes
-
----
-
-## well....75% of the code is AI written....soo.....
-![well....75% of the code is AI written...](20260426-011-well75-of-the-code-is-ai-writtensoo/image.jpg)
-**Score:** 256 | **Source:** reddit/r/memes
-
----
-
-## Couldn't be me
-![Couldn't be me](20260426-012-couldnt-be-me/image.jpg)
-**Score:** 2,382 | **Source:** reddit/r/dankmemes
+## Strategy: 100
+![Strategy: 100](20260426-007-strategy-100/image.jpg)
+**Score:** 86 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## I need a new mechanic…
-![I need a new mechanic…](20260426-013-i-need-a-new-mechanic/image.jpg)
-**Score:** 148 | **Source:** reddit/r/dankmemes
-
----
-
-## poisonous animal
-![poisonous animal](20260426-014-poisonous-animal/image.jpg)
-**Score:** 113 | **Source:** reddit/r/dankmemes
-
----
-
-## food waste
-![food waste](20260426-015-food-waste/image.jpg)
-**Score:** 209 | **Source:** reddit/r/dankmemes
-
----
-
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260426-016-fatherhood-baaaaad/image.jpg)
-**Score:** 3,150 | **Source:** reddit/r/dankmemes
-
----
-
-## Such a shame
-![Such a shame](20260426-017-such-a-shame/image.jpg)
-**Score:** 2,611 | **Source:** reddit/r/memes
-
----
-
-## I need a new mechanic…
-![I need a new mechanic…](20260426-018-i-need-a-new-mechanic/image.jpg)
+![I need a new mechanic…](20260426-008-i-need-a-new-mechanic/image.jpg)
 **Score:** 57 | **Source:** reddit/r/memes
 
 ---
 
+## poisonous animal
+![poisonous animal](20260426-009-poisonous-animal/image.jpg)
+**Score:** 113 | **Source:** reddit/r/dankmemes
+
+---
+
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260426-010-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 3,286 | **Source:** reddit/r/dankmemes
+
+---
+
+## food waste
+![food waste](20260426-011-food-waste/image.jpg)
+**Score:** 209 | **Source:** reddit/r/dankmemes
+
+---
+
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260426-012-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,504 | **Source:** reddit/r/dankmemes
+
+---
+
+## well....75% of the code is AI written....soo.....
+![well....75% of the code is AI written...](20260426-013-well75-of-the-code-is-ai-writtensoo/image.jpg)
+**Score:** 256 | **Source:** reddit/r/memes
+
+---
+
+## This is the way- the eyes splitter
+![This is the way- the eyes splitter](20260426-014-this-is-the-way-the-eyes-splitter/image.jpg)
+**Score:** 54 | **Source:** reddit/r/memes
+
+---
+
+## International memes
+![International memes](20260426-015-international-memes/image.jpg)
+**Score:** 130 | **Source:** reddit/r/dankmemes
+
+---
+
+## Teachers be like
+![Teachers be like](20260426-016-teachers-be-like/image.jpg)
+**Score:** 62 | **Source:** reddit/r/memes
+
+---
+
 ## Inescapable
-![Inescapable](20260426-019-inescapable/image.jpg)
+![Inescapable](20260426-017-inescapable/image.jpg)
 **Score:** 130 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## That is the worst
-![That is the worst](20260426-020-that-is-the-worst/image.jpg)
+![That is the worst](20260426-018-that-is-the-worst/image.jpg)
 **Score:** 6,252 | **Source:** reddit/r/dankmemes
+
+---
+
+## I need a new mechanic…
+![I need a new mechanic…](20260426-019-i-need-a-new-mechanic/image.jpg)
+**Score:** 148 | **Source:** reddit/r/dankmemes
+
+---
+
+## After this, i will remember this everytime i play or see someone Play r.p.s
+![After this, i will remember this everyti](20260426-020-after-this-i-will-remember-this-everytim/image.jpg)
+**Score:** 544 | **Source:** reddit/r/memes
 
 ---

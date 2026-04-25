@@ -1,60 +1,60 @@
-# Meme Feed — 2026-04-25 20:51
+# Meme Feed — 2026-04-25 21:00
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Melania pushing aI
-![Melania pushing aI](20260425-001-melania-pushing-ai/image.jpg)
-**Score:** 53 | **Source:** reddit/r/WhitePeopleTwitter
+## Acting SECNAV is very concerned about witches taking over the US.
+![Acting SECNAV is very concerned about wi](20260425-001-acting-secnav-is-very-concerned-about-wi/image.jpg)
+**Score:** 357 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260425-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,075 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260425-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 5,033 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## She was a honeypot deployed to provide updates on their progress
+![She was a honeypot deployed to provide u](20260425-003-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
+**Score:** 11,577 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260425-003-south-korean-pilots-were-taking-selfies-/image.jpg)
+![South Korean Pilots Were Taking Selfies ](20260425-004-south-korean-pilots-were-taking-selfies-/image.jpg)
 **Score:** 1,282 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260425-004-well-did-they-accept-or-not/image.jpg)
+![Well? Did they accept or not?](20260425-005-well-did-they-accept-or-not/image.jpg)
 **Score:** 836 | **Source:** reddit/r/facepalm
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260425-005-enjoy-your-hot-water/image.jpg)
-**Score:** 973 | **Source:** reddit/r/technicallythetruth
+## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
+![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260425-006-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
+**Score:** 11,483 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260425-006-i-cast-stairs-wrong-subreddit/image.jpg)
-**Score:** 2,642 | **Source:** reddit/r/technicallythetruth
+## Some inflation is good
+![Some inflation is good](20260425-007-some-inflation-is-good/image.jpg)
+**Score:** 15,678 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## You guys like my website?
-![You guys like my website?](20260425-007-you-guys-like-my-website/image.jpg)
-**Score:** 75 | **Source:** reddit/r/suspiciouslyspecific
+## Among cells
+![Among cells](20260425-008-among-cells/image.jpg)
+**Score:** 802 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260425-008-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 259 | **Source:** reddit/r/oddlyspecific
-
----
-
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260425-009-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 58 | **Source:** reddit/r/HolUp
+## Don't do that
+![Don't do that](20260425-009-dont-do-that/image.jpg)
+**Score:** 341 | **Source:** reddit/r/oddlyspecific
 
 ---
 
@@ -64,62 +64,62 @@
 
 ---
 
-## Chat am I cooked?!
-![Chat am I cooked?!](20260425-011-chat-am-i-cooked/image.jpg)
-**Score:** 2,105 | **Source:** reddit/r/memes
-
----
-
 ## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260425-012-why-are-so-many-men-like-this-based-on-r/image.jpg)
+![Why are so many men like this? Based on ](20260425-011-why-are-so-many-men-like-this-based-on-r/image.jpg)
 **Score:** 2,686 | **Source:** reddit/r/memes
 
 ---
 
-## Same same but different.
-![Same same but different.](20260425-013-same-same-but-different/image.jpg)
-**Score:** 1,688 | **Source:** reddit/r/dankmemes
-
----
-
-## Why not just have chat gpt teach me at that point
-![Why not just have chat gpt teach me at t](20260425-014-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
-**Score:** 502 | **Source:** reddit/r/memes
-
----
-
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-015-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 73 | **Source:** reddit/r/memes
+## Lets go im safe
+![Lets go im safe](20260425-012-lets-go-im-safe/image.jpg)
+**Score:** 1,074 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Such a shame
-![Such a shame](20260425-016-such-a-shame/image.jpg)
+![Such a shame](20260425-013-such-a-shame/image.jpg)
 **Score:** 2,639 | **Source:** reddit/r/memes
 
 ---
 
-## I need a new mechanic…
-![I need a new mechanic…](20260425-017-i-need-a-new-mechanic/image.jpg)
-**Score:** 56 | **Source:** reddit/r/memes
+## Good Ending: Instant Relief / Bad Ending: Shart
+![Good Ending: Instant Relief / Bad Ending](20260425-014-good-ending-instant-relief-bad-ending-sh/image.jpg)
+**Score:** 102 | **Source:** reddit/r/memes
+
+---
+
+## I've got my priorities straight!
+![I've got my priorities straight!](20260425-015-ive-got-my-priorities-straight/image.jpg)
+**Score:** 72 | **Source:** reddit/r/dankmemes
+
+---
+
+## Why not just have chat gpt teach me at that point
+![Why not just have chat gpt teach me at t](20260425-016-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
+**Score:** 502 | **Source:** reddit/r/memes
 
 ---
 
 ## International memes
-![International memes](20260425-018-international-memes/image.jpg)
+![International memes](20260425-017-international-memes/image.jpg)
 **Score:** 122 | **Source:** reddit/r/dankmemes
 
 ---
 
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260425-019-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,129 | **Source:** reddit/r/dankmemes
+## After this, i will remember this everytime i play or see someone Play r.p.s
+![After this, i will remember this everyti](20260425-018-after-this-i-will-remember-this-everytim/image.jpg)
+**Score:** 480 | **Source:** reddit/r/memes
 
 ---
 
-## well....75% of the code is AI written....soo.....
-![well....75% of the code is AI written...](20260425-020-well75-of-the-code-is-ai-writtensoo/image.jpg)
-**Score:** 112 | **Source:** reddit/r/memes
+## Chat am I cooked?!
+![Chat am I cooked?!](20260425-019-chat-am-i-cooked/image.jpg)
+**Score:** 2,105 | **Source:** reddit/r/memes
+
+---
+
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260425-020-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 2,178 | **Source:** reddit/r/memes
 
 ---

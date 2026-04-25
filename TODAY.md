@@ -1,30 +1,30 @@
-# Meme Feed — 2026-04-25 10:21
+# Meme Feed — 2026-04-25 10:31
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## It's funny and not funny because it's true.
-![It's funny and not funny because it's tr](20260425-001-its-funny-and-not-funny-because-its-true/image.jpg)
-**Score:** 3,493 | **Source:** reddit/r/WhitePeopleTwitter
+## They are painting the reflecting pool blue.
+![They are painting the reflecting pool bl](20260425-001-they-are-painting-the-reflecting-pool-bl/image.jpg)
+**Score:** 873 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260425-002-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,414 | **Source:** reddit/r/BlackPeopleTwitter
+## Newsmax host calls out "DESPICABLE" Pete Hegseth
+![Newsmax host calls out "DESPICABLE" Pete](20260425-002-newsmax-host-calls-out-despicable-pete-h/image.jpg)
+**Score:** 245 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## She was a honeypot deployed to provide updates on their progress
-![She was a honeypot deployed to provide u](20260425-003-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
-**Score:** 9,867 | **Source:** reddit/r/BlackPeopleTwitter
+## He's really on top
+![He's really on top](20260425-003-hes-really-on-top/image.jpg)
+**Score:** 1,941 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260425-004-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,136 | **Source:** reddit/r/facepalm
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260425-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,172 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -34,92 +34,92 @@
 
 ---
 
-## 125 per hour in Oregon
-![125 per hour in Oregon](20260425-006-125-per-hour-in-oregon/image.jpg)
-**Score:** 12,638 | **Source:** reddit/r/technicallythetruth
+## My 7 year old would love to know what others think of his drawing! Sus?
+![My 7 year old would love to know what ot](20260425-006-my-7-year-old-would-love-to-know-what-ot/image.jpg)
+**Score:** 1,248 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260425-007-i-cast-stairs-wrong-subreddit/image.jpg)
-**Score:** 2,617 | **Source:** reddit/r/technicallythetruth
+## Johnny SusStar
+![Johnny SusStar](20260425-007-johnny-susstar/image.jpg)
+**Score:** 77 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## SUStainable Copper
-![SUStainable Copper](20260425-008-sustainable-copper/image.jpg)
-**Score:** 257 | **Source:** reddit/r/suspiciouslyspecific
+## How do I get off Mr. Reddit's Wild ride?
+![How do I get off Mr. Reddit's Wild ride?](20260425-008-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
+**Score:** 2,146 | **Source:** reddit/r/memes
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260425-009-futabu-anyone/image.jpg)
-**Score:** 2,291 | **Source:** reddit/r/HolUp
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260425-009-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,491 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260425-010-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 57 | **Source:** reddit/r/HolUp
+## That is the worst
+![That is the worst](20260425-010-that-is-the-worst/image.jpg)
+**Score:** 6,217 | **Source:** reddit/r/dankmemes
+
+---
+
+## After this, i will remember this everytime i play or see someone Play r.p.s
+![After this, i will remember this everyti](20260425-011-after-this-i-will-remember-this-everytim/image.jpg)
+**Score:** 182 | **Source:** reddit/r/memes
+
+---
+
+## Same same but different.
+![Same same but different.](20260425-012-same-same-but-different/image.jpg)
+**Score:** 1,681 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Just British Things
-![Just British Things](20260425-011-just-british-things/image.jpg)
+![Just British Things](20260425-013-just-british-things/image.jpg)
 **Score:** 23,840 | **Source:** reddit/r/memes
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260425-012-lets-go-im-safe/image.jpg)
-**Score:** 1,074 | **Source:** reddit/r/dankmemes
+## Couldn't be me
+![Couldn't be me](20260425-014-couldnt-be-me/image.jpg)
+**Score:** 2,237 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## poisonous animal
-![poisonous animal](20260425-013-poisonous-animal/image.jpg)
+![poisonous animal](20260425-015-poisonous-animal/image.jpg)
 **Score:** 80 | **Source:** reddit/r/dankmemes
 
 ---
 
-## There goes another one
-![There goes another one](20260425-014-there-goes-another-one/image.jpg)
-**Score:** 94 | **Source:** reddit/r/dankmemes
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260425-016-got-to-time-it-just-right-before-the-amb/image.jpg)
+**Score:** 58 | **Source:** reddit/r/dankmemes
+
+---
+
+## They're the same person!
+![They're the same person!](20260425-017-theyre-the-same-person/image.jpg)
+**Score:** 59 | **Source:** reddit/r/dankmemes
+
+---
+
+## Why not just have chat gpt teach me at that point
+![Why not just have chat gpt teach me at t](20260425-018-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
+**Score:** 442 | **Source:** reddit/r/memes
+
+---
+
+## Daredevil Spoilers if you care
+![Daredevil Spoilers if you care](20260425-019-daredevil-spoilers-if-you-care/image.jpg)
+**Score:** 138 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Inescapable
-![Inescapable](20260425-015-inescapable/image.jpg)
+![Inescapable](20260425-020-inescapable/image.jpg)
 **Score:** 109 | **Source:** reddit/r/dankmemes
-
----
-
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260425-016-fatherhood-baaaaad/image.jpg)
-**Score:** 3,131 | **Source:** reddit/r/dankmemes
-
----
-
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260425-017-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 2,242 | **Source:** reddit/r/memes
-
----
-
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-018-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 70 | **Source:** reddit/r/memes
-
----
-
-## The middle class: :(
-![The middle class: :(](20260425-019-the-middle-class/image.jpg)
-**Score:** 67 | **Source:** reddit/r/dankmemes
-
----
-
-## Don't disturb me
-![Don't disturb me](20260425-020-dont-disturb-me/image.jpg)
-**Score:** 1,015 | **Source:** reddit/r/dankmemes
 
 ---

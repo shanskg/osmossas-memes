@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-25 19:40
+# Meme Feed — 2026-04-25 19:51
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Melania pushing aI
-![Melania pushing aI](20260425-001-melania-pushing-ai/image.jpg)
-**Score:** 53 | **Source:** reddit/r/WhitePeopleTwitter
+## They are painting the reflecting pool blue.
+![They are painting the reflecting pool bl](20260425-001-they-are-painting-the-reflecting-pool-bl/image.jpg)
+**Score:** 2,311 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260425-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,080 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260425-003-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,417 | **Source:** reddit/r/BlackPeopleTwitter
+## Leave the whales alone
+![Leave the whales alone](20260425-002-leave-the-whales-alone/image.jpg)
+**Score:** 19,187 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260425-004-south-korean-pilots-were-taking-selfies-/image.jpg)
+![South Korean Pilots Were Taking Selfies ](20260425-003-south-korean-pilots-were-taking-selfies-/image.jpg)
 **Score:** 1,249 | **Source:** reddit/r/facepalm
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260425-005-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,146 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260425-004-well-did-they-accept-or-not/image.jpg)
+**Score:** 832 | **Source:** reddit/r/facepalm
 
 ---
 
-## The detective didn't find it
-![The detective didn't find it](20260425-006-the-detective-didnt-find-it/image.jpg)
-**Score:** 33,779 | **Source:** reddit/r/technicallythetruth
+## I cast stairs... Wrong subReddit
+![I cast stairs... Wrong subReddit](20260425-005-i-cast-stairs-wrong-subreddit/image.jpg)
+**Score:** 2,642 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## 125 per hour in Oregon
-![125 per hour in Oregon](20260425-007-125-per-hour-in-oregon/image.jpg)
-**Score:** 12,636 | **Source:** reddit/r/technicallythetruth
+## i just opened youtube
+![i just opened youtube](20260425-006-i-just-opened-youtube/image.jpg)
+**Score:** 8,971 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Among cells
-![Among cells](20260425-008-among-cells/image.jpg)
-**Score:** 802 | **Source:** reddit/r/suspiciouslyspecific
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260425-007-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 640 | **Source:** reddit/r/HolUp
 
 ---
 
-## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260425-009-brother-what-even-are-these-polls/image.jpg)
-**Score:** 282 | **Source:** reddit/r/oddlyspecific
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260425-008-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,494 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260425-010-futabu-anyone/image.jpg)
-**Score:** 2,303 | **Source:** reddit/r/HolUp
-
----
-
-## poisonous animal
-![poisonous animal](20260425-011-poisonous-animal/image.jpg)
-**Score:** 98 | **Source:** reddit/r/dankmemes
-
----
-
-## Such a shame
-![Such a shame](20260425-012-such-a-shame/image.jpg)
-**Score:** 2,629 | **Source:** reddit/r/memes
-
----
-
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260425-013-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 2,645 | **Source:** reddit/r/memes
-
----
-
-## Why not just have chat gpt teach me at that point
-![Why not just have chat gpt teach me at t](20260425-014-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
-**Score:** 501 | **Source:** reddit/r/memes
-
----
-
-## The middle class: :(
-![The middle class: :(](20260425-015-the-middle-class/image.jpg)
-**Score:** 80 | **Source:** reddit/r/dankmemes
-
----
-
-## I've got my priorities straight!
-![I've got my priorities straight!](20260425-016-ive-got-my-priorities-straight/image.jpg)
-**Score:** 73 | **Source:** reddit/r/dankmemes
+## I need a new mechanic…
+![I need a new mechanic…](20260425-009-i-need-a-new-mechanic/image.jpg)
+**Score:** 106 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-017-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 348 | **Source:** reddit/r/dankmemes
-
----
-
-## Same same but different.
-![Same same but different.](20260425-018-same-same-but-different/image.jpg)
-**Score:** 1,687 | **Source:** reddit/r/dankmemes
-
----
-
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260425-019-even-in-video-games-they-dont-want-you-t/image.jpg)
+![Even in video games, they don't want you](20260425-010-even-in-video-games-they-dont-want-you-t/image.jpg)
 **Score:** 77 | **Source:** reddit/r/memes
 
 ---
 
-## How do I get off Mr. Reddit's Wild ride?
-![How do I get off Mr. Reddit's Wild ride?](20260425-020-how-do-i-get-off-mr-reddits-wild-ride/image.jpg)
-**Score:** 2,172 | **Source:** reddit/r/memes
+## That is the worst
+![That is the worst](20260425-011-that-is-the-worst/image.jpg)
+**Score:** 6,235 | **Source:** reddit/r/dankmemes
+
+---
+
+## poisonous animal
+![poisonous animal](20260425-012-poisonous-animal/image.jpg)
+**Score:** 98 | **Source:** reddit/r/dankmemes
+
+---
+
+## International memes
+![International memes](20260425-013-international-memes/image.jpg)
+**Score:** 125 | **Source:** reddit/r/dankmemes
+
+---
+
+## Such a shame
+![Such a shame](20260425-014-such-a-shame/image.jpg)
+**Score:** 2,629 | **Source:** reddit/r/memes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260425-015-fatherhood-baaaaad/image.jpg)
+**Score:** 3,141 | **Source:** reddit/r/dankmemes
+
+---
+
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260425-016-got-to-time-it-just-right-before-the-amb/image.jpg)
+**Score:** 57 | **Source:** reddit/r/dankmemes
+
+---
+
+## Why not just have chat gpt teach me at that point
+![Why not just have chat gpt teach me at t](20260425-017-why-not-just-have-chat-gpt-teach-me-at-t/image.jpg)
+**Score:** 501 | **Source:** reddit/r/memes
+
+---
+
+## They're the same person!
+![They're the same person!](20260425-018-theyre-the-same-person/image.jpg)
+**Score:** 62 | **Source:** reddit/r/dankmemes
+
+---
+
+## Couldn't be me
+![Couldn't be me](20260425-019-couldnt-be-me/image.jpg)
+**Score:** 2,340 | **Source:** reddit/r/dankmemes
+
+---
+
+## I've got my priorities straight!
+![I've got my priorities straight!](20260425-020-ive-got-my-priorities-straight/image.jpg)
+**Score:** 73 | **Source:** reddit/r/dankmemes
 
 ---

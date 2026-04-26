@@ -4,93 +4,93 @@
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260426-001-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,073 | **Source:** reddit/r/BlackPeopleTwitter
+## ICE has thoroughly investigated the deliveries and found that they should have c
+![ICE has thoroughly investigated the deli](20260426-001-ice-has-thoroughly-investigated-the-deli/image.jpg)
+**Score:** 223 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260426-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 5,104 | **Source:** reddit/r/BlackPeopleTwitter
+## just give it two weeks
+![just give it two weeks](20260426-002-just-give-it-two-weeks/image.jpg)
+**Score:** 50 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260426-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,174 | **Source:** reddit/r/facepalm
 
 ---
 
 ## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260426-003-south-korean-pilots-were-taking-selfies-/image.jpg)
+![South Korean Pilots Were Taking Selfies ](20260426-004-south-korean-pilots-were-taking-selfies-/image.jpg)
 **Score:** 1,475 | **Source:** reddit/r/facepalm
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260426-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,369 | **Source:** reddit/r/facepalm
+## i just opened youtube
+![i just opened youtube](20260426-005-i-just-opened-youtube/image.jpg)
+**Score:** 8,974 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Some inflation is good
-![Some inflation is good](20260426-005-some-inflation-is-good/image.jpg)
-**Score:** 15,683 | **Source:** reddit/r/technicallythetruth
+## It's Sabotage
+![It's Sabotage](20260426-006-its-sabotage/image.jpg)
+**Score:** 79 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Don't do that
-![Don't do that](20260426-006-dont-do-that/image.jpg)
-**Score:** 340 | **Source:** reddit/r/oddlyspecific
-
----
-
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260426-007-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 419 | **Source:** reddit/r/oddlyspecific
-
----
-
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260426-008-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 643 | **Source:** reddit/r/HolUp
-
----
-
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260426-009-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 78 | **Source:** reddit/r/HolUp
-
----
-
-## International memes
-![International memes](20260426-010-international-memes/image.jpg)
-**Score:** 141 | **Source:** reddit/r/dankmemes
-
----
-
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260426-011-fatherhood-baaaaad/image.jpg)
-**Score:** 3,158 | **Source:** reddit/r/dankmemes
+## Who is your fav Cambodian gas station explosion survivor that is pregnant?
+![Who is your fav Cambodian gas station ex](20260426-007-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
+**Score:** 1,596 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## well....75% of the code is AI written....soo.....
-![well....75% of the code is AI written...](20260426-012-well75-of-the-code-is-ai-writtensoo/image.jpg)
+![well....75% of the code is AI written...](20260426-008-well75-of-the-code-is-ai-writtensoo/image.jpg)
 **Score:** 302 | **Source:** reddit/r/memes
 
 ---
 
+## Average CarX online interaction.
+![Average CarX online interaction.](20260426-009-average-carx-online-interaction/image.jpg)
+**Score:** 66 | **Source:** reddit/r/dankmemes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260426-010-fatherhood-baaaaad/image.jpg)
+**Score:** 3,158 | **Source:** reddit/r/dankmemes
+
+---
+
 ## Can't Unsee It
-![Can't Unsee It](20260426-013-cant-unsee-it/image.jpg)
+![Can't Unsee It](20260426-011-cant-unsee-it/image.jpg)
 **Score:** 93 | **Source:** reddit/r/dankmemes
 
 ---
 
+## Same same but different.
+![Same same but different.](20260426-012-same-same-but-different/image.jpg)
+**Score:** 1,694 | **Source:** reddit/r/dankmemes
+
+---
+
 ## I need a new mechanic…
-![I need a new mechanic…](20260426-014-i-need-a-new-mechanic/image.jpg)
+![I need a new mechanic…](20260426-013-i-need-a-new-mechanic/image.jpg)
 **Score:** 177 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Same same but different.
-![Same same but different.](20260426-015-same-same-but-different/image.jpg)
-**Score:** 1,694 | **Source:** reddit/r/dankmemes
+## This is the way- the eyes splitter
+![This is the way- the eyes splitter](20260426-014-this-is-the-way-the-eyes-splitter/image.jpg)
+**Score:** 260 | **Source:** reddit/r/memes
+
+---
+
+## International memes
+![International memes](20260426-015-international-memes/image.jpg)
+**Score:** 141 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -100,26 +100,26 @@
 
 ---
 
-## Average CarX online interaction.
-![Average CarX online interaction.](20260426-017-average-carx-online-interaction/image.jpg)
-**Score:** 66 | **Source:** reddit/r/dankmemes
-
----
-
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260426-018-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 260 | **Source:** reddit/r/memes
-
----
-
-## Not all dogs
-![Not all dogs](20260426-019-not-all-dogs/image.jpg)
-**Score:** 61 | **Source:** reddit/r/dankmemes
-
----
-
 ## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260426-020-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 3,516 | **Source:** reddit/r/dankmemes
+![POV: You posted your art online vs. You'](20260426-017-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,509 | **Source:** reddit/r/dankmemes
+
+---
+
+## poisonous animal
+![poisonous animal](20260426-018-poisonous-animal/image.jpg)
+**Score:** 129 | **Source:** reddit/r/dankmemes
+
+---
+
+## The middle class: :(
+![The middle class: :(](20260426-019-the-middle-class/image.jpg)
+**Score:** 91 | **Source:** reddit/r/dankmemes
+
+---
+
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260426-020-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 437 | **Source:** reddit/r/dankmemes
 
 ---

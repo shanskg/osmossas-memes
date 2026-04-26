@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-27 03:21
+# Meme Feed — 2026-04-27 03:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260427-001-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,410 | **Source:** reddit/r/BlackPeopleTwitter
+## She won't, but still, the leopards are eating each other.
+![She won't, but still, the leopards are e](20260427-001-she-wont-but-still-the-leopards-are-eati/image.jpg)
+**Score:** 2,814 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260427-002-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,141 | **Source:** reddit/r/facepalm
+## He's really on top
+![He's really on top](20260427-002-hes-really-on-top/image.jpg)
+**Score:** 1,940 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260427-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,369 | **Source:** reddit/r/facepalm
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260427-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,183 | **Source:** reddit/r/facepalm
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260427-004-enjoy-your-hot-water/image.jpg)
-**Score:** 971 | **Source:** reddit/r/technicallythetruth
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260427-004-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 1,634 | **Source:** reddit/r/facepalm
 
 ---
 
-## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
-![It's anthropomorphism because nature has](20260427-005-its-anthropomorphism-because-nature-has-/image.jpg)
-**Score:** 127 | **Source:** reddit/r/technicallythetruth
+## i just opened youtube
+![i just opened youtube](20260427-005-i-just-opened-youtube/image.jpg)
+**Score:** 8,973 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Among us irl 🤯
-![Among us irl 🤯](20260427-006-among-us-irl/image.jpg)
-**Score:** 237 | **Source:** reddit/r/suspiciouslyspecific
+## Some inflation is good
+![Some inflation is good](20260427-006-some-inflation-is-good/image.jpg)
+**Score:** 15,687 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260427-007-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 263 | **Source:** reddit/r/oddlyspecific
+## Rest in piss
+![Rest in piss](20260427-007-rest-in-piss/image.jpg)
+**Score:** 404 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260427-008-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,328 | **Source:** reddit/r/HolUp
+## Who is your fav Cambodian gas station explosion survivor that is pregnant?
+![Who is your fav Cambodian gas station ex](20260427-008-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
+**Score:** 1,609 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260427-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 646 | **Source:** reddit/r/HolUp
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260427-009-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 426 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Not all dogs
-![Not all dogs](20260427-010-not-all-dogs/image.jpg)
-**Score:** 65 | **Source:** reddit/r/dankmemes
+## Futabu anyone ???
+![Futabu anyone ???](20260427-010-futabu-anyone/image.jpg)
+**Score:** 2,345 | **Source:** reddit/r/HolUp
 
 ---
 
-## They're the same person!
-![They're the same person!](20260427-011-theyre-the-same-person/image.jpg)
-**Score:** 70 | **Source:** reddit/r/dankmemes
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260427-011-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 84 | **Source:** reddit/r/HolUp
+
+---
+
+## Sometimes it just comes out :(
+![Sometimes it just comes out :(](20260427-012-sometimes-it-just-comes-out/image.jpg)
+**Score:** 77 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## poisonous animal
-![poisonous animal](20260427-012-poisonous-animal/image.jpg)
+![poisonous animal](20260427-013-poisonous-animal/image.jpg)
 **Score:** 150 | **Source:** reddit/r/dankmemes
 
 ---
 
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260427-013-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 3,521 | **Source:** reddit/r/dankmemes
-
----
-
-## Being employed sucks sometimes
-![Being employed sucks sometimes](20260427-014-being-employed-sucks-sometimes/image.jpg)
-**Score:** 1,658 | **Source:** reddit/r/memes
-
----
-
-## Did you see Piers Morgan wreck Russell Brand last night?
-![Did you see Piers Morgan wreck Russell B](20260427-015-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
-**Score:** 482 | **Source:** reddit/r/memes
+## They're the same person!
+![They're the same person!](20260427-014-theyre-the-same-person/image.jpg)
+**Score:** 70 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## I cannot emphasise enough how much I mean the dog and not me
-![I cannot emphasise enough how much I mea](20260427-016-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
+![I cannot emphasise enough how much I mea](20260427-015-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
 **Score:** 154 | **Source:** reddit/r/memes
 
 ---
 
-## Lol my homework
-![Lol my homework](20260427-017-lol-my-homework/image.jpg)
-**Score:** 72 | **Source:** reddit/r/memes
-
----
-
 ## Can't Unsee It
-![Can't Unsee It](20260427-018-cant-unsee-it/image.jpg)
+![Can't Unsee It](20260427-016-cant-unsee-it/image.jpg)
 **Score:** 104 | **Source:** reddit/r/dankmemes
 
 ---
 
-## International memes
-![International memes](20260427-019-international-memes/image.jpg)
-**Score:** 161 | **Source:** reddit/r/dankmemes
+## It was funny
+![It was funny](20260427-017-it-was-funny/image.jpg)
+**Score:** 340 | **Source:** reddit/r/dankmemes
 
 ---
 
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260427-020-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 390 | **Source:** reddit/r/memes
+## And do it as slow as possible
+![And do it as slow as possible](20260427-018-and-do-it-as-slow-as-possible/image.jpg)
+**Score:** 254 | **Source:** reddit/r/memes
+
+---
+
+## Did you see Piers Morgan wreck Russell Brand last night?
+![Did you see Piers Morgan wreck Russell B](20260427-019-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
+**Score:** 482 | **Source:** reddit/r/memes
+
+---
+
+## International memes
+![International memes](20260427-020-international-memes/image.jpg)
+**Score:** 161 | **Source:** reddit/r/dankmemes
 
 ---

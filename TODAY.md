@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-26 08:00
+# Meme Feed — 2026-04-26 08:10
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## The creative director of INFOWARS has a message for Alex Jones
-![The creative director of INFOWARS has a ](20260426-001-the-creative-director-of-infowars-has-a-/image.jpg)
-**Score:** 492 | **Source:** reddit/r/WhitePeopleTwitter
+## america is being run by first world criminals
+![america is being run by first world crim](20260426-001-america-is-being-run-by-first-world-crim/image.jpg)
+**Score:** 2,569 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## She was a honeypot deployed to provide updates on their progress
-![She was a honeypot deployed to provide u](20260426-002-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
-**Score:** 12,412 | **Source:** reddit/r/BlackPeopleTwitter
+## He's really on top
+![He's really on top](20260426-002-hes-really-on-top/image.jpg)
+**Score:** 1,946 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Word association Schoolboy Q
-![Word association Schoolboy Q](20260426-003-word-association-schoolboy-q/image.jpg)
-**Score:** 1,436 | **Source:** reddit/r/BlackPeopleTwitter
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260426-003-well-did-they-accept-or-not/image.jpg)
+**Score:** 831 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -28,75 +28,75 @@
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260426-005-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 1,401 | **Source:** reddit/r/facepalm
+## 125 per hour in Oregon
+![125 per hour in Oregon](20260426-005-125-per-hour-in-oregon/image.jpg)
+**Score:** 12,638 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Sus adventures
-![Sus adventures](20260426-006-sus-adventures/image.jpg)
-**Score:** 135 | **Source:** reddit/r/suspiciouslyspecific
+## He did NOT dodge a bullet
+![He did NOT dodge a bullet](20260426-006-he-did-not-dodge-a-bullet/image.jpg)
+**Score:** 42,255 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260426-007-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 416 | **Source:** reddit/r/oddlyspecific
+## imposter syndrome (among us disease)
+![imposter syndrome (among us disease)](20260426-007-imposter-syndrome-among-us-disease/image.jpg)
+**Score:** 2,244 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Strategy: 100
-![Strategy: 100](20260426-008-strategy-100/image.jpg)
-**Score:** 94 | **Source:** reddit/r/dankmemes
+## Dippers shadow in this episode of Gravity Falls
+![Dippers shadow in this episode of Gravit](20260426-008-dippers-shadow-in-this-episode-of-gravit/image.jpg)
+**Score:** 1,088 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260426-009-fatherhood-baaaaad/image.jpg)
-**Score:** 3,147 | **Source:** reddit/r/dankmemes
+## Don't do that
+![Don't do that](20260426-009-dont-do-that/image.jpg)
+**Score:** 339 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## poisonous animal
-![poisonous animal](20260426-010-poisonous-animal/image.jpg)
-**Score:** 120 | **Source:** reddit/r/dankmemes
-
----
-
-## Can't Unsee It
-![Can't Unsee It](20260426-011-cant-unsee-it/image.jpg)
-**Score:** 82 | **Source:** reddit/r/dankmemes
-
----
-
-## Couldn't be me
-![Couldn't be me](20260426-012-couldnt-be-me/image.jpg)
-**Score:** 2,397 | **Source:** reddit/r/dankmemes
-
----
-
-## POV: you’re on vacation
-![POV: you’re on vacation](20260426-013-pov-youre-on-vacation/image.jpg)
-**Score:** 11,230 | **Source:** reddit/r/memes
-
----
-
-## yh she said this 💀
-![yh she said this 💀](20260426-014-yh-she-said-this/image.jpg)
-**Score:** 95 | **Source:** reddit/r/memes
+## AI is everywhere
+![AI is everywhere](20260426-010-ai-is-everywhere/image.jpg)
+**Score:** 1,003 | **Source:** reddit/r/HolUp
 
 ---
 
 ## They're the same person!
-![They're the same person!](20260426-015-theyre-the-same-person/image.jpg)
+![They're the same person!](20260426-011-theyre-the-same-person/image.jpg)
 **Score:** 64 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260426-016-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 58 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260426-012-that-is-the-worst/image.jpg)
+**Score:** 6,249 | **Source:** reddit/r/dankmemes
+
+---
+
+## Can't Unsee It
+![Can't Unsee It](20260426-013-cant-unsee-it/image.jpg)
+**Score:** 82 | **Source:** reddit/r/dankmemes
+
+---
+
+## food waste
+![food waste](20260426-014-food-waste/image.jpg)
+**Score:** 417 | **Source:** reddit/r/dankmemes
+
+---
+
+## This is the way- the eyes splitter
+![This is the way- the eyes splitter](20260426-015-this-is-the-way-the-eyes-splitter/image.jpg)
+**Score:** 163 | **Source:** reddit/r/memes
+
+---
+
+## Why are so many men like this? Based on real facts
+![Why are so many men like this? Based on ](20260426-016-why-are-so-many-men-like-this-based-on-r/image.jpg)
+**Score:** 2,761 | **Source:** reddit/r/memes
 
 ---
 
@@ -106,20 +106,20 @@
 
 ---
 
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260426-018-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 2,761 | **Source:** reddit/r/memes
+## Lets go im safe
+![Lets go im safe](20260426-018-lets-go-im-safe/image.jpg)
+**Score:** 1,081 | **Source:** reddit/r/dankmemes
 
 ---
 
-## After this, i will remember this everytime i play or see someone Play r.p.s
-![After this, i will remember this everyti](20260426-019-after-this-i-will-remember-this-everytim/image.jpg)
-**Score:** 549 | **Source:** reddit/r/memes
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260426-019-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 422 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Same same but different.
-![Same same but different.](20260426-020-same-same-but-different/image.jpg)
-**Score:** 1,693 | **Source:** reddit/r/dankmemes
+## Strategy: 100
+![Strategy: 100](20260426-020-strategy-100/image.jpg)
+**Score:** 94 | **Source:** reddit/r/dankmemes
 
 ---

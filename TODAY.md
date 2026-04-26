@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-27 06:10
+# Meme Feed — 2026-04-27 06:21
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## It was a beautiful sight when it happened too
-![It was a beautiful sight when it happene](20260427-001-it-was-a-beautiful-sight-when-it-happene/image.jpg)
-**Score:** 88 | **Source:** reddit/r/WhitePeopleTwitter
+## The world leads and the US can't even follow anymore.
+![The world leads and the US can't even fo](20260427-001-the-world-leads-and-the-us-cant-even-fol/image.jpg)
+**Score:** 23,209 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## "I'm a very cost-conscious person' says the man who bankrupted casinos and wants
-!["I'm a very cost-conscious person' says ](20260427-002-im-a-very-cost-conscious-person-says-the/image.jpg)
-**Score:** 738 | **Source:** reddit/r/WhitePeopleTwitter
+## They are going to continue the show
+![They are going to continue the show](20260427-002-they-are-going-to-continue-the-show/image.jpg)
+**Score:** 84 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260427-003-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,418 | **Source:** reddit/r/BlackPeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260427-003-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,777 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -28,98 +28,98 @@
 
 ---
 
-## intelligence is not dangerous
-![intelligence is not dangerous](20260427-005-intelligence-is-not-dangerous/image.jpg)
-**Score:** 49,612 | **Source:** reddit/r/technicallythetruth
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260427-005-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 1,664 | **Source:** reddit/r/facepalm
 
 ---
 
-## My 7 year old would love to know what others think of his drawing! Sus?
-![My 7 year old would love to know what ot](20260427-006-my-7-year-old-would-love-to-know-what-ot/image.jpg)
-**Score:** 1,257 | **Source:** reddit/r/suspiciouslyspecific
+## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
+![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260427-006-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
+**Score:** 11,648 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260427-007-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 418 | **Source:** reddit/r/oddlyspecific
+## tell me if this is wrong?
+![tell me if this is wrong?](20260427-007-tell-me-if-this-is-wrong/image.jpg)
+**Score:** 62 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Great.  Thanks for creating these board name ideas for me, Pinterest.
-![Great.  Thanks for creating these board ](20260427-008-great-thanks-for-creating-these-board-na/image.jpg)
-**Score:** 69 | **Source:** reddit/r/HolUp
+## Among cells
+![Among cells](20260427-008-among-cells/image.jpg)
+**Score:** 796 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Lol my homework
-![Lol my homework](20260427-009-lol-my-homework/image.jpg)
-**Score:** 90 | **Source:** reddit/r/memes
+## Who is your fav Cambodian gas station explosion survivor that is pregnant?
+![Who is your fav Cambodian gas station ex](20260427-009-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
+**Score:** 1,615 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Couldn't be me
-![Couldn't be me](20260427-010-couldnt-be-me/image.jpg)
-**Score:** 2,422 | **Source:** reddit/r/dankmemes
+## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
+![If I go to a cookout and bite a hot dog ](20260427-010-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
+**Score:** 263 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## International memes
-![International memes](20260427-011-international-memes/image.jpg)
-**Score:** 166 | **Source:** reddit/r/dankmemes
+## Darker and darker
+![Darker and darker](20260427-011-darker-and-darker/image.jpg)
+**Score:** 286 | **Source:** reddit/r/HolUp
 
 ---
 
-## Being employed sucks sometimes
-![Being employed sucks sometimes](20260427-012-being-employed-sucks-sometimes/image.jpg)
-**Score:** 2,820 | **Source:** reddit/r/memes
-
----
-
-## And do it as slow as possible
-![And do it as slow as possible](20260427-013-and-do-it-as-slow-as-possible/image.jpg)
-**Score:** 301 | **Source:** reddit/r/memes
-
----
-
-## Inescapable
-![Inescapable](20260427-014-inescapable/image.jpg)
-**Score:** 132 | **Source:** reddit/r/dankmemes
-
----
-
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260427-015-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 397 | **Source:** reddit/r/memes
-
----
-
-## poisonous animal
-![poisonous animal](20260427-016-poisonous-animal/image.jpg)
-**Score:** 148 | **Source:** reddit/r/dankmemes
+## Strategy: 100
+![Strategy: 100](20260427-012-strategy-100/image.jpg)
+**Score:** 141 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## bruh really
-![bruh really](20260427-017-bruh-really/image.jpg)
-**Score:** 884 | **Source:** reddit/r/memes
-
----
-
-## food waste
-![food waste](20260427-018-food-waste/image.jpg)
-**Score:** 1,326 | **Source:** reddit/r/dankmemes
+![bruh really](20260427-013-bruh-really/image.jpg)
+**Score:** 1,966 | **Source:** reddit/r/memes
 
 ---
 
 ## I cannot emphasise enough how much I mean the dog and not me
-![I cannot emphasise enough how much I mea](20260427-019-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
-**Score:** 277 | **Source:** reddit/r/memes
+![I cannot emphasise enough how much I mea](20260427-014-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
+**Score:** 354 | **Source:** reddit/r/memes
+
+---
+
+## Average CarX online interaction.
+![Average CarX online interaction.](20260427-015-average-carx-online-interaction/image.jpg)
+**Score:** 67 | **Source:** reddit/r/dankmemes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260427-016-fatherhood-baaaaad/image.jpg)
+**Score:** 3,167 | **Source:** reddit/r/dankmemes
+
+---
+
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260427-017-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 3,440 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## That is the worst
-![That is the worst](20260427-020-that-is-the-worst/image.jpg)
-**Score:** 6,272 | **Source:** reddit/r/dankmemes
+![That is the worst](20260427-018-that-is-the-worst/image.jpg)
+**Score:** 6,275 | **Source:** reddit/r/dankmemes
+
+---
+
+## I need a new mechanic…
+![I need a new mechanic…](20260427-019-i-need-a-new-mechanic/image.jpg)
+**Score:** 194 | **Source:** reddit/r/dankmemes
+
+---
+
+## Same same but different.
+![Same same but different.](20260427-020-same-same-but-different/image.jpg)
+**Score:** 1,714 | **Source:** reddit/r/dankmemes
 
 ---

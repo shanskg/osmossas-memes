@@ -1,114 +1,114 @@
-# Meme Feed — 2026-04-26 11:11
+# Meme Feed — 2026-04-26 11:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## THAT IS NOT HOW MATH AND PERCENTAGES WORK YOU BRAINDEAD DONKEY
-![THAT IS NOT HOW MATH AND PERCENTAGES WOR](20260426-001-that-is-not-how-math-and-percentages-wor/image.jpg)
-**Score:** 7,831 | **Source:** reddit/r/WhitePeopleTwitter
+## The press has three completely different stories
+![The press has three completely different](20260426-001-the-press-has-three-completely-different/image.jpg)
+**Score:** 268 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## "I'm a very cost-conscious person' says the man who bankrupted casinos and wants
+!["I'm a very cost-conscious person' says ](20260426-002-im-a-very-cost-conscious-person-says-the/image.jpg)
+**Score:** 634 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## She was a honeypot deployed to provide updates on their progress
+![She was a honeypot deployed to provide u](20260426-003-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
+**Score:** 12,496 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260426-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
+![Keep in mind when Across the Spiderverse](20260426-004-keep-in-mind-when-across-the-spiderverse/image.jpg)
 **Score:** 6,414 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260426-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260426-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,173 | **Source:** reddit/r/facepalm
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260426-004-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 504 | **Source:** reddit/r/technicallythetruth
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260426-006-well-did-they-accept-or-not/image.jpg)
+**Score:** 837 | **Source:** reddit/r/facepalm
 
 ---
 
-## Guess what game this is (hint it has among us in the name)
-![Guess what game this is (hint it has amo](20260426-005-guess-what-game-this-is-hint-it-has-amon/image.jpg)
-**Score:** 158 | **Source:** reddit/r/suspiciouslyspecific
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260426-007-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,409 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260426-006-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 265 | **Source:** reddit/r/oddlyspecific
+## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
+![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260426-008-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
+**Score:** 1,471 | **Source:** reddit/r/technicallythetruth
+
+---
+
+## Among us irl 🤯
+![Among us irl 🤯](20260426-009-among-us-irl/image.jpg)
+**Score:** 233 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## Johnny SusStar
+![Johnny SusStar](20260426-010-johnny-susstar/image.jpg)
+**Score:** 74 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
 ## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260426-007-17-strong-opinions-no-more-no-less/image.jpg)
+![17 strong opinions. No more, no less.](20260426-011-17-strong-opinions-no-more-no-less/image.jpg)
 **Score:** 417 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## International memes
-![International memes](20260426-008-international-memes/image.jpg)
-**Score:** 141 | **Source:** reddit/r/dankmemes
+## Futabu anyone ???
+![Futabu anyone ???](20260426-012-futabu-anyone/image.jpg)
+**Score:** 2,329 | **Source:** reddit/r/HolUp
+
+---
+
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260426-013-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 644 | **Source:** reddit/r/HolUp
+
+---
+
+## The middle class: :(
+![The middle class: :(](20260426-014-the-middle-class/image.jpg)
+**Score:** 89 | **Source:** reddit/r/dankmemes
+
+---
+
+## Inescapable
+![Inescapable](20260426-015-inescapable/image.jpg)
+**Score:** 125 | **Source:** reddit/r/dankmemes
+
+---
+
+## Strategy: 100
+![Strategy: 100](20260426-016-strategy-100/image.jpg)
+**Score:** 118 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260426-009-this-is-the-way-the-eyes-splitter/image.jpg)
+![This is the way- the eyes splitter](20260426-017-this-is-the-way-the-eyes-splitter/image.jpg)
 **Score:** 222 | **Source:** reddit/r/memes
 
 ---
 
-## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260426-010-why-are-so-many-men-like-this-based-on-r/image.jpg)
-**Score:** 2,772 | **Source:** reddit/r/memes
-
----
-
 ## every tiny thing looks suspicious at 3am
-![every tiny thing looks suspicious at 3am](20260426-011-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
+![every tiny thing looks suspicious at 3am](20260426-018-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
 **Score:** 103 | **Source:** reddit/r/memes
-
----
-
-## Couldn't be me
-![Couldn't be me](20260426-012-couldnt-be-me/image.jpg)
-**Score:** 2,403 | **Source:** reddit/r/dankmemes
-
----
-
-## Teachers be like
-![Teachers be like](20260426-013-teachers-be-like/image.jpg)
-**Score:** 78 | **Source:** reddit/r/memes
-
----
-
-## That is the worst
-![That is the worst](20260426-014-that-is-the-worst/image.jpg)
-**Score:** 6,259 | **Source:** reddit/r/dankmemes
-
----
-
-## I need a new mechanic…
-![I need a new mechanic…](20260426-015-i-need-a-new-mechanic/image.jpg)
-**Score:** 171 | **Source:** reddit/r/dankmemes
-
----
-
-## They're the same person!
-![They're the same person!](20260426-016-theyre-the-same-person/image.jpg)
-**Score:** 64 | **Source:** reddit/r/dankmemes
-
----
-
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260426-017-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 56 | **Source:** reddit/r/dankmemes
-
----
-
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260426-018-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 3,507 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -118,8 +118,8 @@
 
 ---
 
-## well....75% of the code is AI written....soo.....
-![well....75% of the code is AI written...](20260426-020-well75-of-the-code-is-ai-writtensoo/image.jpg)
-**Score:** 296 | **Source:** reddit/r/memes
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260426-020-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 3,387 | **Source:** reddit/r/dankmemes
 
 ---

@@ -1,84 +1,84 @@
-# Meme Feed — 2026-04-27 05:01
+# Meme Feed — 2026-04-27 05:10
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## None of them were in any actual danger
-![None of them were in any actual danger](20260427-001-none-of-them-were-in-any-actual-danger/image.jpg)
-**Score:** 69 | **Source:** reddit/r/WhitePeopleTwitter
+## It was a beautiful sight when it happened too
+![It was a beautiful sight when it happene](20260427-001-it-was-a-beautiful-sight-when-it-happene/image.jpg)
+**Score:** 88 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260427-002-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,425 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260427-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,408 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260427-003-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 5,152 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260427-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,369 | **Source:** reddit/r/facepalm
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260427-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,074 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260427-005-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 1,634 | **Source:** reddit/r/facepalm
+![South Korean Pilots Were Taking Selfies ](20260427-004-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 1,664 | **Source:** reddit/r/facepalm
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260427-006-i-just-opened-youtube/image.jpg)
-**Score:** 8,973 | **Source:** reddit/r/technicallythetruth
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260427-005-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,145 | **Source:** reddit/r/facepalm
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260427-007-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 502 | **Source:** reddit/r/technicallythetruth
+## He didn't sound like much of anything in there
+![He didn't sound like much of anything in](20260427-006-he-didnt-sound-like-much-of-anything-in-/image.jpg)
+**Score:** 1,834 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Among Us Meme
-![Among Us Meme](20260427-008-among-us-meme/image.jpg)
-**Score:** 83 | **Source:** reddit/r/suspiciouslyspecific
+## This surely must be a major loss for Glitch Productions...
+![This surely must be a major loss for Gli](20260427-007-this-surely-must-be-a-major-loss-for-gli/image.jpg)
+**Score:** 95 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260427-009-an-augmented-reality-sandbox/image.jpg)
-**Score:** 601 | **Source:** reddit/r/HolUp
+## My 7 year old would love to know what others think of his drawing! Sus?
+![My 7 year old would love to know what ot](20260427-008-my-7-year-old-would-love-to-know-what-ot/image.jpg)
+**Score:** 1,257 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## Darker and darker
+![Darker and darker](20260427-009-darker-and-darker/image.jpg)
+**Score:** 284 | **Source:** reddit/r/HolUp
+
+---
+
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260427-010-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 439 | **Source:** reddit/r/dankmemes
+
+---
+
+## Same same but different.
+![Same same but different.](20260427-011-same-same-but-different/image.jpg)
+**Score:** 1,711 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260427-010-fatherhood-baaaaad/image.jpg)
+!["Fatherhood baaaaad!!!"](20260427-012-fatherhood-baaaaad/image.jpg)
 **Score:** 3,161 | **Source:** reddit/r/dankmemes
 
 ---
 
-## The middle class: :(
-![The middle class: :(](20260427-011-the-middle-class/image.jpg)
-**Score:** 96 | **Source:** reddit/r/dankmemes
-
----
-
-## International memes
-![International memes](20260427-012-international-memes/image.jpg)
-**Score:** 166 | **Source:** reddit/r/dankmemes
-
----
-
-## I need a new mechanic…
-![I need a new mechanic…](20260427-013-i-need-a-new-mechanic/image.jpg)
-**Score:** 186 | **Source:** reddit/r/dankmemes
+## I cannot emphasise enough how much I mean the dog and not me
+![I cannot emphasise enough how much I mea](20260427-013-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
+**Score:** 277 | **Source:** reddit/r/memes
 
 ---
 
@@ -88,38 +88,38 @@
 
 ---
 
-## It was funny
-![It was funny](20260427-015-it-was-funny/image.jpg)
-**Score:** 2,223 | **Source:** reddit/r/dankmemes
+## Sometimes it just comes out :(
+![Sometimes it just comes out :(](20260427-015-sometimes-it-just-comes-out/image.jpg)
+**Score:** 84 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Did you see Piers Morgan wreck Russell Brand last night?
-![Did you see Piers Morgan wreck Russell B](20260427-016-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
-**Score:** 586 | **Source:** reddit/r/memes
+## International memes
+![International memes](20260427-016-international-memes/image.jpg)
+**Score:** 166 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Same same but different.
-![Same same but different.](20260427-017-same-same-but-different/image.jpg)
-**Score:** 1,711 | **Source:** reddit/r/dankmemes
+## food waste
+![food waste](20260427-017-food-waste/image.jpg)
+**Score:** 1,326 | **Source:** reddit/r/dankmemes
 
 ---
 
-## That is the worst
-![That is the worst](20260427-018-that-is-the-worst/image.jpg)
-**Score:** 6,272 | **Source:** reddit/r/dankmemes
+## The middle class: :(
+![The middle class: :(](20260427-018-the-middle-class/image.jpg)
+**Score:** 96 | **Source:** reddit/r/dankmemes
 
 ---
 
-## poisonous animal
-![poisonous animal](20260427-019-poisonous-animal/image.jpg)
-**Score:** 148 | **Source:** reddit/r/dankmemes
+## Strategy: 100
+![Strategy: 100](20260427-019-strategy-100/image.jpg)
+**Score:** 141 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Inescapable
-![Inescapable](20260427-020-inescapable/image.jpg)
-**Score:** 132 | **Source:** reddit/r/dankmemes
+## every tiny thing looks suspicious at 3am
+![every tiny thing looks suspicious at 3am](20260427-020-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
+**Score:** 251 | **Source:** reddit/r/memes
 
 ---

@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-26 13:11
+# Meme Feed — 2026-04-26 13:21
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## They are going to continue the show
-![They are going to continue the show](20260426-001-they-are-going-to-continue-the-show/image.jpg)
-**Score:** 50 | **Source:** reddit/r/WhitePeopleTwitter
-
----
-
-## The creative director of INFOWARS has a message for Alex Jones
-![The creative director of INFOWARS has a ](20260426-002-the-creative-director-of-infowars-has-a-/image.jpg)
-**Score:** 495 | **Source:** reddit/r/WhitePeopleTwitter
+## They still won't release the Epstein Files
+![They still won't release the Epstein Fil](20260426-001-they-still-wont-release-the-epstein-file/image.jpg)
+**Score:** 142 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
 ## This a celly, that's a tool
-![This a celly, that's a tool](20260426-003-this-a-celly-thats-a-tool/image.jpg)
+![This a celly, that's a tool](20260426-002-this-a-celly-thats-a-tool/image.jpg)
 **Score:** 5,750 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260426-004-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 5,096 | **Source:** reddit/r/BlackPeopleTwitter
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260426-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,367 | **Source:** reddit/r/facepalm
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260426-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,175 | **Source:** reddit/r/facepalm
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260426-004-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 1,456 | **Source:** reddit/r/facepalm
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260426-006-well-did-they-accept-or-not/image.jpg)
-**Score:** 830 | **Source:** reddit/r/facepalm
+## He did NOT dodge a bullet
+![He did NOT dodge a bullet](20260426-005-he-did-not-dodge-a-bullet/image.jpg)
+**Score:** 42,252 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
-![Oh Oracle, How Will I Die? Surrounded By](20260426-007-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
-**Score:** 3,935 | **Source:** reddit/r/technicallythetruth
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260426-006-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,411 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## SUStainable Copper
-![SUStainable Copper](20260426-008-sustainable-copper/image.jpg)
-**Score:** 260 | **Source:** reddit/r/suspiciouslyspecific
+## imposter syndrome (among us disease)
+![imposter syndrome (among us disease)](20260426-007-imposter-syndrome-among-us-disease/image.jpg)
+**Score:** 2,245 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260426-009-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 77 | **Source:** reddit/r/oddlyspecific
+## Darker and darker
+![Darker and darker](20260426-008-darker-and-darker/image.jpg)
+**Score:** 288 | **Source:** reddit/r/HolUp
 
 ---
 
-## Inescapable
-![Inescapable](20260426-010-inescapable/image.jpg)
-**Score:** 127 | **Source:** reddit/r/dankmemes
-
----
-
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260426-011-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,388 | **Source:** reddit/r/dankmemes
-
----
-
-## food waste
-![food waste](20260426-012-food-waste/image.jpg)
-**Score:** 758 | **Source:** reddit/r/dankmemes
-
----
-
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260426-013-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 433 | **Source:** reddit/r/dankmemes
-
----
-
-## Strategy: 100
-![Strategy: 100](20260426-014-strategy-100/image.jpg)
-**Score:** 120 | **Source:** reddit/r/dankmemes
-
----
-
-## The middle class: :(
-![The middle class: :(](20260426-015-the-middle-class/image.jpg)
-**Score:** 92 | **Source:** reddit/r/dankmemes
-
----
-
-## Not all dogs
-![Not all dogs](20260426-016-not-all-dogs/image.jpg)
-**Score:** 59 | **Source:** reddit/r/dankmemes
-
----
-
-## They're the same person!
-![They're the same person!](20260426-017-theyre-the-same-person/image.jpg)
-**Score:** 70 | **Source:** reddit/r/dankmemes
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260426-009-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,335 | **Source:** reddit/r/HolUp
 
 ---
 
 ## That is the worst
-![That is the worst](20260426-018-that-is-the-worst/image.jpg)
+![That is the worst](20260426-010-that-is-the-worst/image.jpg)
 **Score:** 6,265 | **Source:** reddit/r/dankmemes
 
 ---
 
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260426-011-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 433 | **Source:** reddit/r/dankmemes
+
+---
+
+## International memes
+![International memes](20260426-012-international-memes/image.jpg)
+**Score:** 140 | **Source:** reddit/r/dankmemes
+
+---
+
+## Not all dogs
+![Not all dogs](20260426-013-not-all-dogs/image.jpg)
+**Score:** 59 | **Source:** reddit/r/dankmemes
+
+---
+
 ## Couldn't be me
-![Couldn't be me](20260426-019-couldnt-be-me/image.jpg)
+![Couldn't be me](20260426-014-couldnt-be-me/image.jpg)
 **Score:** 2,407 | **Source:** reddit/r/dankmemes
 
 ---
 
+## Inescapable
+![Inescapable](20260426-015-inescapable/image.jpg)
+**Score:** 127 | **Source:** reddit/r/dankmemes
+
+---
+
+## food waste
+![food waste](20260426-016-food-waste/image.jpg)
+**Score:** 758 | **Source:** reddit/r/dankmemes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260426-017-fatherhood-baaaaad/image.jpg)
+**Score:** 3,159 | **Source:** reddit/r/dankmemes
+
+---
+
+## Strategy: 100
+![Strategy: 100](20260426-018-strategy-100/image.jpg)
+**Score:** 120 | **Source:** reddit/r/dankmemes
+
+---
+
 ## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260426-020-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+![POV: You posted your art online vs. You'](20260426-019-pov-you-posted-your-art-online-vs-youre-/image.jpg)
 **Score:** 3,517 | **Source:** reddit/r/dankmemes
+
+---
+
+## The middle class: :(
+![The middle class: :(](20260426-020-the-middle-class/image.jpg)
+**Score:** 92 | **Source:** reddit/r/dankmemes
 
 ---

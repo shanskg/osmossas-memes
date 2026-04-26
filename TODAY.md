@@ -1,18 +1,18 @@
 # Meme Feed — 2026-04-26 21:58
 
-**Total:** 17 memes | Refresh every 10 min
+**Total:** 15 memes | Refresh every 10 min
 
 ---
 
-## How to lose a job : part 1.
-![How to lose a job : part 1.](20260426-001-how-to-lose-a-job-part-1/image.jpg)
-**Score:** 176 | **Source:** reddit/r/WhitePeopleTwitter
+## She was a honeypot deployed to provide updates on their progress
+![She was a honeypot deployed to provide u](20260426-001-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
+**Score:** 12,796 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Word association Schoolboy Q
-![Word association Schoolboy Q](20260426-002-word-association-schoolboy-q/image.jpg)
-**Score:** 1,490 | **Source:** reddit/r/BlackPeopleTwitter
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260426-002-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,137 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -22,86 +22,74 @@
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260426-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 831 | **Source:** reddit/r/facepalm
+## A shower is hot
+![A shower is hot](20260426-004-a-shower-is-hot/image.jpg)
+**Score:** 971 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## He did NOT dodge a bullet
-![He did NOT dodge a bullet](20260426-005-he-did-not-dodge-a-bullet/image.jpg)
-**Score:** 42,250 | **Source:** reddit/r/technicallythetruth
+## tell me if this is wrong?
+![tell me if this is wrong?](20260426-005-tell-me-if-this-is-wrong/image.jpg)
+**Score:** 58 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## outperforming the inflation rate
-![outperforming the inflation rate](20260426-006-outperforming-the-inflation-rate/image.jpg)
-**Score:** 65,081 | **Source:** reddit/r/technicallythetruth
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260426-006-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 74 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## He's in there somewhere
-![He's in there somewhere](20260426-007-hes-in-there-somewhere/image.jpg)
-**Score:** 1,526 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260426-008-brother-what-even-are-these-polls/image.jpg)
-**Score:** 290 | **Source:** reddit/r/oddlyspecific
-
----
-
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260426-009-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 421 | **Source:** reddit/r/oddlyspecific
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260426-007-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 82 | **Source:** reddit/r/HolUp
 
 ---
 
 ## I need a new mechanic…
-![I need a new mechanic…](20260426-010-i-need-a-new-mechanic/image.jpg)
+![I need a new mechanic…](20260426-008-i-need-a-new-mechanic/image.jpg)
 **Score:** 183 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Can't Unsee It
-![Can't Unsee It](20260426-011-cant-unsee-it/image.jpg)
-**Score:** 92 | **Source:** reddit/r/dankmemes
-
----
-
-## That is the worst
-![That is the worst](20260426-012-that-is-the-worst/image.jpg)
-**Score:** 6,267 | **Source:** reddit/r/dankmemes
-
----
-
 ## Same same but different.
-![Same same but different.](20260426-013-same-same-but-different/image.jpg)
+![Same same but different.](20260426-009-same-same-but-different/image.jpg)
 **Score:** 1,708 | **Source:** reddit/r/dankmemes
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260426-014-fatherhood-baaaaad/image.jpg)
-**Score:** 3,165 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260426-010-that-is-the-worst/image.jpg)
+**Score:** 6,267 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Average CarX online interaction.
-![Average CarX online interaction.](20260426-015-average-carx-online-interaction/image.jpg)
+![Average CarX online interaction.](20260426-011-average-carx-online-interaction/image.jpg)
 **Score:** 67 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Did you see Piers Morgan wreck Russell Brand last night?
-![Did you see Piers Morgan wreck Russell B](20260426-016-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
-**Score:** 85 | **Source:** reddit/r/memes
+## Can't Unsee It
+![Can't Unsee It](20260426-012-cant-unsee-it/image.jpg)
+**Score:** 92 | **Source:** reddit/r/dankmemes
 
 ---
 
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260426-017-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 343 | **Source:** reddit/r/memes
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260426-013-fatherhood-baaaaad/image.jpg)
+**Score:** 3,165 | **Source:** reddit/r/dankmemes
+
+---
+
+## Strategy: 100
+![Strategy: 100](20260426-014-strategy-100/image.jpg)
+**Score:** 126 | **Source:** reddit/r/dankmemes
+
+---
+
+## every tiny thing looks suspicious at 3am
+![every tiny thing looks suspicious at 3am](20260426-015-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
+**Score:** 213 | **Source:** reddit/r/memes
 
 ---

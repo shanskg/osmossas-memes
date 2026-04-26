@@ -1,12 +1,12 @@
-# Meme Feed — 2026-04-26 13:01
+# Meme Feed — 2026-04-26 13:11
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## They are painting the reflecting pool blue.
-![They are painting the reflecting pool bl](20260426-001-they-are-painting-the-reflecting-pool-bl/image.jpg)
-**Score:** 2,783 | **Source:** reddit/r/WhitePeopleTwitter
+## They are going to continue the show
+![They are going to continue the show](20260426-001-they-are-going-to-continue-the-show/image.jpg)
+**Score:** 50 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
@@ -16,110 +16,110 @@
 
 ---
 
-## skins vs skins
-![skins vs skins](20260426-003-skins-vs-skins/image.jpg)
-**Score:** 1,012 | **Source:** reddit/r/BlackPeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260426-003-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,750 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260426-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,363 | **Source:** reddit/r/facepalm
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260426-004-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 5,096 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
 ![Cops chase and handcuff another cop who ](20260426-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,173 | **Source:** reddit/r/facepalm
+**Score:** 5,175 | **Source:** reddit/r/facepalm
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260426-006-enjoy-your-hot-water/image.jpg)
-**Score:** 974 | **Source:** reddit/r/technicallythetruth
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260426-006-well-did-they-accept-or-not/image.jpg)
+**Score:** 830 | **Source:** reddit/r/facepalm
 
 ---
 
-## The detective didn't find it
-![The detective didn't find it](20260426-007-the-detective-didnt-find-it/image.jpg)
-**Score:** 33,780 | **Source:** reddit/r/technicallythetruth
+## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
+![Oh Oracle, How Will I Die? Surrounded By](20260426-007-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
+**Score:** 3,935 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## when subaru is sus
-![when subaru is sus](20260426-008-when-subaru-is-sus/image.jpg)
-**Score:** 163 | **Source:** reddit/r/suspiciouslyspecific
+## SUStainable Copper
+![SUStainable Copper](20260426-008-sustainable-copper/image.jpg)
+**Score:** 260 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Among Us Meme
-![Among Us Meme](20260426-009-among-us-meme/image.jpg)
-**Score:** 87 | **Source:** reddit/r/suspiciouslyspecific
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260426-009-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 77 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Don't do that
-![Don't do that](20260426-010-dont-do-that/image.jpg)
-**Score:** 347 | **Source:** reddit/r/oddlyspecific
+## Inescapable
+![Inescapable](20260426-010-inescapable/image.jpg)
+**Score:** 127 | **Source:** reddit/r/dankmemes
 
 ---
 
-## LinkedIn: where I go to be reminded why I don't go on LinkedIn.
-![LinkedIn: where I go to be reminded why ](20260426-011-linkedin-where-i-go-to-be-reminded-why-i/image.jpg)
-**Score:** 3,683 | **Source:** reddit/r/oddlyspecific
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260426-011-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 3,388 | **Source:** reddit/r/dankmemes
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260426-012-fatherhood-baaaaad/image.jpg)
-**Score:** 3,159 | **Source:** reddit/r/dankmemes
-
----
-
-## International memes
-![International memes](20260426-013-international-memes/image.jpg)
-**Score:** 140 | **Source:** reddit/r/dankmemes
-
----
-
-## poisonous animal
-![poisonous animal](20260426-014-poisonous-animal/image.jpg)
-**Score:** 132 | **Source:** reddit/r/dankmemes
+## food waste
+![food waste](20260426-012-food-waste/image.jpg)
+**Score:** 758 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260426-015-even-in-video-games-they-dont-want-you-t/image.jpg)
+![Even in video games, they don't want you](20260426-013-even-in-video-games-they-dont-want-you-t/image.jpg)
 **Score:** 433 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I need a new mechanic…
-![I need a new mechanic…](20260426-016-i-need-a-new-mechanic/image.jpg)
-**Score:** 175 | **Source:** reddit/r/dankmemes
-
----
-
-## Not all dogs
-![Not all dogs](20260426-017-not-all-dogs/image.jpg)
-**Score:** 59 | **Source:** reddit/r/dankmemes
+## Strategy: 100
+![Strategy: 100](20260426-014-strategy-100/image.jpg)
+**Score:** 120 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## The middle class: :(
-![The middle class: :(](20260426-018-the-middle-class/image.jpg)
+![The middle class: :(](20260426-015-the-middle-class/image.jpg)
 **Score:** 92 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Can't Unsee It
-![Can't Unsee It](20260426-019-cant-unsee-it/image.jpg)
-**Score:** 88 | **Source:** reddit/r/dankmemes
+## Not all dogs
+![Not all dogs](20260426-016-not-all-dogs/image.jpg)
+**Score:** 59 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Same same but different.
-![Same same but different.](20260426-020-same-same-but-different/image.jpg)
-**Score:** 1,695 | **Source:** reddit/r/dankmemes
+## They're the same person!
+![They're the same person!](20260426-017-theyre-the-same-person/image.jpg)
+**Score:** 70 | **Source:** reddit/r/dankmemes
+
+---
+
+## That is the worst
+![That is the worst](20260426-018-that-is-the-worst/image.jpg)
+**Score:** 6,265 | **Source:** reddit/r/dankmemes
+
+---
+
+## Couldn't be me
+![Couldn't be me](20260426-019-couldnt-be-me/image.jpg)
+**Score:** 2,407 | **Source:** reddit/r/dankmemes
+
+---
+
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260426-020-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,517 | **Source:** reddit/r/dankmemes
 
 ---

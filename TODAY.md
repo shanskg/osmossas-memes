@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-26 20:54
+# Meme Feed — 2026-04-26 21:07
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## just give it two weeks
-![just give it two weeks](20260426-001-just-give-it-two-weeks/image.jpg)
-**Score:** 54 | **Source:** reddit/r/WhitePeopleTwitter
+## They are painting the reflecting pool blue.
+![They are painting the reflecting pool bl](20260426-001-they-are-painting-the-reflecting-pool-bl/image.jpg)
+**Score:** 2,788 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Well whaddya know
-![Well whaddya know](20260426-002-well-whaddya-know/image.jpg)
-**Score:** 167 | **Source:** reddit/r/WhitePeopleTwitter
+## OpenAI caught astroturfing - they created a fake news site, with stories by fake
+![OpenAI caught astroturfing - they create](20260426-002-openai-caught-astroturfing-they-created-/image.jpg)
+**Score:** 69 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260426-003-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,759 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260426-003-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 5,122 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -28,98 +28,98 @@
 
 ---
 
-## Some inflation is good
-![Some inflation is good](20260426-005-some-inflation-is-good/image.jpg)
-**Score:** 15,684 | **Source:** reddit/r/technicallythetruth
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260426-005-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,137 | **Source:** reddit/r/facepalm
 
 ---
 
-## The detective didn't find it
-![The detective didn't find it](20260426-006-the-detective-didnt-find-it/image.jpg)
-**Score:** 33,787 | **Source:** reddit/r/technicallythetruth
+## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
+![It's anthropomorphism because nature has](20260426-006-its-anthropomorphism-because-nature-has-/image.jpg)
+**Score:** 124 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## imposter syndrome (among us disease)
-![imposter syndrome (among us disease)](20260426-007-imposter-syndrome-among-us-disease/image.jpg)
-**Score:** 2,247 | **Source:** reddit/r/suspiciouslyspecific
+## Enjoy your hot water
+![Enjoy your hot water](20260426-007-enjoy-your-hot-water/image.jpg)
+**Score:** 974 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## My 7 year old would love to know what others think of his drawing! Sus?
-![My 7 year old would love to know what ot](20260426-008-my-7-year-old-would-love-to-know-what-ot/image.jpg)
-**Score:** 1,251 | **Source:** reddit/r/suspiciouslyspecific
+## Among cells
+![Among cells](20260426-008-among-cells/image.jpg)
+**Score:** 804 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260426-009-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 260 | **Source:** reddit/r/oddlyspecific
+## Bingo's eyes are lookin a little sus.
+![Bingo's eyes are lookin a little sus.](20260426-009-bingos-eyes-are-lookin-a-little-sus/image.jpg)
+**Score:** 245 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## Who is your fav Cambodian gas station explosion survivor that is pregnant?
+![Who is your fav Cambodian gas station ex](20260426-010-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
+**Score:** 1,604 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## AI is everywhere
+![AI is everywhere](20260426-011-ai-is-everywhere/image.jpg)
+**Score:** 1,009 | **Source:** reddit/r/HolUp
+
+---
+
+## Average CarX online interaction.
+![Average CarX online interaction.](20260426-012-average-carx-online-interaction/image.jpg)
+**Score:** 67 | **Source:** reddit/r/dankmemes
+
+---
+
+## Same same but different.
+![Same same but different.](20260426-013-same-same-but-different/image.jpg)
+**Score:** 1,708 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## That is the worst
-![That is the worst](20260426-010-that-is-the-worst/image.jpg)
-**Score:** 6,270 | **Source:** reddit/r/dankmemes
+![That is the worst](20260426-014-that-is-the-worst/image.jpg)
+**Score:** 6,267 | **Source:** reddit/r/dankmemes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260426-015-fatherhood-baaaaad/image.jpg)
+**Score:** 3,165 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## I need a new mechanic…
-![I need a new mechanic…](20260426-011-i-need-a-new-mechanic/image.jpg)
+![I need a new mechanic…](20260426-016-i-need-a-new-mechanic/image.jpg)
 **Score:** 183 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Can't Unsee It
-![Can't Unsee It](20260426-012-cant-unsee-it/image.jpg)
-**Score:** 93 | **Source:** reddit/r/dankmemes
-
----
-
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260426-013-fatherhood-baaaaad/image.jpg)
-**Score:** 3,157 | **Source:** reddit/r/dankmemes
-
----
-
-## Average CarX online interaction.
-![Average CarX online interaction.](20260426-014-average-carx-online-interaction/image.jpg)
-**Score:** 64 | **Source:** reddit/r/dankmemes
-
----
-
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260426-015-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 316 | **Source:** reddit/r/memes
-
----
-
-## Same same but different.
-![Same same but different.](20260426-016-same-same-but-different/image.jpg)
-**Score:** 1,703 | **Source:** reddit/r/dankmemes
+![Can't Unsee It](20260426-017-cant-unsee-it/image.jpg)
+**Score:** 92 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## every tiny thing looks suspicious at 3am
-![every tiny thing looks suspicious at 3am](20260426-017-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
-**Score:** 197 | **Source:** reddit/r/memes
+![every tiny thing looks suspicious at 3am](20260426-018-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
+**Score:** 213 | **Source:** reddit/r/memes
 
 ---
 
-## well....75% of the code is AI written....soo.....
-![well....75% of the code is AI written...](20260426-018-well75-of-the-code-is-ai-writtensoo/image.jpg)
-**Score:** 306 | **Source:** reddit/r/memes
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260426-019-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,513 | **Source:** reddit/r/dankmemes
 
 ---
 
-## International memes
-![International memes](20260426-019-international-memes/image.jpg)
-**Score:** 155 | **Source:** reddit/r/dankmemes
-
----
-
-## Inescapable
-![Inescapable](20260426-020-inescapable/image.jpg)
-**Score:** 130 | **Source:** reddit/r/dankmemes
+## They're the same person!
+![They're the same person!](20260426-020-theyre-the-same-person/image.jpg)
+**Score:** 65 | **Source:** reddit/r/dankmemes
 
 ---

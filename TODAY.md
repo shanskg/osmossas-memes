@@ -1,72 +1,72 @@
-# Meme Feed — 2026-04-26 23:41
+# Meme Feed — 2026-04-26 23:51
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## not beating the "it's only bad if you don't bribe me" allegations
-![not beating the "it's only bad if you do](20260426-001-not-beating-the-its-only-bad-if-you-dont/image.jpg)
-**Score:** 66 | **Source:** reddit/r/WhitePeopleTwitter
+## They still won't release the Epstein Files
+![They still won't release the Epstein Fil](20260426-001-they-still-wont-release-the-epstein-file/image.jpg)
+**Score:** 165 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## skins vs skins
-![skins vs skins](20260426-002-skins-vs-skins/image.jpg)
-**Score:** 1,018 | **Source:** reddit/r/BlackPeopleTwitter
+## He's really on top
+![He's really on top](20260426-002-hes-really-on-top/image.jpg)
+**Score:** 1,938 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260426-003-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,417 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260426-004-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 1,568 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260426-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260426-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,361 | **Source:** reddit/r/facepalm
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260426-004-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 498 | **Source:** reddit/r/technicallythetruth
+## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
+![Oh Oracle, How Will I Die? Surrounded By](20260426-006-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
+**Score:** 3,935 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260426-005-i-just-opened-youtube/image.jpg)
-**Score:** 8,970 | **Source:** reddit/r/technicallythetruth
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260426-007-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 76 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Juicy Amogus pics
-![Juicy Amogus pics](20260426-006-juicy-amogus-pics/image.jpg)
-**Score:** 807 | **Source:** reddit/r/suspiciouslyspecific
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260426-008-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,334 | **Source:** reddit/r/HolUp
 
 ---
 
-## Rest in piss
-![Rest in piss](20260426-007-rest-in-piss/image.jpg)
-**Score:** 397 | **Source:** reddit/r/suspiciouslyspecific
+## Same same but different.
+![Same same but different.](20260426-009-same-same-but-different/image.jpg)
+**Score:** 1,714 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Don't do that
-![Don't do that](20260426-008-dont-do-that/image.jpg)
-**Score:** 339 | **Source:** reddit/r/oddlyspecific
-
----
-
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260426-009-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 82 | **Source:** reddit/r/HolUp
+## This is the way- the eyes splitter
+![This is the way- the eyes splitter](20260426-010-this-is-the-way-the-eyes-splitter/image.jpg)
+**Score:** 364 | **Source:** reddit/r/memes
 
 ---
 
 ## Average CarX online interaction.
-![Average CarX online interaction.](20260426-010-average-carx-online-interaction/image.jpg)
+![Average CarX online interaction.](20260426-011-average-carx-online-interaction/image.jpg)
 **Score:** 68 | **Source:** reddit/r/dankmemes
-
----
-
-## every tiny thing looks suspicious at 3am
-![every tiny thing looks suspicious at 3am](20260426-011-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
-**Score:** 219 | **Source:** reddit/r/memes
 
 ---
 
@@ -76,15 +76,15 @@
 
 ---
 
-## Sometimes it just comes out :(
-![Sometimes it just comes out :(](20260426-013-sometimes-it-just-comes-out/image.jpg)
-**Score:** 55 | **Source:** reddit/r/dankmemes
+## Can't Unsee It
+![Can't Unsee It](20260426-013-cant-unsee-it/image.jpg)
+**Score:** 94 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Did you see Piers Morgan wreck Russell Brand last night?
-![Did you see Piers Morgan wreck Russell B](20260426-014-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
-**Score:** 223 | **Source:** reddit/r/memes
+## That is the worst
+![That is the worst](20260426-014-that-is-the-worst/image.jpg)
+**Score:** 6,274 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -94,32 +94,32 @@
 
 ---
 
-## And do it as slow as possible
-![And do it as slow as possible](20260426-016-and-do-it-as-slow-as-possible/image.jpg)
-**Score:** 102 | **Source:** reddit/r/memes
-
----
-
 ## Bob has been through it.
-![Bob has been through it.](20260426-017-bob-has-been-through-it/image.jpg)
+![Bob has been through it.](20260426-016-bob-has-been-through-it/image.jpg)
 **Score:** 1,365 | **Source:** reddit/r/memes
 
 ---
 
-## That is the worst
-![That is the worst](20260426-018-that-is-the-worst/image.jpg)
-**Score:** 6,274 | **Source:** reddit/r/dankmemes
+## Did you see Piers Morgan wreck Russell Brand last night?
+![Did you see Piers Morgan wreck Russell B](20260426-017-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
+**Score:** 223 | **Source:** reddit/r/memes
 
 ---
 
-## Can't Unsee It
-![Can't Unsee It](20260426-019-cant-unsee-it/image.jpg)
-**Score:** 94 | **Source:** reddit/r/dankmemes
+## Being employed sucks sometimes
+![Being employed sucks sometimes](20260426-018-being-employed-sucks-sometimes/image.jpg)
+**Score:** 177 | **Source:** reddit/r/memes
 
 ---
 
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260426-020-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 364 | **Source:** reddit/r/memes
+## And do it as slow as possible
+![And do it as slow as possible](20260426-019-and-do-it-as-slow-as-possible/image.jpg)
+**Score:** 102 | **Source:** reddit/r/memes
+
+---
+
+## every tiny thing looks suspicious at 3am
+![every tiny thing looks suspicious at 3am](20260426-020-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
+**Score:** 219 | **Source:** reddit/r/memes
 
 ---

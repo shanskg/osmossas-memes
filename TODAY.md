@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-27 07:08
+# Meme Feed — 2026-04-27 07:10
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## They still won't release the Epstein Files
-![They still won't release the Epstein Fil](20260427-001-they-still-wont-release-the-epstein-file/image.jpg)
-**Score:** 171 | **Source:** reddit/r/WhitePeopleTwitter
+## Here's a tip for you, Donnie
+![Here's a tip for you, Donnie](20260427-001-heres-a-tip-for-you-donnie/image.jpg)
+**Score:** 61 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260427-002-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,418 | **Source:** reddit/r/BlackPeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260427-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,078 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -22,93 +22,93 @@
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260427-004-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 1,664 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260427-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,369 | **Source:** reddit/r/facepalm
 
 ---
 
-## intelligence is not dangerous
-![intelligence is not dangerous](20260427-005-intelligence-is-not-dangerous/image.jpg)
-**Score:** 50,045 | **Source:** reddit/r/technicallythetruth
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260427-005-well-did-they-accept-or-not/image.jpg)
+**Score:** 829 | **Source:** reddit/r/facepalm
 
 ---
 
-## Super rich or bus driver?
-![Super rich or bus driver?](20260427-006-super-rich-or-bus-driver/image.jpg)
-**Score:** 31,016 | **Source:** reddit/r/technicallythetruth
+## The perfect combination of heading and Reddit mobile jank
+![The perfect combination of heading and R](20260427-006-the-perfect-combination-of-heading-and-r/image.jpg)
+**Score:** 234 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The Hash-Slinging Slasher
-![The Hash-Slinging Slasher](20260427-007-the-hash-slinging-slasher/image.jpg)
-**Score:** 432 | **Source:** reddit/r/suspiciouslyspecific
+## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
+![It's anthropomorphism because nature has](20260427-007-its-anthropomorphism-because-nature-has-/image.jpg)
+**Score:** 125 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260427-008-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 263 | **Source:** reddit/r/oddlyspecific
+## found an old notebook from 6th grade
+![found an old notebook from 6th grade](20260427-008-found-an-old-notebook-from-6th-grade/image.jpg)
+**Score:** 5,692 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260427-009-an-augmented-reality-sandbox/image.jpg)
-**Score:** 600 | **Source:** reddit/r/HolUp
+## Rest in piss
+![Rest in piss](20260427-009-rest-in-piss/image.jpg)
+**Score:** 405 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Darker and darker
-![Darker and darker](20260427-010-darker-and-darker/image.jpg)
-**Score:** 286 | **Source:** reddit/r/HolUp
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260427-010-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 79 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## AI is everywhere
+![AI is everywhere](20260427-011-ai-is-everywhere/image.jpg)
+**Score:** 1,018 | **Source:** reddit/r/HolUp
+
+---
+
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260427-012-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 87 | **Source:** reddit/r/HolUp
 
 ---
 
 ## Strategy: 100
-![Strategy: 100](20260427-011-strategy-100/image.jpg)
+![Strategy: 100](20260427-013-strategy-100/image.jpg)
 **Score:** 141 | **Source:** reddit/r/dankmemes
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260427-012-fatherhood-baaaaad/image.jpg)
-**Score:** 3,167 | **Source:** reddit/r/dankmemes
-
----
-
 ## Same same but different.
-![Same same but different.](20260427-013-same-same-but-different/image.jpg)
+![Same same but different.](20260427-014-same-same-but-different/image.jpg)
 **Score:** 1,714 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I need a new mechanic…
-![I need a new mechanic…](20260427-014-i-need-a-new-mechanic/image.jpg)
-**Score:** 194 | **Source:** reddit/r/dankmemes
-
----
-
-## Average CarX online interaction.
-![Average CarX online interaction.](20260427-015-average-carx-online-interaction/image.jpg)
-**Score:** 67 | **Source:** reddit/r/dankmemes
-
----
-
 ## I cannot emphasise enough how much I mean the dog and not me
-![I cannot emphasise enough how much I mea](20260427-016-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
+![I cannot emphasise enough how much I mea](20260427-015-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
 **Score:** 354 | **Source:** reddit/r/memes
 
 ---
 
 ## That is the worst
-![That is the worst](20260427-017-that-is-the-worst/image.jpg)
+![That is the worst](20260427-016-that-is-the-worst/image.jpg)
 **Score:** 6,275 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## bruh really
-![bruh really](20260427-018-bruh-really/image.jpg)
+![bruh really](20260427-017-bruh-really/image.jpg)
 **Score:** 1,966 | **Source:** reddit/r/memes
+
+---
+
+## Average CarX online interaction.
+![Average CarX online interaction.](20260427-018-average-carx-online-interaction/image.jpg)
+**Score:** 67 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -118,8 +118,8 @@
 
 ---
 
-## Lol my homework
-![Lol my homework](20260427-020-lol-my-homework/image.jpg)
-**Score:** 103 | **Source:** reddit/r/memes
+## I need a new mechanic…
+![I need a new mechanic…](20260427-020-i-need-a-new-mechanic/image.jpg)
+**Score:** 194 | **Source:** reddit/r/dankmemes
 
 ---

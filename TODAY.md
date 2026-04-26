@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-27 04:11
+# Meme Feed — 2026-04-27 04:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## It was a beautiful sight when it happened too
-![It was a beautiful sight when it happene](20260427-001-it-was-a-beautiful-sight-when-it-happene/image.jpg)
-**Score:** 74 | **Source:** reddit/r/WhitePeopleTwitter
+## Kash Patel ran to save himself, ditching his girlfriend with some other man
+![Kash Patel ran to save himself, ditching](20260427-001-kash-patel-ran-to-save-himself-ditching-/image.jpg)
+**Score:** 452 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260427-002-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,771 | **Source:** reddit/r/BlackPeopleTwitter
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260427-002-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,425 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260427-003-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 1,634 | **Source:** reddit/r/facepalm
+## Word association Schoolboy Q
+![Word association Schoolboy Q](20260427-003-word-association-schoolboy-q/image.jpg)
+**Score:** 1,515 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260427-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 833 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260427-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,369 | **Source:** reddit/r/facepalm
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260427-005-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,085 | **Source:** reddit/r/technicallythetruth
+## Enjoy your hot water
+![Enjoy your hot water](20260427-005-enjoy-your-hot-water/image.jpg)
+**Score:** 971 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260427-006-i-just-opened-youtube/image.jpg)
-**Score:** 8,973 | **Source:** reddit/r/technicallythetruth
+## My 7 year old would love to know what others think of his drawing! Sus?
+![My 7 year old would love to know what ot](20260427-006-my-7-year-old-would-love-to-know-what-ot/image.jpg)
+**Score:** 1,256 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Among Us Meme
-![Among Us Meme](20260427-007-among-us-meme/image.jpg)
-**Score:** 86 | **Source:** reddit/r/suspiciouslyspecific
+## Among us irl 🤯
+![Among us irl 🤯](20260427-007-among-us-irl/image.jpg)
+**Score:** 237 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Dippers shadow in this episode of Gravity Falls
-![Dippers shadow in this episode of Gravit](20260427-008-dippers-shadow-in-this-episode-of-gravit/image.jpg)
-**Score:** 1,091 | **Source:** reddit/r/suspiciouslyspecific
+## Don't do that
+![Don't do that](20260427-008-dont-do-that/image.jpg)
+**Score:** 342 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Lol my homework
-![Lol my homework](20260427-009-lol-my-homework/image.jpg)
-**Score:** 72 | **Source:** reddit/r/memes
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260427-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 645 | **Source:** reddit/r/HolUp
 
 ---
 
-## every tiny thing looks suspicious at 3am
-![every tiny thing looks suspicious at 3am](20260427-010-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
-**Score:** 245 | **Source:** reddit/r/memes
+## Strategy: 100
+![Strategy: 100](20260427-010-strategy-100/image.jpg)
+**Score:** 141 | **Source:** reddit/r/dankmemes
 
 ---
 
-## They're the same person!
-![They're the same person!](20260427-011-theyre-the-same-person/image.jpg)
-**Score:** 70 | **Source:** reddit/r/dankmemes
-
----
-
-## Can't Unsee It
-![Can't Unsee It](20260427-012-cant-unsee-it/image.jpg)
-**Score:** 104 | **Source:** reddit/r/dankmemes
-
----
-
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260427-013-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 3,521 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260427-011-that-is-the-worst/image.jpg)
+**Score:** 6,272 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## I cannot emphasise enough how much I mean the dog and not me
-![I cannot emphasise enough how much I mea](20260427-014-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
-**Score:** 154 | **Source:** reddit/r/memes
+![I cannot emphasise enough how much I mea](20260427-012-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
+**Score:** 277 | **Source:** reddit/r/memes
 
 ---
 
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260427-015-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 390 | **Source:** reddit/r/memes
+## No AI, you cannot help me with this
+![No AI, you cannot help me with this](20260427-013-no-ai-you-cannot-help-me-with-this/image.jpg)
+**Score:** 99 | **Source:** reddit/r/memes
 
 ---
 
-## Being employed sucks sometimes
-![Being employed sucks sometimes](20260427-016-being-employed-sucks-sometimes/image.jpg)
-**Score:** 1,658 | **Source:** reddit/r/memes
+## Can't Unsee It
+![Can't Unsee It](20260427-014-cant-unsee-it/image.jpg)
+**Score:** 109 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Sometimes it just comes out :(
-![Sometimes it just comes out :(](20260427-017-sometimes-it-just-comes-out/image.jpg)
-**Score:** 77 | **Source:** reddit/r/dankmemes
+## Average CarX online interaction.
+![Average CarX online interaction.](20260427-015-average-carx-online-interaction/image.jpg)
+**Score:** 62 | **Source:** reddit/r/dankmemes
 
 ---
 
-## International memes
-![International memes](20260427-018-international-memes/image.jpg)
-**Score:** 161 | **Source:** reddit/r/dankmemes
+## I need a new mechanic…
+![I need a new mechanic…](20260427-016-i-need-a-new-mechanic/image.jpg)
+**Score:** 186 | **Source:** reddit/r/dankmemes
 
 ---
 
-## poisonous animal
-![poisonous animal](20260427-019-poisonous-animal/image.jpg)
-**Score:** 150 | **Source:** reddit/r/dankmemes
+## every tiny thing looks suspicious at 3am
+![every tiny thing looks suspicious at 3am](20260427-017-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
+**Score:** 251 | **Source:** reddit/r/memes
 
 ---
 
-## Did you see Piers Morgan wreck Russell Brand last night?
-![Did you see Piers Morgan wreck Russell B](20260427-020-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
-**Score:** 482 | **Source:** reddit/r/memes
+## The middle class: :(
+![The middle class: :(](20260427-018-the-middle-class/image.jpg)
+**Score:** 96 | **Source:** reddit/r/dankmemes
+
+---
+
+## It was funny
+![It was funny](20260427-019-it-was-funny/image.jpg)
+**Score:** 2,223 | **Source:** reddit/r/dankmemes
+
+---
+
+## Lol my homework
+![Lol my homework](20260427-020-lol-my-homework/image.jpg)
+**Score:** 90 | **Source:** reddit/r/memes
 
 ---

@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-26 17:51
+# Meme Feed — 2026-04-26 17:57
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Well whaddya know
-![Well whaddya know](20260426-001-well-whaddya-know/image.jpg)
-**Score:** 162 | **Source:** reddit/r/WhitePeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260426-001-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,757 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260426-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 5,111 | **Source:** reddit/r/BlackPeopleTwitter
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260426-002-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,174 | **Source:** reddit/r/facepalm
 
 ---
 
-## She won't, but still, the leopards are eating each other.
-![She won't, but still, the leopards are e](20260426-003-she-wont-but-still-the-leopards-are-eati/image.jpg)
-**Score:** 238 | **Source:** reddit/r/BlackPeopleTwitter
+## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
+![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260426-003-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
+**Score:** 11,589 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260426-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 828 | **Source:** reddit/r/facepalm
+## This surely must be a major loss for Glitch Productions...
+![This surely must be a major loss for Gli](20260426-004-this-surely-must-be-a-major-loss-for-gli/image.jpg)
+**Score:** 86 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260426-005-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 1,493 | **Source:** reddit/r/facepalm
+## Among who?
+![Among who?](20260426-005-among-who/image.jpg)
+**Score:** 3,780 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## We exist, don't we?
-![We exist, don't we?](20260426-006-we-exist-dont-we/image.jpg)
-**Score:** 698 | **Source:** reddit/r/technicallythetruth
+## Brother what even are these polls😐️
+![Brother what even are these polls😐️](20260426-006-brother-what-even-are-these-polls/image.jpg)
+**Score:** 289 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260426-007-enjoy-your-hot-water/image.jpg)
-**Score:** 975 | **Source:** reddit/r/technicallythetruth
+## LinkedIn: where I go to be reminded why I don't go on LinkedIn.
+![LinkedIn: where I go to be reminded why ](20260426-007-linkedin-where-i-go-to-be-reminded-why-i/image.jpg)
+**Score:** 3,757 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## The Hash-Slinging Slasher
-![The Hash-Slinging Slasher](20260426-008-the-hash-slinging-slasher/image.jpg)
-**Score:** 431 | **Source:** reddit/r/suspiciouslyspecific
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260426-008-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,341 | **Source:** reddit/r/HolUp
 
 ---
 
-## He's in there somewhere
-![He's in there somewhere](20260426-009-hes-in-there-somewhere/image.jpg)
-**Score:** 1,523 | **Source:** reddit/r/suspiciouslyspecific
+## Same same but different.
+![Same same but different.](20260426-009-same-same-but-different/image.jpg)
+**Score:** 1,697 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Who is your fav Cambodian gas station explosion survivor that is pregnant?
-![Who is your fav Cambodian gas station ex](20260426-010-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
-**Score:** 1,600 | **Source:** reddit/r/oddlyspecific
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260426-010-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 437 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Don't do that
-![Don't do that](20260426-011-dont-do-that/image.jpg)
-**Score:** 347 | **Source:** reddit/r/oddlyspecific
-
----
-
-## AI is everywhere
-![AI is everywhere](20260426-012-ai-is-everywhere/image.jpg)
-**Score:** 1,011 | **Source:** reddit/r/HolUp
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260426-011-fatherhood-baaaaad/image.jpg)
+**Score:** 3,160 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Can't Unsee It
-![Can't Unsee It](20260426-013-cant-unsee-it/image.jpg)
+![Can't Unsee It](20260426-012-cant-unsee-it/image.jpg)
 **Score:** 93 | **Source:** reddit/r/dankmemes
 
 ---
 
+## every tiny thing looks suspicious at 3am
+![every tiny thing looks suspicious at 3am](20260426-013-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
+**Score:** 179 | **Source:** reddit/r/memes
+
+---
+
+## This is the way- the eyes splitter
+![This is the way- the eyes splitter](20260426-014-this-is-the-way-the-eyes-splitter/image.jpg)
+**Score:** 291 | **Source:** reddit/r/memes
+
+---
+
 ## well....75% of the code is AI written....soo.....
-![well....75% of the code is AI written...](20260426-014-well75-of-the-code-is-ai-writtensoo/image.jpg)
+![well....75% of the code is AI written...](20260426-015-well75-of-the-code-is-ai-writtensoo/image.jpg)
 **Score:** 305 | **Source:** reddit/r/memes
 
 ---
 
 ## Average CarX online interaction.
-![Average CarX online interaction.](20260426-015-average-carx-online-interaction/image.jpg)
+![Average CarX online interaction.](20260426-016-average-carx-online-interaction/image.jpg)
 **Score:** 60 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## That is the worst
-![That is the worst](20260426-016-that-is-the-worst/image.jpg)
+![That is the worst](20260426-017-that-is-the-worst/image.jpg)
 **Score:** 6,264 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Same same but different.
-![Same same but different.](20260426-017-same-same-but-different/image.jpg)
-**Score:** 1,697 | **Source:** reddit/r/dankmemes
+## Inescapable
+![Inescapable](20260426-018-inescapable/image.jpg)
+**Score:** 126 | **Source:** reddit/r/dankmemes
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260426-018-fatherhood-baaaaad/image.jpg)
-**Score:** 3,160 | **Source:** reddit/r/dankmemes
+## Couldn't be me
+![Couldn't be me](20260426-019-couldnt-be-me/image.jpg)
+**Score:** 2,409 | **Source:** reddit/r/dankmemes
 
 ---
 
-## every tiny thing looks suspicious at 3am
-![every tiny thing looks suspicious at 3am](20260426-019-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
-**Score:** 179 | **Source:** reddit/r/memes
-
----
-
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260426-020-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 437 | **Source:** reddit/r/dankmemes
+## The middle class: :(
+![The middle class: :(](20260426-020-the-middle-class/image.jpg)
+**Score:** 91 | **Source:** reddit/r/dankmemes
 
 ---

@@ -1,4 +1,4 @@
-# Meme Feed — 2026-04-26 22:18
+# Meme Feed — 2026-04-26 22:19
 
 **Total:** 20 memes | Refresh every 10 min
 
@@ -10,116 +10,116 @@
 
 ---
 
-## They still won't release the Epstein Files
-![They still won't release the Epstein Fil](20260426-002-they-still-wont-release-the-epstein-file/image.jpg)
-**Score:** 158 | **Source:** reddit/r/WhitePeopleTwitter
-
----
-
-## skins vs skins
-![skins vs skins](20260426-003-skins-vs-skins/image.jpg)
-**Score:** 1,018 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## She won't, but still, the leopards are eating each other.
-![She won't, but still, the leopards are e](20260426-004-she-wont-but-still-the-leopards-are-eati/image.jpg)
-**Score:** 1,124 | **Source:** reddit/r/BlackPeopleTwitter
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260426-002-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,416 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260426-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260426-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,363 | **Source:** reddit/r/facepalm
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260426-006-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 1,527 | **Source:** reddit/r/facepalm
+## Enjoy your hot water
+![Enjoy your hot water](20260426-004-enjoy-your-hot-water/image.jpg)
+**Score:** 974 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## He didn't sound like much of anything in there
-![He didn't sound like much of anything in](20260426-007-he-didnt-sound-like-much-of-anything-in-/image.jpg)
-**Score:** 1,833 | **Source:** reddit/r/technicallythetruth
+## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
+![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260426-005-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
+**Score:** 1,481 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Juicy Amogus pics
-![Juicy Amogus pics](20260426-008-juicy-amogus-pics/image.jpg)
-**Score:** 810 | **Source:** reddit/r/suspiciouslyspecific
+## Dippers shadow in this episode of Gravity Falls
+![Dippers shadow in this episode of Gravit](20260426-006-dippers-shadow-in-this-episode-of-gravit/image.jpg)
+**Score:** 1,087 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS 
-![GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS ](20260426-009-guys-guys-guys-guys-guys-guys-guys-guys-/image.jpg)
-**Score:** 315 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## Don't do that
-![Don't do that](20260426-010-dont-do-that/image.jpg)
-**Score:** 343 | **Source:** reddit/r/oddlyspecific
-
----
-
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260426-011-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 74 | **Source:** reddit/r/oddlyspecific
-
----
-
-## Darker and darker
-![Darker and darker](20260426-012-darker-and-darker/image.jpg)
-**Score:** 283 | **Source:** reddit/r/HolUp
-
----
-
-## That is the worst
-![That is the worst](20260426-013-that-is-the-worst/image.jpg)
-**Score:** 6,267 | **Source:** reddit/r/dankmemes
-
----
-
-## Can't Unsee It
-![Can't Unsee It](20260426-014-cant-unsee-it/image.jpg)
-**Score:** 92 | **Source:** reddit/r/dankmemes
-
----
-
-## Average CarX online interaction.
-![Average CarX online interaction.](20260426-015-average-carx-online-interaction/image.jpg)
-**Score:** 67 | **Source:** reddit/r/dankmemes
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260426-007-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 82 | **Source:** reddit/r/HolUp
 
 ---
 
 ## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260426-016-fatherhood-baaaaad/image.jpg)
+!["Fatherhood baaaaad!!!"](20260426-008-fatherhood-baaaaad/image.jpg)
 **Score:** 3,165 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Same same but different.
-![Same same but different.](20260426-017-same-same-but-different/image.jpg)
-**Score:** 1,708 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260426-009-that-is-the-worst/image.jpg)
+**Score:** 6,267 | **Source:** reddit/r/dankmemes
+
+---
+
+## Average CarX online interaction.
+![Average CarX online interaction.](20260426-010-average-carx-online-interaction/image.jpg)
+**Score:** 67 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## I need a new mechanic…
-![I need a new mechanic…](20260426-018-i-need-a-new-mechanic/image.jpg)
+![I need a new mechanic…](20260426-011-i-need-a-new-mechanic/image.jpg)
 **Score:** 183 | **Source:** reddit/r/dankmemes
 
 ---
 
+## Can't Unsee It
+![Can't Unsee It](20260426-012-cant-unsee-it/image.jpg)
+**Score:** 92 | **Source:** reddit/r/dankmemes
+
+---
+
+## Same same but different.
+![Same same but different.](20260426-013-same-same-but-different/image.jpg)
+**Score:** 1,708 | **Source:** reddit/r/dankmemes
+
+---
+
+## Strategy: 100
+![Strategy: 100](20260426-014-strategy-100/image.jpg)
+**Score:** 126 | **Source:** reddit/r/dankmemes
+
+---
+
 ## Bob has been through it.
-![Bob has been through it.](20260426-019-bob-has-been-through-it/image.jpg)
-**Score:** 1,365 | **Source:** reddit/r/memes
+![Bob has been through it.](20260426-015-bob-has-been-through-it/image.jpg)
+**Score:** 1,368 | **Source:** reddit/r/memes
 
 ---
 
 ## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260426-020-this-is-the-way-the-eyes-splitter/image.jpg)
+![This is the way- the eyes splitter](20260426-016-this-is-the-way-the-eyes-splitter/image.jpg)
 **Score:** 364 | **Source:** reddit/r/memes
+
+---
+
+## every tiny thing looks suspicious at 3am
+![every tiny thing looks suspicious at 3am](20260426-017-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
+**Score:** 219 | **Source:** reddit/r/memes
+
+---
+
+## poisonous animal
+![poisonous animal](20260426-018-poisonous-animal/image.jpg)
+**Score:** 147 | **Source:** reddit/r/dankmemes
+
+---
+
+## Did you see Piers Morgan wreck Russell Brand last night?
+![Did you see Piers Morgan wreck Russell B](20260426-019-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
+**Score:** 223 | **Source:** reddit/r/memes
+
+---
+
+## Being employed sucks sometimes
+![Being employed sucks sometimes](20260426-020-being-employed-sucks-sometimes/image.jpg)
+**Score:** 177 | **Source:** reddit/r/memes
 
 ---

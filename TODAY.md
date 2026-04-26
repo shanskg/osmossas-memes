@@ -1,125 +1,53 @@
-# Meme Feed — 2026-04-27 05:20
+# Meme Feed — 2026-04-27 05:30
 
-**Total:** 20 memes | Refresh every 10 min
-
----
-
-## Shell casings from the alleged shooter released by Kash Patel's FBI
-![Shell casings from the alleged shooter r](20260427-001-shell-casings-from-the-alleged-shooter-r/image.jpg)
-**Score:** 6,464 | **Source:** reddit/r/WhitePeopleTwitter
+**Total:** 8 memes | Refresh every 10 min
 
 ---
 
-## Word association Schoolboy Q
-![Word association Schoolboy Q](20260427-002-word-association-schoolboy-q/image.jpg)
-**Score:** 1,515 | **Source:** reddit/r/BlackPeopleTwitter
+## Turns out people don't like it when their work is stolen
+![Turns out people don't like it when thei](20260427-001-turns-out-people-dont-like-it-when-their/image.jpg)
+**Score:** 100 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260427-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,408 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## She won't, but still, the leopards are eating each other.
+![She won't, but still, the leopards are e](20260427-003-she-wont-but-still-the-leopards-are-eati/image.jpg)
+**Score:** 3,222 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260427-004-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,145 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260427-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260427-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,184 | **Source:** reddit/r/facepalm
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260427-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 831 | **Source:** reddit/r/facepalm
+## This surely must be a major loss for Glitch Productions...
+![This surely must be a major loss for Gli](20260427-006-this-surely-must-be-a-major-loss-for-gli/image.jpg)
+**Score:** 95 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260427-005-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,087 | **Source:** reddit/r/technicallythetruth
+## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
+![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260427-007-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
+**Score:** 1,499 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Some inflation is good
-![Some inflation is good](20260427-006-some-inflation-is-good/image.jpg)
-**Score:** 15,690 | **Source:** reddit/r/technicallythetruth
-
----
-
-## Just slightly...
-![Just slightly...](20260427-007-just-slightly/image.jpg)
-**Score:** 525 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## Bingo's eyes are lookin a little sus.
-![Bingo's eyes are lookin a little sus.](20260427-008-bingos-eyes-are-lookin-a-little-sus/image.jpg)
-**Score:** 243 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260427-009-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 418 | **Source:** reddit/r/oddlyspecific
-
----
-
-## AI is everywhere
-![AI is everywhere](20260427-010-ai-is-everywhere/image.jpg)
-**Score:** 1,021 | **Source:** reddit/r/HolUp
-
----
-
-## Strategy: 100
-![Strategy: 100](20260427-011-strategy-100/image.jpg)
-**Score:** 141 | **Source:** reddit/r/dankmemes
-
----
-
-## And do it as slow as possible
-![And do it as slow as possible](20260427-012-and-do-it-as-slow-as-possible/image.jpg)
-**Score:** 301 | **Source:** reddit/r/memes
-
----
-
-## The middle class: :(
-![The middle class: :(](20260427-013-the-middle-class/image.jpg)
-**Score:** 96 | **Source:** reddit/r/dankmemes
-
----
-
-## Couldn't be me
-![Couldn't be me](20260427-014-couldnt-be-me/image.jpg)
-**Score:** 2,422 | **Source:** reddit/r/dankmemes
-
----
-
-## Average CarX online interaction.
-![Average CarX online interaction.](20260427-015-average-carx-online-interaction/image.jpg)
-**Score:** 62 | **Source:** reddit/r/dankmemes
-
----
-
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260427-016-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 439 | **Source:** reddit/r/dankmemes
-
----
-
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260427-017-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 397 | **Source:** reddit/r/memes
-
----
-
-## Did you see Piers Morgan wreck Russell Brand last night?
-![Did you see Piers Morgan wreck Russell B](20260427-018-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
-**Score:** 586 | **Source:** reddit/r/memes
-
----
-
-## Sometimes it just comes out :(
-![Sometimes it just comes out :(](20260427-019-sometimes-it-just-comes-out/image.jpg)
-**Score:** 84 | **Source:** reddit/r/dankmemes
-
----
-
-## Can't Unsee It
-![Can't Unsee It](20260427-020-cant-unsee-it/image.jpg)
-**Score:** 109 | **Source:** reddit/r/dankmemes
+## Among us irl 🤯
+![Among us irl 🤯](20260427-008-among-us-irl/image.jpg)
+**Score:** 238 | **Source:** reddit/r/suspiciouslyspecific
 
 ---

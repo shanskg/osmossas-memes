@@ -1,54 +1,54 @@
-# Meme Feed — 2026-04-26 15:13
+# Meme Feed — 2026-04-26 15:32
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
+## Accountability is literally not a word in their lexicon
+![Accountability is literally not a word i](20260426-001-accountability-is-literally-not-a-word-i/image.jpg)
+**Score:** 3,525 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
 ## They still won't release the Epstein Files
-![They still won't release the Epstein Fil](20260426-001-they-still-wont-release-the-epstein-file/image.jpg)
+![They still won't release the Epstein Fil](20260426-002-they-still-wont-release-the-epstein-file/image.jpg)
 **Score:** 146 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260426-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 5,104 | **Source:** reddit/r/BlackPeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260426-003-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,761 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## He's really on top
-![He's really on top](20260426-003-hes-really-on-top/image.jpg)
-**Score:** 1,936 | **Source:** reddit/r/BlackPeopleTwitter
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260426-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,369 | **Source:** reddit/r/facepalm
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260426-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 830 | **Source:** reddit/r/facepalm
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260426-005-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 1,475 | **Source:** reddit/r/facepalm
 
 ---
 
-## 125 per hour in Oregon
-![125 per hour in Oregon](20260426-005-125-per-hour-in-oregon/image.jpg)
-**Score:** 12,642 | **Source:** reddit/r/technicallythetruth
+## Some inflation is good
+![Some inflation is good](20260426-006-some-inflation-is-good/image.jpg)
+**Score:** 15,683 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Super rich or bus driver?
-![Super rich or bus driver?](20260426-006-super-rich-or-bus-driver/image.jpg)
-**Score:** 31,018 | **Source:** reddit/r/technicallythetruth
+## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
+![It's anthropomorphism because nature has](20260426-007-its-anthropomorphism-because-nature-has-/image.jpg)
+**Score:** 115 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## imposter syndrome (among us disease)
-![imposter syndrome (among us disease)](20260426-007-imposter-syndrome-among-us-disease/image.jpg)
-**Score:** 2,246 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## geometry sus
-![geometry sus](20260426-008-geometry-sus/image.jpg)
-**Score:** 77 | **Source:** reddit/r/suspiciouslyspecific
+## Guess what game this is (hint it has among us in the name)
+![Guess what game this is (hint it has amo](20260426-008-guess-what-game-this-is-hint-it-has-amon/image.jpg)
+**Score:** 158 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
@@ -58,15 +58,15 @@
 
 ---
 
-## I need a new mechanic…
-![I need a new mechanic…](20260426-010-i-need-a-new-mechanic/image.jpg)
-**Score:** 177 | **Source:** reddit/r/dankmemes
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260426-010-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 643 | **Source:** reddit/r/HolUp
 
 ---
 
-## well....75% of the code is AI written....soo.....
-![well....75% of the code is AI written...](20260426-011-well75-of-the-code-is-ai-writtensoo/image.jpg)
-**Score:** 302 | **Source:** reddit/r/memes
+## Futabu anyone ???
+![Futabu anyone ???](20260426-011-futabu-anyone/image.jpg)
+**Score:** 2,329 | **Source:** reddit/r/HolUp
 
 ---
 
@@ -76,27 +76,27 @@
 
 ---
 
-## International memes
-![International memes](20260426-013-international-memes/image.jpg)
-**Score:** 141 | **Source:** reddit/r/dankmemes
-
----
-
-## Same same but different.
-![Same same but different.](20260426-014-same-same-but-different/image.jpg)
-**Score:** 1,694 | **Source:** reddit/r/dankmemes
+## well....75% of the code is AI written....soo.....
+![well....75% of the code is AI written...](20260426-013-well75-of-the-code-is-ai-writtensoo/image.jpg)
+**Score:** 302 | **Source:** reddit/r/memes
 
 ---
 
 ## Average CarX online interaction.
-![Average CarX online interaction.](20260426-015-average-carx-online-interaction/image.jpg)
+![Average CarX online interaction.](20260426-014-average-carx-online-interaction/image.jpg)
 **Score:** 66 | **Source:** reddit/r/dankmemes
 
 ---
 
-## every tiny thing looks suspicious at 3am
-![every tiny thing looks suspicious at 3am](20260426-016-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
-**Score:** 143 | **Source:** reddit/r/memes
+## This is the way- the eyes splitter
+![This is the way- the eyes splitter](20260426-015-this-is-the-way-the-eyes-splitter/image.jpg)
+**Score:** 260 | **Source:** reddit/r/memes
+
+---
+
+## I need a new mechanic…
+![I need a new mechanic…](20260426-016-i-need-a-new-mechanic/image.jpg)
+**Score:** 177 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -106,20 +106,20 @@
 
 ---
 
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260426-018-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 260 | **Source:** reddit/r/memes
+## International memes
+![International memes](20260426-018-international-memes/image.jpg)
+**Score:** 141 | **Source:** reddit/r/dankmemes
 
 ---
 
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260426-019-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 3,509 | **Source:** reddit/r/dankmemes
+## Same same but different.
+![Same same but different.](20260426-019-same-same-but-different/image.jpg)
+**Score:** 1,694 | **Source:** reddit/r/dankmemes
 
 ---
 
-## poisonous animal
-![poisonous animal](20260426-020-poisonous-animal/image.jpg)
-**Score:** 129 | **Source:** reddit/r/dankmemes
+## every tiny thing looks suspicious at 3am
+![every tiny thing looks suspicious at 3am](20260426-020-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
+**Score:** 143 | **Source:** reddit/r/memes
 
 ---

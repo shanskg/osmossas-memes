@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-26 11:20
+# Meme Feed — 2026-04-26 11:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## The press has three completely different stories
-![The press has three completely different](20260426-001-the-press-has-three-completely-different/image.jpg)
-**Score:** 268 | **Source:** reddit/r/WhitePeopleTwitter
+## The creative director of INFOWARS has a message for Alex Jones
+![The creative director of INFOWARS has a ](20260426-001-the-creative-director-of-infowars-has-a-/image.jpg)
+**Score:** 496 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## "I'm a very cost-conscious person' says the man who bankrupted casinos and wants
-!["I'm a very cost-conscious person' says ](20260426-002-im-a-very-cost-conscious-person-says-the/image.jpg)
-**Score:** 634 | **Source:** reddit/r/WhitePeopleTwitter
+## Not a Good Start, INDEED!
+![Not a Good Start, INDEED!](20260426-002-not-a-good-start-indeed/image.jpg)
+**Score:** 633 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## She was a honeypot deployed to provide updates on their progress
-![She was a honeypot deployed to provide u](20260426-003-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
-**Score:** 12,496 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260426-004-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,414 | **Source:** reddit/r/BlackPeopleTwitter
+## skins vs skins
+![skins vs skins](20260426-003-skins-vs-skins/image.jpg)
+**Score:** 1,012 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260426-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260426-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,173 | **Source:** reddit/r/facepalm
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260426-006-well-did-they-accept-or-not/image.jpg)
-**Score:** 837 | **Source:** reddit/r/facepalm
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260426-005-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 1,442 | **Source:** reddit/r/facepalm
 
 ---
 
-## It's easy to find a 1-step solution if the prior guesses weren't considered.
-![It's easy to find a 1-step solution if t](20260426-007-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
-**Score:** 2,409 | **Source:** reddit/r/technicallythetruth
+## Some inflation is good
+![Some inflation is good](20260426-006-some-inflation-is-good/image.jpg)
+**Score:** 15,684 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
-![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260426-008-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
-**Score:** 1,471 | **Source:** reddit/r/technicallythetruth
-
----
-
-## Among us irl 🤯
-![Among us irl 🤯](20260426-009-among-us-irl/image.jpg)
-**Score:** 233 | **Source:** reddit/r/suspiciouslyspecific
+## i just opened youtube
+![i just opened youtube](20260426-007-i-just-opened-youtube/image.jpg)
+**Score:** 8,972 | **Source:** reddit/r/technicallythetruth
 
 ---
 
 ## Johnny SusStar
-![Johnny SusStar](20260426-010-johnny-susstar/image.jpg)
+![Johnny SusStar](20260426-008-johnny-susstar/image.jpg)
 **Score:** 74 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260426-011-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 417 | **Source:** reddit/r/oddlyspecific
+## Who is your fav Cambodian gas station explosion survivor that is pregnant?
+![Who is your fav Cambodian gas station ex](20260426-009-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
+**Score:** 1,589 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260426-012-futabu-anyone/image.jpg)
-**Score:** 2,329 | **Source:** reddit/r/HolUp
+## Darker and darker
+![Darker and darker](20260426-010-darker-and-darker/image.jpg)
+**Score:** 281 | **Source:** reddit/r/HolUp
 
 ---
 
 ## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260426-013-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+![“Godzilla really pulled up on Lady Liber](20260426-011-godzilla-really-pulled-up-on-lady-libert/image.jpg)
 **Score:** 644 | **Source:** reddit/r/HolUp
 
 ---
 
-## The middle class: :(
-![The middle class: :(](20260426-014-the-middle-class/image.jpg)
-**Score:** 89 | **Source:** reddit/r/dankmemes
-
----
-
-## Inescapable
-![Inescapable](20260426-015-inescapable/image.jpg)
-**Score:** 125 | **Source:** reddit/r/dankmemes
-
----
-
-## Strategy: 100
-![Strategy: 100](20260426-016-strategy-100/image.jpg)
-**Score:** 118 | **Source:** reddit/r/dankmemes
-
----
-
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260426-017-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 222 | **Source:** reddit/r/memes
-
----
-
 ## every tiny thing looks suspicious at 3am
-![every tiny thing looks suspicious at 3am](20260426-018-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
+![every tiny thing looks suspicious at 3am](20260426-012-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
 **Score:** 103 | **Source:** reddit/r/memes
 
 ---
 
-## Not all dogs
-![Not all dogs](20260426-019-not-all-dogs/image.jpg)
-**Score:** 63 | **Source:** reddit/r/dankmemes
+## Got to time it just right before the ambulance comes
+![Got to time it just right before the amb](20260426-013-got-to-time-it-just-right-before-the-amb/image.jpg)
+**Score:** 56 | **Source:** reddit/r/dankmemes
 
 ---
 
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260426-020-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,387 | **Source:** reddit/r/dankmemes
+## Strategy: 100
+![Strategy: 100](20260426-014-strategy-100/image.jpg)
+**Score:** 118 | **Source:** reddit/r/dankmemes
+
+---
+
+## Why are so many men like this? Based on real facts
+![Why are so many men like this? Based on ](20260426-015-why-are-so-many-men-like-this-based-on-r/image.jpg)
+**Score:** 2,772 | **Source:** reddit/r/memes
+
+---
+
+## They're the same person!
+![They're the same person!](20260426-016-theyre-the-same-person/image.jpg)
+**Score:** 64 | **Source:** reddit/r/dankmemes
+
+---
+
+## Same same but different.
+![Same same but different.](20260426-017-same-same-but-different/image.jpg)
+**Score:** 1,702 | **Source:** reddit/r/dankmemes
+
+---
+
+## This is the way- the eyes splitter
+![This is the way- the eyes splitter](20260426-018-this-is-the-way-the-eyes-splitter/image.jpg)
+**Score:** 222 | **Source:** reddit/r/memes
+
+---
+
+## Teachers be like
+![Teachers be like](20260426-019-teachers-be-like/image.jpg)
+**Score:** 78 | **Source:** reddit/r/memes
+
+---
+
+## poisonous animal
+![poisonous animal](20260426-020-poisonous-animal/image.jpg)
+**Score:** 127 | **Source:** reddit/r/dankmemes
 
 ---

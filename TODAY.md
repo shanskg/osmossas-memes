@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-26 08:10
+# Meme Feed — 2026-04-26 08:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## america is being run by first world criminals
-![america is being run by first world crim](20260426-001-america-is-being-run-by-first-world-crim/image.jpg)
-**Score:** 2,569 | **Source:** reddit/r/WhitePeopleTwitter
+## How to lose a job : part 1.
+![How to lose a job : part 1.](20260426-001-how-to-lose-a-job-part-1/image.jpg)
+**Score:** 165 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## He's really on top
-![He's really on top](20260426-002-hes-really-on-top/image.jpg)
-**Score:** 1,946 | **Source:** reddit/r/BlackPeopleTwitter
+## They are painting the reflecting pool blue.
+![They are painting the reflecting pool bl](20260426-002-they-are-painting-the-reflecting-pool-bl/image.jpg)
+**Score:** 2,776 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260426-003-well-did-they-accept-or-not/image.jpg)
-**Score:** 831 | **Source:** reddit/r/facepalm
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260426-003-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,417 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260426-004-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,412 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260426-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,369 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260426-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260426-006-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,176 | **Source:** reddit/r/facepalm
 
 ---
 
-## 125 per hour in Oregon
-![125 per hour in Oregon](20260426-005-125-per-hour-in-oregon/image.jpg)
-**Score:** 12,638 | **Source:** reddit/r/technicallythetruth
+## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
+![It's anthropomorphism because nature has](20260426-007-its-anthropomorphism-because-nature-has-/image.jpg)
+**Score:** 117 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## He did NOT dodge a bullet
-![He did NOT dodge a bullet](20260426-006-he-did-not-dodge-a-bullet/image.jpg)
-**Score:** 42,255 | **Source:** reddit/r/technicallythetruth
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260426-008-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,411 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## imposter syndrome (among us disease)
-![imposter syndrome (among us disease)](20260426-007-imposter-syndrome-among-us-disease/image.jpg)
-**Score:** 2,244 | **Source:** reddit/r/suspiciouslyspecific
+## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
+![If I go to a cookout and bite a hot dog ](20260426-009-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
+**Score:** 261 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Dippers shadow in this episode of Gravity Falls
-![Dippers shadow in this episode of Gravit](20260426-008-dippers-shadow-in-this-episode-of-gravit/image.jpg)
-**Score:** 1,088 | **Source:** reddit/r/suspiciouslyspecific
+## Futabu anyone ???
+![Futabu anyone ???](20260426-010-futabu-anyone/image.jpg)
+**Score:** 2,331 | **Source:** reddit/r/HolUp
 
 ---
 
-## Don't do that
-![Don't do that](20260426-009-dont-do-that/image.jpg)
-**Score:** 339 | **Source:** reddit/r/oddlyspecific
-
----
-
-## AI is everywhere
-![AI is everywhere](20260426-010-ai-is-everywhere/image.jpg)
-**Score:** 1,003 | **Source:** reddit/r/HolUp
-
----
-
-## They're the same person!
-![They're the same person!](20260426-011-theyre-the-same-person/image.jpg)
-**Score:** 64 | **Source:** reddit/r/dankmemes
-
----
-
-## That is the worst
-![That is the worst](20260426-012-that-is-the-worst/image.jpg)
-**Score:** 6,249 | **Source:** reddit/r/dankmemes
-
----
-
-## Can't Unsee It
-![Can't Unsee It](20260426-013-cant-unsee-it/image.jpg)
-**Score:** 82 | **Source:** reddit/r/dankmemes
-
----
-
-## food waste
-![food waste](20260426-014-food-waste/image.jpg)
-**Score:** 417 | **Source:** reddit/r/dankmemes
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260426-011-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 73 | **Source:** reddit/r/HolUp
 
 ---
 
 ## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260426-015-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 163 | **Source:** reddit/r/memes
+![This is the way- the eyes splitter](20260426-012-this-is-the-way-the-eyes-splitter/image.jpg)
+**Score:** 194 | **Source:** reddit/r/memes
+
+---
+
+## Not all dogs
+![Not all dogs](20260426-013-not-all-dogs/image.jpg)
+**Score:** 59 | **Source:** reddit/r/dankmemes
+
+---
+
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260426-014-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 432 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260426-016-why-are-so-many-men-like-this-based-on-r/image.jpg)
+![Why are so many men like this? Based on ](20260426-015-why-are-so-many-men-like-this-based-on-r/image.jpg)
 **Score:** 2,761 | **Source:** reddit/r/memes
+
+---
+
+## poisonous animal
+![poisonous animal](20260426-016-poisonous-animal/image.jpg)
+**Score:** 126 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## brøther, I cräve the forbidden lämp
 ![brøther, I cräve the forbidden lämp](20260426-017-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,352 | **Source:** reddit/r/dankmemes
+**Score:** 3,377 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Lets go im safe
-![Lets go im safe](20260426-018-lets-go-im-safe/image.jpg)
-**Score:** 1,081 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260426-018-that-is-the-worst/image.jpg)
+**Score:** 6,256 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260426-019-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 422 | **Source:** reddit/r/dankmemes
+## They're the same person!
+![They're the same person!](20260426-019-theyre-the-same-person/image.jpg)
+**Score:** 67 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Strategy: 100
-![Strategy: 100](20260426-020-strategy-100/image.jpg)
-**Score:** 94 | **Source:** reddit/r/dankmemes
+## Teachers be like
+![Teachers be like](20260426-020-teachers-be-like/image.jpg)
+**Score:** 73 | **Source:** reddit/r/memes
 
 ---

@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-27 04:30
+# Meme Feed — 2026-04-27 04:40
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260427-001-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,074 | **Source:** reddit/r/BlackPeopleTwitter
+## OH brother
+![OH brother](20260427-001-oh-brother/image.jpg)
+**Score:** 4,829 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260427-002-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,183 | **Source:** reddit/r/facepalm
+## She won't, but still, the leopards are eating each other.
+![She won't, but still, the leopards are e](20260427-002-she-wont-but-still-the-leopards-are-eati/image.jpg)
+**Score:** 3,222 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260427-003-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,141 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260427-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,369 | **Source:** reddit/r/facepalm
 
 ---
 
-## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
-![It's anthropomorphism because nature has](20260427-004-its-anthropomorphism-because-nature-has-/image.jpg)
-**Score:** 127 | **Source:** reddit/r/technicallythetruth
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260427-004-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 1,634 | **Source:** reddit/r/facepalm
 
 ---
 
-## 125 per hour in Oregon
-![125 per hour in Oregon](20260427-005-125-per-hour-in-oregon/image.jpg)
-**Score:** 12,642 | **Source:** reddit/r/technicallythetruth
+## We exist, don't we?
+![We exist, don't we?](20260427-005-we-exist-dont-we/image.jpg)
+**Score:** 2,768 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## I'm too lazy to take a picture, so I made a drawing more time consuming but anyw
-![I'm too lazy to take a picture, so I mad](20260427-006-im-too-lazy-to-take-a-picture-so-i-made-/image.jpg)
-**Score:** 212 | **Source:** reddit/r/suspiciouslyspecific
+## intelligence is not dangerous
+![intelligence is not dangerous](20260427-006-intelligence-is-not-dangerous/image.jpg)
+**Score:** 49,188 | **Source:** reddit/r/technicallythetruth
+
+---
+
+## How did none of you notice this?
+![How did none of you notice this?](20260427-007-how-did-none-of-you-notice-this/image.jpg)
+**Score:** 1,080 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## Don't do that
+![Don't do that](20260427-008-dont-do-that/image.jpg)
+**Score:** 342 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260427-009-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 78 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260427-007-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+![“Godzilla really pulled up on Lady Liber](20260427-010-godzilla-really-pulled-up-on-lady-libert/image.jpg)
 **Score:** 645 | **Source:** reddit/r/HolUp
 
 ---
 
-## Lol my homework
-![Lol my homework](20260427-008-lol-my-homework/image.jpg)
-**Score:** 90 | **Source:** reddit/r/memes
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260427-011-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 439 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I cannot emphasise enough how much I mean the dog and not me
-![I cannot emphasise enough how much I mea](20260427-009-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
-**Score:** 277 | **Source:** reddit/r/memes
-
----
-
-## And do it as slow as possible
-![And do it as slow as possible](20260427-010-and-do-it-as-slow-as-possible/image.jpg)
-**Score:** 301 | **Source:** reddit/r/memes
-
----
-
-## Couldn't be me
-![Couldn't be me](20260427-011-couldnt-be-me/image.jpg)
-**Score:** 2,422 | **Source:** reddit/r/dankmemes
-
----
-
-## Inescapable
-![Inescapable](20260427-012-inescapable/image.jpg)
-**Score:** 132 | **Source:** reddit/r/dankmemes
-
----
-
-## Same same but different.
-![Same same but different.](20260427-013-same-same-but-different/image.jpg)
-**Score:** 1,711 | **Source:** reddit/r/dankmemes
-
----
-
-## Not all dogs
-![Not all dogs](20260427-014-not-all-dogs/image.jpg)
-**Score:** 69 | **Source:** reddit/r/dankmemes
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260427-012-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 3,433 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## food waste
-![food waste](20260427-015-food-waste/image.jpg)
+![food waste](20260427-013-food-waste/image.jpg)
 **Score:** 1,326 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Average CarX online interaction.
-![Average CarX online interaction.](20260427-016-average-carx-online-interaction/image.jpg)
-**Score:** 62 | **Source:** reddit/r/dankmemes
+## The middle class: :(
+![The middle class: :(](20260427-014-the-middle-class/image.jpg)
+**Score:** 96 | **Source:** reddit/r/dankmemes
 
 ---
 
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260427-017-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 397 | **Source:** reddit/r/memes
+## No AI, you cannot help me with this
+![No AI, you cannot help me with this](20260427-015-no-ai-you-cannot-help-me-with-this/image.jpg)
+**Score:** 99 | **Source:** reddit/r/memes
 
 ---
 
 ## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260427-018-fatherhood-baaaaad/image.jpg)
+!["Fatherhood baaaaad!!!"](20260427-016-fatherhood-baaaaad/image.jpg)
 **Score:** 3,161 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260427-019-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+![POV: You posted your art online vs. You'](20260427-017-pov-you-posted-your-art-online-vs-youre-/image.jpg)
 **Score:** 3,516 | **Source:** reddit/r/dankmemes
 
 ---
 
-## That is the worst
-![That is the worst](20260427-020-that-is-the-worst/image.jpg)
-**Score:** 6,272 | **Source:** reddit/r/dankmemes
+## Same same but different.
+![Same same but different.](20260427-018-same-same-but-different/image.jpg)
+**Score:** 1,711 | **Source:** reddit/r/dankmemes
+
+---
+
+## Did you see Piers Morgan wreck Russell Brand last night?
+![Did you see Piers Morgan wreck Russell B](20260427-019-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
+**Score:** 586 | **Source:** reddit/r/memes
+
+---
+
+## Being employed sucks sometimes
+![Being employed sucks sometimes](20260427-020-being-employed-sucks-sometimes/image.jpg)
+**Score:** 2,820 | **Source:** reddit/r/memes
 
 ---

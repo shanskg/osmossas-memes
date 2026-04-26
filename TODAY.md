@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-26 11:51
+# Meme Feed — 2026-04-26 12:00
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## He's really on top
-![He's really on top](20260426-001-hes-really-on-top/image.jpg)
-**Score:** 1,943 | **Source:** reddit/r/BlackPeopleTwitter
+## not beating the "it's only bad if you don't bribe me" allegations
+![not beating the "it's only bad if you do](20260426-001-not-beating-the-its-only-bad-if-you-dont/image.jpg)
+**Score:** 60 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Not a Good Start, INDEED!
-![Not a Good Start, INDEED!](20260426-002-not-a-good-start-indeed/image.jpg)
-**Score:** 633 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260426-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,410 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260426-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,173 | **Source:** reddit/r/facepalm
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260426-003-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 1,442 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -28,98 +28,98 @@
 
 ---
 
-## A shower is hot
-![A shower is hot](20260426-005-a-shower-is-hot/image.jpg)
-**Score:** 949 | **Source:** reddit/r/technicallythetruth
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260426-005-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,409 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## My friend sent me this photo
-![My friend sent me this photo](20260426-006-my-friend-sent-me-this-photo/image.jpg)
-**Score:** 845 | **Source:** reddit/r/suspiciouslyspecific
+## Super rich or bus driver?
+![Super rich or bus driver?](20260426-006-super-rich-or-bus-driver/image.jpg)
+**Score:** 31,019 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260426-007-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 77 | **Source:** reddit/r/oddlyspecific
+## My 7 year old would love to know what others think of his drawing! Sus?
+![My 7 year old would love to know what ot](20260426-007-my-7-year-old-would-love-to-know-what-ot/image.jpg)
+**Score:** 1,253 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## Bingo's eyes are lookin a little sus.
+![Bingo's eyes are lookin a little sus.](20260426-008-bingos-eyes-are-lookin-a-little-sus/image.jpg)
+**Score:** 240 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## Don't do that
+![Don't do that](20260426-009-dont-do-that/image.jpg)
+**Score:** 344 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## AI is everywhere
+![AI is everywhere](20260426-010-ai-is-everywhere/image.jpg)
+**Score:** 1,004 | **Source:** reddit/r/HolUp
 
 ---
 
 ## Darker and darker
-![Darker and darker](20260426-008-darker-and-darker/image.jpg)
+![Darker and darker](20260426-011-darker-and-darker/image.jpg)
 **Score:** 281 | **Source:** reddit/r/HolUp
 
 ---
 
+## POV: You posted your art online vs. You're Picasso 😭
+![POV: You posted your art online vs. You'](20260426-012-pov-you-posted-your-art-online-vs-youre-/image.jpg)
+**Score:** 3,507 | **Source:** reddit/r/dankmemes
+
+---
+
 ## poisonous animal
-![poisonous animal](20260426-009-poisonous-animal/image.jpg)
+![poisonous animal](20260426-013-poisonous-animal/image.jpg)
 **Score:** 127 | **Source:** reddit/r/dankmemes
 
 ---
 
-## every tiny thing looks suspicious at 3am
-![every tiny thing looks suspicious at 3am](20260426-010-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
-**Score:** 103 | **Source:** reddit/r/memes
+## Couldn't be me
+![Couldn't be me](20260426-014-couldnt-be-me/image.jpg)
+**Score:** 2,403 | **Source:** reddit/r/dankmemes
+
+---
+
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260426-015-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 438 | **Source:** reddit/r/dankmemes
+
+---
+
+## well....75% of the code is AI written....soo.....
+![well....75% of the code is AI written...](20260426-016-well75-of-the-code-is-ai-writtensoo/image.jpg)
+**Score:** 296 | **Source:** reddit/r/memes
 
 ---
 
 ## Can't Unsee It
-![Can't Unsee It](20260426-011-cant-unsee-it/image.jpg)
+![Can't Unsee It](20260426-017-cant-unsee-it/image.jpg)
 **Score:** 90 | **Source:** reddit/r/dankmemes
 
 ---
 
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260426-012-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 222 | **Source:** reddit/r/memes
-
----
-
 ## Teachers be like
-![Teachers be like](20260426-013-teachers-be-like/image.jpg)
+![Teachers be like](20260426-018-teachers-be-like/image.jpg)
 **Score:** 78 | **Source:** reddit/r/memes
 
 ---
 
 ## Why are so many men like this? Based on real facts
-![Why are so many men like this? Based on ](20260426-014-why-are-so-many-men-like-this-based-on-r/image.jpg)
+![Why are so many men like this? Based on ](20260426-019-why-are-so-many-men-like-this-based-on-r/image.jpg)
 **Score:** 2,772 | **Source:** reddit/r/memes
 
 ---
 
-## Got to time it just right before the ambulance comes
-![Got to time it just right before the amb](20260426-015-got-to-time-it-just-right-before-the-amb/image.jpg)
-**Score:** 56 | **Source:** reddit/r/dankmemes
-
----
-
-## Not all dogs
-![Not all dogs](20260426-016-not-all-dogs/image.jpg)
-**Score:** 63 | **Source:** reddit/r/dankmemes
-
----
-
-## Inescapable
-![Inescapable](20260426-017-inescapable/image.jpg)
-**Score:** 125 | **Source:** reddit/r/dankmemes
-
----
-
 ## International memes
-![International memes](20260426-018-international-memes/image.jpg)
+![International memes](20260426-020-international-memes/image.jpg)
 **Score:** 141 | **Source:** reddit/r/dankmemes
-
----
-
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260426-019-fatherhood-baaaaad/image.jpg)
-**Score:** 3,153 | **Source:** reddit/r/dankmemes
-
----
-
-## Strategy: 100
-![Strategy: 100](20260426-020-strategy-100/image.jpg)
-**Score:** 118 | **Source:** reddit/r/dankmemes
 
 ---

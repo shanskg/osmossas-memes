@@ -1,18 +1,18 @@
-# Meme Feed — 2026-04-27 15:30
+# Meme Feed — 2026-04-27 15:41
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## You can't even talk about basketball anymore
-![You can't even talk about basketball any](20260427-001-you-cant-even-talk-about-basketball-anym/image.jpg)
-**Score:** 1,605 | **Source:** reddit/r/WhitePeopleTwitter
+## Here's a tip for you, Donnie
+![Here's a tip for you, Donnie](20260427-001-heres-a-tip-for-you-donnie/image.jpg)
+**Score:** 424 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## OH brother
-![OH brother](20260427-002-oh-brother/image.jpg)
-**Score:** 5,453 | **Source:** reddit/r/WhitePeopleTwitter
+## Turns out people don't like it when their work is stolen
+![Turns out people don't like it when thei](20260427-002-turns-out-people-dont-like-it-when-their/image.jpg)
+**Score:** 108 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
@@ -34,92 +34,92 @@
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260427-006-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,134 | **Source:** reddit/r/facepalm
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260427-006-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,183 | **Source:** reddit/r/facepalm
 
 ---
 
-## We exist, don't we?
-![We exist, don't we?](20260427-007-we-exist-dont-we/image.jpg)
-**Score:** 3,734 | **Source:** reddit/r/technicallythetruth
-
----
-
-## Bingo's eyes are lookin a little sus.
-![Bingo's eyes are lookin a little sus.](20260427-008-bingos-eyes-are-lookin-a-little-sus/image.jpg)
-**Score:** 245 | **Source:** reddit/r/suspiciouslyspecific
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260427-007-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,409 | **Source:** reddit/r/technicallythetruth
 
 ---
 
 ## Futabu anyone ???
-![Futabu anyone ???](20260427-009-futabu-anyone/image.jpg)
+![Futabu anyone ???](20260427-008-futabu-anyone/image.jpg)
 **Score:** 2,355 | **Source:** reddit/r/HolUp
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260427-010-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 644 | **Source:** reddit/r/HolUp
+## No AI, you cannot help me with this
+![No AI, you cannot help me with this](20260427-009-no-ai-you-cannot-help-me-with-this/image.jpg)
+**Score:** 217 | **Source:** reddit/r/memes
 
 ---
 
-## International memes
-![International memes](20260427-011-international-memes/image.jpg)
-**Score:** 169 | **Source:** reddit/r/dankmemes
+## Can't Unsee It
+![Can't Unsee It](20260427-010-cant-unsee-it/image.jpg)
+**Score:** 114 | **Source:** reddit/r/dankmemes
 
 ---
 
-## poisonous animal
-![poisonous animal](20260427-012-poisonous-animal/image.jpg)
-**Score:** 152 | **Source:** reddit/r/dankmemes
-
----
-
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260427-013-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 444 | **Source:** reddit/r/dankmemes
-
----
-
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260427-014-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,461 | **Source:** reddit/r/dankmemes
-
----
-
-## Couldn't be me
-![Couldn't be me](20260427-015-couldnt-be-me/image.jpg)
-**Score:** 2,425 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260427-011-that-is-the-worst/image.jpg)
+**Score:** 6,282 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Being employed sucks sometimes
-![Being employed sucks sometimes](20260427-016-being-employed-sucks-sometimes/image.jpg)
+![Being employed sucks sometimes](20260427-012-being-employed-sucks-sometimes/image.jpg)
 **Score:** 6,229 | **Source:** reddit/r/memes
 
 ---
 
-## And do it as slow as possible
-![And do it as slow as possible](20260427-017-and-do-it-as-slow-as-possible/image.jpg)
-**Score:** 409 | **Source:** reddit/r/memes
+## Lol my homework
+![Lol my homework](20260427-013-lol-my-homework/image.jpg)
+**Score:** 152 | **Source:** reddit/r/memes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260427-014-fatherhood-baaaaad/image.jpg)
+**Score:** 3,173 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Did you see Piers Morgan wreck Russell Brand last night?
-![Did you see Piers Morgan wreck Russell B](20260427-018-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
+![Did you see Piers Morgan wreck Russell B](20260427-015-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
 **Score:** 745 | **Source:** reddit/r/memes
 
 ---
 
-## The middle class: :(
-![The middle class: :(](20260427-019-the-middle-class/image.jpg)
-**Score:** 96 | **Source:** reddit/r/dankmemes
+## Couldn't be me
+![Couldn't be me](20260427-016-couldnt-be-me/image.jpg)
+**Score:** 2,425 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## I present to you... The Ass Hare
-![I present to you... The Ass Hare](20260427-020-i-present-to-you-the-ass-hare/image.jpg)
+![I present to you... The Ass Hare](20260427-017-i-present-to-you-the-ass-hare/image.jpg)
 **Score:** 114 | **Source:** reddit/r/memes
+
+---
+
+## It was funny
+![It was funny](20260427-018-it-was-funny/image.jpg)
+**Score:** 8,705 | **Source:** reddit/r/dankmemes
+
+---
+
+## Strategy: 100
+![Strategy: 100](20260427-019-strategy-100/image.jpg)
+**Score:** 152 | **Source:** reddit/r/dankmemes
+
+---
+
+## Sometimes it just comes out :(
+![Sometimes it just comes out :(](20260427-020-sometimes-it-just-comes-out/image.jpg)
+**Score:** 113 | **Source:** reddit/r/dankmemes
 
 ---

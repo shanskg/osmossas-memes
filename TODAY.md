@@ -1,72 +1,72 @@
-# Meme Feed — 2026-04-27 17:12
+# Meme Feed — 2026-04-27 17:22
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## skins vs skins
-![skins vs skins](20260427-001-skins-vs-skins/image.jpg)
-**Score:** 1,017 | **Source:** reddit/r/BlackPeopleTwitter
+## "I'm a very cost-conscious person' says the man who bankrupted casinos and wants
+!["I'm a very cost-conscious person' says ](20260427-001-im-a-very-cost-conscious-person-says-the/image.jpg)
+**Score:** 744 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## She was a honeypot deployed to provide updates on their progress
+![She was a honeypot deployed to provide u](20260427-002-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
+**Score:** 13,185 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260427-002-well-did-they-accept-or-not/image.jpg)
+![Well? Did they accept or not?](20260427-003-well-did-they-accept-or-not/image.jpg)
 **Score:** 829 | **Source:** reddit/r/facepalm
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260427-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,369 | **Source:** reddit/r/facepalm
+## Super rich or bus driver?
+![Super rich or bus driver?](20260427-004-super-rich-or-bus-driver/image.jpg)
+**Score:** 31,018 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
-![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260427-004-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
-**Score:** 1,501 | **Source:** reddit/r/technicallythetruth
+## He didn't sound like much of anything in there
+![He didn't sound like much of anything in](20260427-005-he-didnt-sound-like-much-of-anything-in-/image.jpg)
+**Score:** 1,840 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The detective didn't find it
-![The detective didn't find it](20260427-005-the-detective-didnt-find-it/image.jpg)
-**Score:** 33,791 | **Source:** reddit/r/technicallythetruth
+## I'm too lazy to take a picture, so I made a drawing more time consuming but anyw
+![I'm too lazy to take a picture, so I mad](20260427-006-im-too-lazy-to-take-a-picture-so-i-made-/image.jpg)
+**Score:** 214 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Among us irl 🤯
-![Among us irl 🤯](20260427-006-among-us-irl/image.jpg)
-**Score:** 238 | **Source:** reddit/r/suspiciouslyspecific
+## When the sausages are sus
+![When the sausages are sus](20260427-007-when-the-sausages-are-sus/image.jpg)
+**Score:** 103 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Who is your fav Cambodian gas station explosion survivor that is pregnant?
-![Who is your fav Cambodian gas station ex](20260427-007-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
-**Score:** 1,617 | **Source:** reddit/r/oddlyspecific
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260427-008-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 78 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260427-008-an-augmented-reality-sandbox/image.jpg)
-**Score:** 608 | **Source:** reddit/r/HolUp
+## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
+![If I go to a cookout and bite a hot dog ](20260427-009-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
+**Score:** 264 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Darker and darker
-![Darker and darker](20260427-009-darker-and-darker/image.jpg)
-**Score:** 285 | **Source:** reddit/r/HolUp
+## Great.  Thanks for creating these board name ideas for me, Pinterest.
+![Great.  Thanks for creating these board ](20260427-010-great-thanks-for-creating-these-board-na/image.jpg)
+**Score:** 95 | **Source:** reddit/r/HolUp
 
 ---
 
-## No AI, you cannot help me with this
-![No AI, you cannot help me with this](20260427-010-no-ai-you-cannot-help-me-with-this/image.jpg)
-**Score:** 230 | **Source:** reddit/r/memes
-
----
-
-## And do it as slow as possible
-![And do it as slow as possible](20260427-011-and-do-it-as-slow-as-possible/image.jpg)
-**Score:** 417 | **Source:** reddit/r/memes
+## Oh man....
+![Oh man....](20260427-011-oh-man/image.jpg)
+**Score:** 250 | **Source:** reddit/r/memes
 
 ---
 
@@ -82,44 +82,44 @@
 
 ---
 
+## When life gives you shawarma instead of problems
+![When life gives you shawarma instead of ](20260427-014-when-life-gives-you-shawarma-instead-of-/image.jpg)
+**Score:** 135 | **Source:** reddit/r/memes
+
+---
+
+## No AI, you cannot help me with this
+![No AI, you cannot help me with this](20260427-015-no-ai-you-cannot-help-me-with-this/image.jpg)
+**Score:** 230 | **Source:** reddit/r/memes
+
+---
+
 ## Couldn't be me
-![Couldn't be me](20260427-014-couldnt-be-me/image.jpg)
+![Couldn't be me](20260427-016-couldnt-be-me/image.jpg)
 **Score:** 2,421 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Lol my homework
-![Lol my homework](20260427-015-lol-my-homework/image.jpg)
-**Score:** 161 | **Source:** reddit/r/memes
-
----
-
 ## International memes
-![International memes](20260427-016-international-memes/image.jpg)
+![International memes](20260427-017-international-memes/image.jpg)
 **Score:** 168 | **Source:** reddit/r/dankmemes
 
 ---
 
-## This is why the picture in your left is MUCH better.
-![This is why the picture in your left is ](20260427-017-this-is-why-the-picture-in-your-left-is-/image.jpg)
-**Score:** 344 | **Source:** reddit/r/memes
+## And do it as slow as possible
+![And do it as slow as possible](20260427-018-and-do-it-as-slow-as-possible/image.jpg)
+**Score:** 417 | **Source:** reddit/r/memes
 
 ---
 
-## money money money
-![money money money](20260427-018-money-money-money/image.jpg)
-**Score:** 105 | **Source:** reddit/r/memes
+## bruh really
+![bruh really](20260427-019-bruh-really/image.jpg)
+**Score:** 7,122 | **Source:** reddit/r/memes
 
 ---
 
-## Oh man....
-![Oh man....](20260427-019-oh-man/image.jpg)
-**Score:** 250 | **Source:** reddit/r/memes
-
----
-
-## When life gives you shawarma instead of problems
-![When life gives you shawarma instead of ](20260427-020-when-life-gives-you-shawarma-instead-of-/image.jpg)
-**Score:** 135 | **Source:** reddit/r/memes
+## Did you see Piers Morgan wreck Russell Brand last night?
+![Did you see Piers Morgan wreck Russell B](20260427-020-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
+**Score:** 758 | **Source:** reddit/r/memes
 
 ---

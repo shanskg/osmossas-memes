@@ -1,90 +1,90 @@
-# Meme Feed — 2026-04-27 11:21
+# Meme Feed — 2026-04-27 11:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## A sane nation would take Fox off the air.
-![A sane nation would take Fox off the air](20260427-001-a-sane-nation-would-take-fox-off-the-air/image.jpg)
-**Score:** 373 | **Source:** reddit/r/WhitePeopleTwitter
+## "I'm a very cost-conscious person' says the man who bankrupted casinos and wants
+!["I'm a very cost-conscious person' says ](20260427-001-im-a-very-cost-conscious-person-says-the/image.jpg)
+**Score:** 743 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## skins vs skins
-![skins vs skins](20260427-002-skins-vs-skins/image.jpg)
-**Score:** 1,014 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260427-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 5,181 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260427-003-well-did-they-accept-or-not/image.jpg)
-**Score:** 837 | **Source:** reddit/r/facepalm
+## She won't, but still, the leopards are eating each other.
+![She won't, but still, the leopards are e](20260427-003-she-wont-but-still-the-leopards-are-eati/image.jpg)
+**Score:** 4,220 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Some inflation is good
-![Some inflation is good](20260427-004-some-inflation-is-good/image.jpg)
-**Score:** 15,687 | **Source:** reddit/r/technicallythetruth
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260427-004-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,137 | **Source:** reddit/r/facepalm
 
 ---
 
-## LinkedIn: where I go to be reminded why I don't go on LinkedIn.
-![LinkedIn: where I go to be reminded why ](20260427-005-linkedin-where-i-go-to-be-reminded-why-i/image.jpg)
-**Score:** 3,979 | **Source:** reddit/r/oddlyspecific
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260427-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,170 | **Source:** reddit/r/facepalm
 
 ---
 
-## Darker and darker
-![Darker and darker](20260427-006-darker-and-darker/image.jpg)
-**Score:** 285 | **Source:** reddit/r/HolUp
+## A shower is hot
+![A shower is hot](20260427-006-a-shower-is-hot/image.jpg)
+**Score:** 1,019 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260427-007-futabu-anyone/image.jpg)
-**Score:** 2,348 | **Source:** reddit/r/HolUp
+## intelligence is not dangerous
+![intelligence is not dangerous](20260427-007-intelligence-is-not-dangerous/image.jpg)
+**Score:** 50,597 | **Source:** reddit/r/technicallythetruth
+
+---
+
+## Don't do that
+![Don't do that](20260427-008-dont-do-that/image.jpg)
+**Score:** 343 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260427-009-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,337 | **Source:** reddit/r/HolUp
+
+---
+
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260427-010-an-augmented-reality-sandbox/image.jpg)
+**Score:** 605 | **Source:** reddit/r/HolUp
+
+---
+
+## Being employed sucks sometimes
+![Being employed sucks sometimes](20260427-011-being-employed-sucks-sometimes/image.jpg)
+**Score:** 4,824 | **Source:** reddit/r/memes
+
+---
+
+## food waste
+![food waste](20260427-012-food-waste/image.jpg)
+**Score:** 1,377 | **Source:** reddit/r/dankmemes
+
+---
+
+## The middle class: :(
+![The middle class: :(](20260427-013-the-middle-class/image.jpg)
+**Score:** 93 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Couldn't be me
-![Couldn't be me](20260427-008-couldnt-be-me/image.jpg)
+![Couldn't be me](20260427-014-couldnt-be-me/image.jpg)
 **Score:** 2,426 | **Source:** reddit/r/dankmemes
-
----
-
-## I present to you... The Ass Hare
-![I present to you... The Ass Hare](20260427-009-i-present-to-you-the-ass-hare/image.jpg)
-**Score:** 77 | **Source:** reddit/r/memes
-
----
-
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260427-010-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 445 | **Source:** reddit/r/dankmemes
-
----
-
-## Lol my homework
-![Lol my homework](20260427-011-lol-my-homework/image.jpg)
-**Score:** 132 | **Source:** reddit/r/memes
-
----
-
-## And do it as slow as possible
-![And do it as slow as possible](20260427-012-and-do-it-as-slow-as-possible/image.jpg)
-**Score:** 384 | **Source:** reddit/r/memes
-
----
-
-## Inescapable
-![Inescapable](20260427-013-inescapable/image.jpg)
-**Score:** 137 | **Source:** reddit/r/dankmemes
-
----
-
-## Sometimes it just comes out :(
-![Sometimes it just comes out :(](20260427-014-sometimes-it-just-comes-out/image.jpg)
-**Score:** 104 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -94,32 +94,32 @@
 
 ---
 
-## food waste
-![food waste](20260427-016-food-waste/image.jpg)
-**Score:** 1,377 | **Source:** reddit/r/dankmemes
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260427-016-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 445 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Being employed sucks sometimes
-![Being employed sucks sometimes](20260427-017-being-employed-sucks-sometimes/image.jpg)
-**Score:** 4,824 | **Source:** reddit/r/memes
-
----
-
-## I cannot emphasise enough how much I mean the dog and not me
-![I cannot emphasise enough how much I mea](20260427-018-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
-**Score:** 519 | **Source:** reddit/r/memes
+## I present to you... The Ass Hare
+![I present to you... The Ass Hare](20260427-017-i-present-to-you-the-ass-hare/image.jpg)
+**Score:** 77 | **Source:** reddit/r/memes
 
 ---
 
 ## No AI, you cannot help me with this
-![No AI, you cannot help me with this](20260427-019-no-ai-you-cannot-help-me-with-this/image.jpg)
+![No AI, you cannot help me with this](20260427-018-no-ai-you-cannot-help-me-with-this/image.jpg)
 **Score:** 193 | **Source:** reddit/r/memes
 
 ---
 
 ## bruh really
-![bruh really](20260427-020-bruh-really/image.jpg)
+![bruh really](20260427-019-bruh-really/image.jpg)
 **Score:** 3,680 | **Source:** reddit/r/memes
+
+---
+
+## And do it as slow as possible
+![And do it as slow as possible](20260427-020-and-do-it-as-slow-as-possible/image.jpg)
+**Score:** 384 | **Source:** reddit/r/memes
 
 ---

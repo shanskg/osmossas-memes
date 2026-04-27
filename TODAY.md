@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-27 13:10
+# Meme Feed — 2026-04-27 13:21
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## The acting Attorney General doesn't want us asking how someone was able to cross
-![The acting Attorney General doesn't want](20260427-001-the-acting-attorney-general-doesnt-want-/image.jpg)
-**Score:** 2,033 | **Source:** reddit/r/WhitePeopleTwitter
-
----
-
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260427-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,078 | **Source:** reddit/r/BlackPeopleTwitter
+## She was a honeypot deployed to provide updates on their progress
+![She was a honeypot deployed to provide u](20260427-001-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
+**Score:** 13,132 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## skins vs skins
-![skins vs skins](20260427-003-skins-vs-skins/image.jpg)
+![skins vs skins](20260427-002-skins-vs-skins/image.jpg)
 **Score:** 1,016 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260427-003-well-did-they-accept-or-not/image.jpg)
+**Score:** 837 | **Source:** reddit/r/facepalm
 
 ---
 
@@ -28,75 +28,75 @@
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260427-005-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 1,748 | **Source:** reddit/r/facepalm
+## 125 per hour in Oregon
+![125 per hour in Oregon](20260427-005-125-per-hour-in-oregon/image.jpg)
+**Score:** 12,646 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## We exist, don't we?
-![We exist, don't we?](20260427-006-we-exist-dont-we/image.jpg)
-**Score:** 3,582 | **Source:** reddit/r/technicallythetruth
+## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
+![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260427-006-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
+**Score:** 11,663 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## found an old notebook from 6th grade
-![found an old notebook from 6th grade](20260427-007-found-an-old-notebook-from-6th-grade/image.jpg)
-**Score:** 5,696 | **Source:** reddit/r/suspiciouslyspecific
+## SUStainable Copper
+![SUStainable Copper](20260427-007-sustainable-copper/image.jpg)
+**Score:** 260 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## among oose
-![among oose](20260427-008-among-oose/image.jpg)
-**Score:** 523 | **Source:** reddit/r/suspiciouslyspecific
+## Who is your fav Cambodian gas station explosion survivor that is pregnant?
+![Who is your fav Cambodian gas station ex](20260427-008-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
+**Score:** 1,618 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## The chance of someone being able to answer this is very slim.
-![The chance of someone being able to answ](20260427-009-the-chance-of-someone-being-able-to-answ/image.jpg)
-**Score:** 74 | **Source:** reddit/r/oddlyspecific
+## I need a new mechanic…
+![I need a new mechanic…](20260427-009-i-need-a-new-mechanic/image.jpg)
+**Score:** 191 | **Source:** reddit/r/dankmemes
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260427-010-an-augmented-reality-sandbox/image.jpg)
-**Score:** 600 | **Source:** reddit/r/HolUp
-
----
-
-## Great.  Thanks for creating these board name ideas for me, Pinterest.
-![Great.  Thanks for creating these board ](20260427-011-great-thanks-for-creating-these-board-na/image.jpg)
-**Score:** 86 | **Source:** reddit/r/HolUp
-
----
-
-## I present to you... The Ass Hare
-![I present to you... The Ass Hare](20260427-012-i-present-to-you-the-ass-hare/image.jpg)
-**Score:** 99 | **Source:** reddit/r/memes
-
----
-
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260427-013-fatherhood-baaaaad/image.jpg)
-**Score:** 3,165 | **Source:** reddit/r/dankmemes
-
----
-
-## One man army barricading himself
-![One man army barricading himself](20260427-014-one-man-army-barricading-himself/image.jpg)
-**Score:** 55 | **Source:** reddit/r/dankmemes
-
----
-
-## Strategy: 100
-![Strategy: 100](20260427-015-strategy-100/image.jpg)
-**Score:** 147 | **Source:** reddit/r/dankmemes
+## Sometimes it just comes out :(
+![Sometimes it just comes out :(](20260427-010-sometimes-it-just-comes-out/image.jpg)
+**Score:** 107 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Did you see Piers Morgan wreck Russell Brand last night?
-![Did you see Piers Morgan wreck Russell B](20260427-016-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
+![Did you see Piers Morgan wreck Russell B](20260427-011-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
 **Score:** 722 | **Source:** reddit/r/memes
+
+---
+
+## That is the worst
+![That is the worst](20260427-012-that-is-the-worst/image.jpg)
+**Score:** 6,276 | **Source:** reddit/r/dankmemes
+
+---
+
+## Lol my homework
+![Lol my homework](20260427-013-lol-my-homework/image.jpg)
+**Score:** 145 | **Source:** reddit/r/memes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260427-014-fatherhood-baaaaad/image.jpg)
+**Score:** 3,165 | **Source:** reddit/r/dankmemes
+
+---
+
+## every tiny thing looks suspicious at 3am
+![every tiny thing looks suspicious at 3am](20260427-015-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
+**Score:** 268 | **Source:** reddit/r/memes
+
+---
+
+## One man army barricading himself
+![One man army barricading himself](20260427-016-one-man-army-barricading-himself/image.jpg)
+**Score:** 55 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -106,20 +106,20 @@
 
 ---
 
-## That is the worst
-![That is the worst](20260427-018-that-is-the-worst/image.jpg)
-**Score:** 6,276 | **Source:** reddit/r/dankmemes
+## Average CarX online interaction.
+![Average CarX online interaction.](20260427-018-average-carx-online-interaction/image.jpg)
+**Score:** 63 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Lol my homework
-![Lol my homework](20260427-019-lol-my-homework/image.jpg)
-**Score:** 145 | **Source:** reddit/r/memes
+## Strategy: 100
+![Strategy: 100](20260427-019-strategy-100/image.jpg)
+**Score:** 147 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Being employed sucks sometimes
-![Being employed sucks sometimes](20260427-020-being-employed-sucks-sometimes/image.jpg)
-**Score:** 5,570 | **Source:** reddit/r/memes
+## bruh really
+![bruh really](20260427-020-bruh-really/image.jpg)
+**Score:** 4,736 | **Source:** reddit/r/memes
 
 ---

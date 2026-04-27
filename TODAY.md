@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-27 14:20
+# Meme Feed — 2026-04-27 14:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## OpenAI caught astroturfing - they created a fake news site, with stories by fake
-![OpenAI caught astroturfing - they create](20260427-001-openai-caught-astroturfing-they-created-/image.jpg)
-**Score:** 207 | **Source:** reddit/r/WhitePeopleTwitter
+## Shell casings from the alleged shooter released by Kash Patel's FBI
+![Shell casings from the alleged shooter r](20260427-001-shell-casings-from-the-alleged-shooter-r/image.jpg)
+**Score:** 11,821 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## skins vs skins
-![skins vs skins](20260427-002-skins-vs-skins/image.jpg)
-**Score:** 1,016 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260427-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 5,184 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## She won't, but still, the leopards are eating each other.
-![She won't, but still, the leopards are e](20260427-003-she-wont-but-still-the-leopards-are-eati/image.jpg)
-**Score:** 4,442 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260427-004-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 1,759 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260427-003-well-did-they-accept-or-not/image.jpg)
+**Score:** 832 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260427-005-another-reminder-of-were-not-a-cult/image.jpg)
+![Another reminder of 'We're not a cult."](20260427-004-another-reminder-of-were-not-a-cult/image.jpg)
 **Score:** 4,141 | **Source:** reddit/r/facepalm
 
 ---
 
-## 125 per hour in Oregon
-![125 per hour in Oregon](20260427-006-125-per-hour-in-oregon/image.jpg)
-**Score:** 12,636 | **Source:** reddit/r/technicallythetruth
+## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
+![It's anthropomorphism because nature has](20260427-005-its-anthropomorphism-because-nature-has-/image.jpg)
+**Score:** 127 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The detective didn't find it
-![The detective didn't find it](20260427-007-the-detective-didnt-find-it/image.jpg)
-**Score:** 33,791 | **Source:** reddit/r/technicallythetruth
+## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
+![Oh Oracle, How Will I Die? Surrounded By](20260427-006-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
+**Score:** 3,928 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Juicy Amogus pics
-![Juicy Amogus pics](20260427-008-juicy-amogus-pics/image.jpg)
-**Score:** 808 | **Source:** reddit/r/suspiciouslyspecific
+## This is Loading. from among us
+![This is Loading. from among us](20260427-007-this-is-loading-from-among-us/image.jpg)
+**Score:** 109 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## geometry sus
-![geometry sus](20260427-009-geometry-sus/image.jpg)
-**Score:** 75 | **Source:** reddit/r/suspiciouslyspecific
+## Rest in piss
+![Rest in piss](20260427-008-rest-in-piss/image.jpg)
+**Score:** 399 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
-![If I go to a cookout and bite a hot dog ](20260427-010-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
-**Score:** 268 | **Source:** reddit/r/oddlyspecific
+## Who is your fav Cambodian gas station explosion survivor that is pregnant?
+![Who is your fav Cambodian gas station ex](20260427-009-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
+**Score:** 1,621 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260427-011-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,332 | **Source:** reddit/r/HolUp
+## Don't do that
+![Don't do that](20260427-010-dont-do-that/image.jpg)
+**Score:** 343 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## I present to you... The Ass Hare
-![I present to you... The Ass Hare](20260427-012-i-present-to-you-the-ass-hare/image.jpg)
-**Score:** 114 | **Source:** reddit/r/memes
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260427-011-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 90 | **Source:** reddit/r/HolUp
 
 ---
 
-## Lol my homework
-![Lol my homework](20260427-013-lol-my-homework/image.jpg)
-**Score:** 152 | **Source:** reddit/r/memes
+## The middle class: :(
+![The middle class: :(](20260427-012-the-middle-class/image.jpg)
+**Score:** 96 | **Source:** reddit/r/dankmemes
 
 ---
 
-## It was funny
-![It was funny](20260427-014-it-was-funny/image.jpg)
-**Score:** 8,705 | **Source:** reddit/r/dankmemes
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260427-013-fatherhood-baaaaad/image.jpg)
+**Score:** 3,173 | **Source:** reddit/r/dankmemes
+
+---
+
+## bruh really
+![bruh really](20260427-014-bruh-really/image.jpg)
+**Score:** 5,921 | **Source:** reddit/r/memes
+
+---
+
+## And do it as slow as possible
+![And do it as slow as possible](20260427-015-and-do-it-as-slow-as-possible/image.jpg)
+**Score:** 409 | **Source:** reddit/r/memes
+
+---
+
+## Sometimes it just comes out :(
+![Sometimes it just comes out :(](20260427-016-sometimes-it-just-comes-out/image.jpg)
+**Score:** 113 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## I can smell it from here
-![I can smell it from here](20260427-015-i-can-smell-it-from-here/image.jpg)
+![I can smell it from here](20260427-017-i-can-smell-it-from-here/image.jpg)
 **Score:** 50 | **Source:** reddit/r/dankmemes
 
 ---
 
-## One man army barricading himself
-![One man army barricading himself](20260427-016-one-man-army-barricading-himself/image.jpg)
-**Score:** 75 | **Source:** reddit/r/dankmemes
+## I present to you... The Ass Hare
+![I present to you... The Ass Hare](20260427-018-i-present-to-you-the-ass-hare/image.jpg)
+**Score:** 114 | **Source:** reddit/r/memes
 
 ---
 
-## International memes
-![International memes](20260427-017-international-memes/image.jpg)
-**Score:** 169 | **Source:** reddit/r/dankmemes
+## Monday tomorrow
+![Monday tomorrow](20260427-019-monday-tomorrow/image.jpg)
+**Score:** 53 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Not all dogs
-![Not all dogs](20260427-018-not-all-dogs/image.jpg)
-**Score:** 69 | **Source:** reddit/r/dankmemes
-
----
-
-## No AI, you cannot help me with this
-![No AI, you cannot help me with this](20260427-019-no-ai-you-cannot-help-me-with-this/image.jpg)
-**Score:** 217 | **Source:** reddit/r/memes
-
----
-
-## Strategy: 100
-![Strategy: 100](20260427-020-strategy-100/image.jpg)
-**Score:** 152 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260427-020-that-is-the-worst/image.jpg)
+**Score:** 6,282 | **Source:** reddit/r/dankmemes
 
 ---

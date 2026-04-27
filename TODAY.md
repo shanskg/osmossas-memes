@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-27 09:30
+# Meme Feed — 2026-04-27 09:40
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## "I'm a very cost-conscious person' says the man who bankrupted casinos and wants
-!["I'm a very cost-conscious person' says ](20260427-001-im-a-very-cost-conscious-person-says-the/image.jpg)
-**Score:** 744 | **Source:** reddit/r/WhitePeopleTwitter
+## None of them were in any actual danger
+![None of them were in any actual danger](20260427-001-none-of-them-were-in-any-actual-danger/image.jpg)
+**Score:** 1,803 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## skins vs skins
-![skins vs skins](20260427-002-skins-vs-skins/image.jpg)
-**Score:** 1,019 | **Source:** reddit/r/BlackPeopleTwitter
+## She won't, but still, the leopards are eating each other.
+![She won't, but still, the leopards are e](20260427-002-she-wont-but-still-the-leopards-are-eati/image.jpg)
+**Score:** 3,959 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260427-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,079 | **Source:** reddit/r/BlackPeopleTwitter
+## This a celly, that's a tool
+![This a celly, that's a tool](20260427-003-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,777 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -34,92 +34,92 @@
 
 ---
 
-## Super rich or bus driver?
-![Super rich or bus driver?](20260427-006-super-rich-or-bus-driver/image.jpg)
-**Score:** 31,023 | **Source:** reddit/r/technicallythetruth
+## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
+![It's anthropomorphism because nature has](20260427-006-its-anthropomorphism-because-nature-has-/image.jpg)
+**Score:** 128 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
-![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260427-007-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
-**Score:** 11,655 | **Source:** reddit/r/technicallythetruth
+## The detective didn't find it
+![The detective didn't find it](20260427-007-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,785 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## LinkedIn: where I go to be reminded why I don't go on LinkedIn.
-![LinkedIn: where I go to be reminded why ](20260427-008-linkedin-where-i-go-to-be-reminded-why-i/image.jpg)
-**Score:** 3,979 | **Source:** reddit/r/oddlyspecific
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260427-008-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 78 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260427-009-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,340 | **Source:** reddit/r/HolUp
-
----
-
-## Sometimes it just comes out :(
-![Sometimes it just comes out :(](20260427-010-sometimes-it-just-comes-out/image.jpg)
-**Score:** 94 | **Source:** reddit/r/dankmemes
-
----
-
-## food waste
-![food waste](20260427-011-food-waste/image.jpg)
-**Score:** 1,365 | **Source:** reddit/r/dankmemes
-
----
-
-## Can't Unsee It
-![Can't Unsee It](20260427-012-cant-unsee-it/image.jpg)
-**Score:** 112 | **Source:** reddit/r/dankmemes
-
----
-
-## Inescapable
-![Inescapable](20260427-013-inescapable/image.jpg)
-**Score:** 133 | **Source:** reddit/r/dankmemes
-
----
-
-## Did you see Piers Morgan wreck Russell Brand last night?
-![Did you see Piers Morgan wreck Russell B](20260427-014-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
-**Score:** 669 | **Source:** reddit/r/memes
+## AI is everywhere
+![AI is everywhere](20260427-009-ai-is-everywhere/image.jpg)
+**Score:** 1,019 | **Source:** reddit/r/HolUp
 
 ---
 
 ## Strategy: 100
-![Strategy: 100](20260427-015-strategy-100/image.jpg)
+![Strategy: 100](20260427-010-strategy-100/image.jpg)
 **Score:** 143 | **Source:** reddit/r/dankmemes
 
 ---
 
-## That is the worst
-![That is the worst](20260427-016-that-is-the-worst/image.jpg)
-**Score:** 6,270 | **Source:** reddit/r/dankmemes
+## Inescapable
+![Inescapable](20260427-011-inescapable/image.jpg)
+**Score:** 133 | **Source:** reddit/r/dankmemes
+
+---
+
+## Being employed sucks sometimes
+![Being employed sucks sometimes](20260427-012-being-employed-sucks-sometimes/image.jpg)
+**Score:** 4,186 | **Source:** reddit/r/memes
+
+---
+
+## It was funny
+![It was funny](20260427-013-it-was-funny/image.jpg)
+**Score:** 5,470 | **Source:** reddit/r/dankmemes
+
+---
+
+## Lol my homework
+![Lol my homework](20260427-014-lol-my-homework/image.jpg)
+**Score:** 125 | **Source:** reddit/r/memes
 
 ---
 
 ## I need a new mechanic…
-![I need a new mechanic…](20260427-017-i-need-a-new-mechanic/image.jpg)
+![I need a new mechanic…](20260427-015-i-need-a-new-mechanic/image.jpg)
 **Score:** 192 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I cannot emphasise enough how much I mean the dog and not me
-![I cannot emphasise enough how much I mea](20260427-018-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
-**Score:** 423 | **Source:** reddit/r/memes
+## Not all dogs
+![Not all dogs](20260427-016-not-all-dogs/image.jpg)
+**Score:** 66 | **Source:** reddit/r/dankmemes
 
 ---
 
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260427-019-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 3,529 | **Source:** reddit/r/dankmemes
+## bruh really
+![bruh really](20260427-017-bruh-really/image.jpg)
+**Score:** 2,767 | **Source:** reddit/r/memes
+
+---
+
+## Sometimes it just comes out :(
+![Sometimes it just comes out :(](20260427-018-sometimes-it-just-comes-out/image.jpg)
+**Score:** 94 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## poisonous animal
-![poisonous animal](20260427-020-poisonous-animal/image.jpg)
+![poisonous animal](20260427-019-poisonous-animal/image.jpg)
 **Score:** 151 | **Source:** reddit/r/dankmemes
+
+---
+
+## And do it as slow as possible
+![And do it as slow as possible](20260427-020-and-do-it-as-slow-as-possible/image.jpg)
+**Score:** 362 | **Source:** reddit/r/memes
 
 ---

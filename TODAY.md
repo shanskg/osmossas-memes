@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-27 08:50
+# Meme Feed — 2026-04-27 09:10
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## A sane nation would take Fox off the air.
-![A sane nation would take Fox off the air](20260427-001-a-sane-nation-would-take-fox-off-the-air/image.jpg)
-**Score:** 261 | **Source:** reddit/r/WhitePeopleTwitter
+## The biggest loser to ever lose continues to lose
+![The biggest loser to ever lose continues](20260427-001-the-biggest-loser-to-ever-lose-continues/image.jpg)
+**Score:** 758 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Turns out people don't like it when their work is stolen
-![Turns out people don't like it when thei](20260427-002-turns-out-people-dont-like-it-when-their/image.jpg)
-**Score:** 100 | **Source:** reddit/r/WhitePeopleTwitter
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260427-002-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,420 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260427-003-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 5,172 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260427-004-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 1,703 | **Source:** reddit/r/facepalm
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260427-003-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,413 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260427-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+![Cops chase and handcuff another cop who ](20260427-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
 **Score:** 5,181 | **Source:** reddit/r/facepalm
 
 ---
 
-## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
-![It's anthropomorphism because nature has](20260427-006-its-anthropomorphism-because-nature-has-/image.jpg)
-**Score:** 125 | **Source:** reddit/r/technicallythetruth
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260427-005-well-did-they-accept-or-not/image.jpg)
+**Score:** 829 | **Source:** reddit/r/facepalm
 
 ---
 
-## It may appear to be anime, but if you take a closer look
-![It may appear to be anime, but if you ta](20260427-007-it-may-appear-to-be-anime-but-if-you-tak/image.jpg)
-**Score:** 384 | **Source:** reddit/r/suspiciouslyspecific
+## The detective didn't find it
+![The detective didn't find it](20260427-006-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,785 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Darker and darker
-![Darker and darker](20260427-008-darker-and-darker/image.jpg)
-**Score:** 289 | **Source:** reddit/r/HolUp
+## The Hash-Slinging Slasher
+![The Hash-Slinging Slasher](20260427-007-the-hash-slinging-slasher/image.jpg)
+**Score:** 427 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## food waste
-![food waste](20260427-009-food-waste/image.jpg)
-**Score:** 1,365 | **Source:** reddit/r/dankmemes
+## when subaru is sus
+![when subaru is sus](20260427-008-when-subaru-is-sus/image.jpg)
+**Score:** 157 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## I cannot emphasise enough how much I mean the dog and not me
-![I cannot emphasise enough how much I mea](20260427-010-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
-**Score:** 423 | **Source:** reddit/r/memes
+## 17 strong opinions. No more, no less.
+![17 strong opinions. No more, no less.](20260427-009-17-strong-opinions-no-more-no-less/image.jpg)
+**Score:** 425 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## bruh really
-![bruh really](20260427-011-bruh-really/image.jpg)
-**Score:** 2,767 | **Source:** reddit/r/memes
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260427-010-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,340 | **Source:** reddit/r/HolUp
 
 ---
 
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260427-012-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 443 | **Source:** reddit/r/dankmemes
+## This is the way- the eyes splitter
+![This is the way- the eyes splitter](20260427-011-this-is-the-way-the-eyes-splitter/image.jpg)
+**Score:** 409 | **Source:** reddit/r/memes
 
 ---
 
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260427-013-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,444 | **Source:** reddit/r/dankmemes
-
----
-
-## International memes
-![International memes](20260427-014-international-memes/image.jpg)
-**Score:** 165 | **Source:** reddit/r/dankmemes
-
----
-
-## poisonous animal
-![poisonous animal](20260427-015-poisonous-animal/image.jpg)
-**Score:** 151 | **Source:** reddit/r/dankmemes
-
----
-
-## Can't Unsee It
-![Can't Unsee It](20260427-016-cant-unsee-it/image.jpg)
-**Score:** 112 | **Source:** reddit/r/dankmemes
-
----
-
-## That is the worst
-![That is the worst](20260427-017-that-is-the-worst/image.jpg)
-**Score:** 6,270 | **Source:** reddit/r/dankmemes
+## Being employed sucks sometimes
+![Being employed sucks sometimes](20260427-012-being-employed-sucks-sometimes/image.jpg)
+**Score:** 4,186 | **Source:** reddit/r/memes
 
 ---
 
 ## Inescapable
-![Inescapable](20260427-018-inescapable/image.jpg)
+![Inescapable](20260427-013-inescapable/image.jpg)
 **Score:** 133 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Couldn't be me
-![Couldn't be me](20260427-019-couldnt-be-me/image.jpg)
-**Score:** 2,430 | **Source:** reddit/r/dankmemes
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260427-014-fatherhood-baaaaad/image.jpg)
+**Score:** 3,166 | **Source:** reddit/r/dankmemes
 
 ---
 
-## POV: You posted your art online vs. You're Picasso 😭
-![POV: You posted your art online vs. You'](20260427-020-pov-you-posted-your-art-online-vs-youre-/image.jpg)
-**Score:** 3,529 | **Source:** reddit/r/dankmemes
+## And do it as slow as possible
+![And do it as slow as possible](20260427-015-and-do-it-as-slow-as-possible/image.jpg)
+**Score:** 362 | **Source:** reddit/r/memes
+
+---
+
+## food waste
+![food waste](20260427-016-food-waste/image.jpg)
+**Score:** 1,365 | **Source:** reddit/r/dankmemes
+
+---
+
+## Can't Unsee It
+![Can't Unsee It](20260427-017-cant-unsee-it/image.jpg)
+**Score:** 112 | **Source:** reddit/r/dankmemes
+
+---
+
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260427-018-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 3,444 | **Source:** reddit/r/dankmemes
+
+---
+
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260427-019-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 443 | **Source:** reddit/r/dankmemes
+
+---
+
+## Lol my homework
+![Lol my homework](20260427-020-lol-my-homework/image.jpg)
+**Score:** 125 | **Source:** reddit/r/memes
 
 ---

@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-27 10:51
+# Meme Feed — 2026-04-27 11:01
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Here's a tip for you, Donnie
-![Here's a tip for you, Donnie](20260427-001-heres-a-tip-for-you-donnie/image.jpg)
-**Score:** 169 | **Source:** reddit/r/WhitePeopleTwitter
+## This is a valid way of looking at it
+![This is a valid way of looking at it](20260427-001-this-is-a-valid-way-of-looking-at-it/image.jpg)
+**Score:** 127 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260427-002-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,783 | **Source:** reddit/r/BlackPeopleTwitter
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260427-002-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,077 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## skins vs skins
+![skins vs skins](20260427-003-skins-vs-skins/image.jpg)
+**Score:** 1,014 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260427-003-another-reminder-of-were-not-a-cult/image.jpg)
+![Another reminder of 'We're not a cult."](20260427-004-another-reminder-of-were-not-a-cult/image.jpg)
 **Score:** 4,137 | **Source:** reddit/r/facepalm
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260427-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,180 | **Source:** reddit/r/facepalm
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260427-005-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 1,719 | **Source:** reddit/r/facepalm
 
 ---
 
-## outperforming the inflation rate
-![outperforming the inflation rate](20260427-005-outperforming-the-inflation-rate/image.jpg)
-**Score:** 65,087 | **Source:** reddit/r/technicallythetruth
+## It's easy to find a 1-step solution if the prior guesses weren't considered.
+![It's easy to find a 1-step solution if t](20260427-006-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
+**Score:** 2,403 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
-![Oh Oracle, How Will I Die? Surrounded By](20260427-006-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
-**Score:** 3,935 | **Source:** reddit/r/technicallythetruth
+## i just opened youtube
+![i just opened youtube](20260427-007-i-just-opened-youtube/image.jpg)
+**Score:** 8,971 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260427-007-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 422 | **Source:** reddit/r/oddlyspecific
+## Among who?
+![Among who?](20260427-008-among-who/image.jpg)
+**Score:** 3,780 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260427-008-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 88 | **Source:** reddit/r/HolUp
+## Brother what even are these polls😐️
+![Brother what even are these polls😐️](20260427-009-brother-what-even-are-these-polls/image.jpg)
+**Score:** 295 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260427-009-ai-is-everywhere/image.jpg)
-**Score:** 1,018 | **Source:** reddit/r/HolUp
+## Darker and darker
+![Darker and darker](20260427-010-darker-and-darker/image.jpg)
+**Score:** 285 | **Source:** reddit/r/HolUp
+
+---
+
+## food waste
+![food waste](20260427-011-food-waste/image.jpg)
+**Score:** 1,377 | **Source:** reddit/r/dankmemes
+
+---
+
+## No AI, you cannot help me with this
+![No AI, you cannot help me with this](20260427-012-no-ai-you-cannot-help-me-with-this/image.jpg)
+**Score:** 193 | **Source:** reddit/r/memes
+
+---
+
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260427-013-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 3,451 | **Source:** reddit/r/dankmemes
+
+---
+
+## And do it as slow as possible
+![And do it as slow as possible](20260427-014-and-do-it-as-slow-as-possible/image.jpg)
+**Score:** 384 | **Source:** reddit/r/memes
 
 ---
 
 ## Couldn't be me
-![Couldn't be me](20260427-010-couldnt-be-me/image.jpg)
+![Couldn't be me](20260427-015-couldnt-be-me/image.jpg)
 **Score:** 2,426 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260427-011-even-in-video-games-they-dont-want-you-t/image.jpg)
+![Even in video games, they don't want you](20260427-016-even-in-video-games-they-dont-want-you-t/image.jpg)
 **Score:** 445 | **Source:** reddit/r/dankmemes
 
 ---
 
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260427-012-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,451 | **Source:** reddit/r/dankmemes
-
----
-
-## Lol my homework
-![Lol my homework](20260427-013-lol-my-homework/image.jpg)
-**Score:** 132 | **Source:** reddit/r/memes
-
----
-
-## bruh really
-![bruh really](20260427-014-bruh-really/image.jpg)
-**Score:** 3,680 | **Source:** reddit/r/memes
-
----
-
-## food waste
-![food waste](20260427-015-food-waste/image.jpg)
-**Score:** 1,377 | **Source:** reddit/r/dankmemes
-
----
-
 ## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260427-016-this-is-the-way-the-eyes-splitter/image.jpg)
+![This is the way- the eyes splitter](20260427-017-this-is-the-way-the-eyes-splitter/image.jpg)
 **Score:** 409 | **Source:** reddit/r/memes
 
 ---
 
-## I cannot emphasise enough how much I mean the dog and not me
-![I cannot emphasise enough how much I mea](20260427-017-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
-**Score:** 519 | **Source:** reddit/r/memes
+## bruh really
+![bruh really](20260427-018-bruh-really/image.jpg)
+**Score:** 3,680 | **Source:** reddit/r/memes
 
 ---
 
-## Inescapable
-![Inescapable](20260427-018-inescapable/image.jpg)
-**Score:** 137 | **Source:** reddit/r/dankmemes
+## The middle class: :(
+![The middle class: :(](20260427-019-the-middle-class/image.jpg)
+**Score:** 93 | **Source:** reddit/r/dankmemes
 
 ---
 
-## And do it as slow as possible
-![And do it as slow as possible](20260427-019-and-do-it-as-slow-as-possible/image.jpg)
-**Score:** 384 | **Source:** reddit/r/memes
-
----
-
-## Did you see Piers Morgan wreck Russell Brand last night?
-![Did you see Piers Morgan wreck Russell B](20260427-020-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
-**Score:** 700 | **Source:** reddit/r/memes
+## I present to you... The Ass Hare
+![I present to you... The Ass Hare](20260427-020-i-present-to-you-the-ass-hare/image.jpg)
+**Score:** 77 | **Source:** reddit/r/memes
 
 ---

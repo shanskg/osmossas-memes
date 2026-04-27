@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-27 11:30
+# Meme Feed — 2026-04-27 11:41
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## "I'm a very cost-conscious person' says the man who bankrupted casinos and wants
-!["I'm a very cost-conscious person' says ](20260427-001-im-a-very-cost-conscious-person-says-the/image.jpg)
-**Score:** 743 | **Source:** reddit/r/WhitePeopleTwitter
+## This dinner was special
+![This dinner was special](20260427-001-this-dinner-was-special/image.jpg)
+**Score:** 26,409 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260427-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 5,181 | **Source:** reddit/r/BlackPeopleTwitter
+## She was a honeypot deployed to provide updates on their progress
+![She was a honeypot deployed to provide u](20260427-002-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
+**Score:** 13,101 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## She won't, but still, the leopards are eating each other.
-![She won't, but still, the leopards are e](20260427-003-she-wont-but-still-the-leopards-are-eati/image.jpg)
-**Score:** 4,220 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
+![Keep in mind when Across the Spiderverse](20260427-003-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,409 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -40,86 +40,86 @@
 
 ---
 
-## intelligence is not dangerous
-![intelligence is not dangerous](20260427-007-intelligence-is-not-dangerous/image.jpg)
-**Score:** 50,597 | **Source:** reddit/r/technicallythetruth
+## Some inflation is good
+![Some inflation is good](20260427-007-some-inflation-is-good/image.jpg)
+**Score:** 15,687 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Don't do that
-![Don't do that](20260427-008-dont-do-that/image.jpg)
-**Score:** 343 | **Source:** reddit/r/oddlyspecific
+## Just slightly...
+![Just slightly...](20260427-008-just-slightly/image.jpg)
+**Score:** 517 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260427-009-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,337 | **Source:** reddit/r/HolUp
+## Among us irl 🤯
+![Among us irl 🤯](20260427-009-among-us-irl/image.jpg)
+**Score:** 238 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260427-010-an-augmented-reality-sandbox/image.jpg)
-**Score:** 605 | **Source:** reddit/r/HolUp
+## Brother what even are these polls😐️
+![Brother what even are these polls😐️](20260427-010-brother-what-even-are-these-polls/image.jpg)
+**Score:** 293 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Being employed sucks sometimes
-![Being employed sucks sometimes](20260427-011-being-employed-sucks-sometimes/image.jpg)
-**Score:** 4,824 | **Source:** reddit/r/memes
-
----
-
-## food waste
-![food waste](20260427-012-food-waste/image.jpg)
-**Score:** 1,377 | **Source:** reddit/r/dankmemes
-
----
-
-## The middle class: :(
-![The middle class: :(](20260427-013-the-middle-class/image.jpg)
-**Score:** 93 | **Source:** reddit/r/dankmemes
-
----
-
-## Couldn't be me
-![Couldn't be me](20260427-014-couldnt-be-me/image.jpg)
-**Score:** 2,426 | **Source:** reddit/r/dankmemes
-
----
-
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260427-015-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,451 | **Source:** reddit/r/dankmemes
+## every tiny thing looks suspicious at 3am
+![every tiny thing looks suspicious at 3am](20260427-011-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
+**Score:** 264 | **Source:** reddit/r/memes
 
 ---
 
 ## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260427-016-even-in-video-games-they-dont-want-you-t/image.jpg)
+![Even in video games, they don't want you](20260427-012-even-in-video-games-they-dont-want-you-t/image.jpg)
 **Score:** 445 | **Source:** reddit/r/dankmemes
 
 ---
 
+## Couldn't be me
+![Couldn't be me](20260427-013-couldnt-be-me/image.jpg)
+**Score:** 2,426 | **Source:** reddit/r/dankmemes
+
+---
+
+## food waste
+![food waste](20260427-014-food-waste/image.jpg)
+**Score:** 1,377 | **Source:** reddit/r/dankmemes
+
+---
+
+## Lol my homework
+![Lol my homework](20260427-015-lol-my-homework/image.jpg)
+**Score:** 132 | **Source:** reddit/r/memes
+
+---
+
+## The middle class: :(
+![The middle class: :(](20260427-016-the-middle-class/image.jpg)
+**Score:** 93 | **Source:** reddit/r/dankmemes
+
+---
+
+## This is the way- the eyes splitter
+![This is the way- the eyes splitter](20260427-017-this-is-the-way-the-eyes-splitter/image.jpg)
+**Score:** 409 | **Source:** reddit/r/memes
+
+---
+
 ## I present to you... The Ass Hare
-![I present to you... The Ass Hare](20260427-017-i-present-to-you-the-ass-hare/image.jpg)
+![I present to you... The Ass Hare](20260427-018-i-present-to-you-the-ass-hare/image.jpg)
 **Score:** 77 | **Source:** reddit/r/memes
 
 ---
 
-## No AI, you cannot help me with this
-![No AI, you cannot help me with this](20260427-018-no-ai-you-cannot-help-me-with-this/image.jpg)
-**Score:** 193 | **Source:** reddit/r/memes
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260427-019-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 3,451 | **Source:** reddit/r/dankmemes
 
 ---
 
-## bruh really
-![bruh really](20260427-019-bruh-really/image.jpg)
-**Score:** 3,680 | **Source:** reddit/r/memes
-
----
-
-## And do it as slow as possible
-![And do it as slow as possible](20260427-020-and-do-it-as-slow-as-possible/image.jpg)
-**Score:** 384 | **Source:** reddit/r/memes
+## Inescapable
+![Inescapable](20260427-020-inescapable/image.jpg)
+**Score:** 137 | **Source:** reddit/r/dankmemes
 
 ---

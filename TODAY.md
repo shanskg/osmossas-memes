@@ -1,84 +1,84 @@
-# Meme Feed — 2026-04-27 15:20
+# Meme Feed — 2026-04-27 15:30
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Shell casings from the alleged shooter released by Kash Patel's FBI
-![Shell casings from the alleged shooter r](20260427-001-shell-casings-from-the-alleged-shooter-r/image.jpg)
-**Score:** 11,821 | **Source:** reddit/r/WhitePeopleTwitter
+## You can't even talk about basketball anymore
+![You can't even talk about basketball any](20260427-001-you-cant-even-talk-about-basketball-anym/image.jpg)
+**Score:** 1,605 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## This dinner was special
-![This dinner was special](20260427-002-this-dinner-was-special/image.jpg)
-**Score:** 27,516 | **Source:** reddit/r/WhitePeopleTwitter
+## OH brother
+![OH brother](20260427-002-oh-brother/image.jpg)
+**Score:** 5,453 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260427-003-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,417 | **Source:** reddit/r/BlackPeopleTwitter
+## She was a honeypot deployed to provide updates on their progress
+![She was a honeypot deployed to provide u](20260427-003-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
+**Score:** 13,161 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260427-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 832 | **Source:** reddit/r/facepalm
+## Word association Schoolboy Q
+![Word association Schoolboy Q](20260427-004-word-association-schoolboy-q/image.jpg)
+**Score:** 1,560 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260427-005-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 1,759 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260427-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,369 | **Source:** reddit/r/facepalm
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260427-006-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 496 | **Source:** reddit/r/technicallythetruth
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260427-006-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,134 | **Source:** reddit/r/facepalm
 
 ---
 
-## Darker and darker
-![Darker and darker](20260427-007-darker-and-darker/image.jpg)
-**Score:** 283 | **Source:** reddit/r/HolUp
+## We exist, don't we?
+![We exist, don't we?](20260427-007-we-exist-dont-we/image.jpg)
+**Score:** 3,734 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260427-008-ai-is-everywhere/image.jpg)
-**Score:** 1,028 | **Source:** reddit/r/HolUp
+## Bingo's eyes are lookin a little sus.
+![Bingo's eyes are lookin a little sus.](20260427-008-bingos-eyes-are-lookin-a-little-sus/image.jpg)
+**Score:** 245 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## bruh really
-![bruh really](20260427-009-bruh-really/image.jpg)
-**Score:** 5,921 | **Source:** reddit/r/memes
+## Futabu anyone ???
+![Futabu anyone ???](20260427-009-futabu-anyone/image.jpg)
+**Score:** 2,355 | **Source:** reddit/r/HolUp
 
 ---
 
-## I can smell it from here
-![I can smell it from here](20260427-010-i-can-smell-it-from-here/image.jpg)
-**Score:** 50 | **Source:** reddit/r/dankmemes
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260427-010-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 644 | **Source:** reddit/r/HolUp
 
 ---
 
-## Oh man....
-![Oh man....](20260427-011-oh-man/image.jpg)
-**Score:** 53 | **Source:** reddit/r/memes
+## International memes
+![International memes](20260427-011-international-memes/image.jpg)
+**Score:** 169 | **Source:** reddit/r/dankmemes
 
 ---
 
-## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260427-012-fatherhood-baaaaad/image.jpg)
-**Score:** 3,173 | **Source:** reddit/r/dankmemes
+## poisonous animal
+![poisonous animal](20260427-012-poisonous-animal/image.jpg)
+**Score:** 152 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I cannot emphasise enough how much I mean the dog and not me
-![I cannot emphasise enough how much I mea](20260427-013-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
-**Score:** 677 | **Source:** reddit/r/memes
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260427-013-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 444 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -88,38 +88,38 @@
 
 ---
 
-## food waste
-![food waste](20260427-015-food-waste/image.jpg)
-**Score:** 1,392 | **Source:** reddit/r/dankmemes
-
----
-
-## Monday tomorrow
-![Monday tomorrow](20260427-016-monday-tomorrow/image.jpg)
-**Score:** 53 | **Source:** reddit/r/dankmemes
-
----
-
-## One man army barricading himself
-![One man army barricading himself](20260427-017-one-man-army-barricading-himself/image.jpg)
-**Score:** 75 | **Source:** reddit/r/dankmemes
-
----
-
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260427-018-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 444 | **Source:** reddit/r/dankmemes
+## Couldn't be me
+![Couldn't be me](20260427-015-couldnt-be-me/image.jpg)
+**Score:** 2,425 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Being employed sucks sometimes
-![Being employed sucks sometimes](20260427-019-being-employed-sucks-sometimes/image.jpg)
+![Being employed sucks sometimes](20260427-016-being-employed-sucks-sometimes/image.jpg)
 **Score:** 6,229 | **Source:** reddit/r/memes
 
 ---
 
+## And do it as slow as possible
+![And do it as slow as possible](20260427-017-and-do-it-as-slow-as-possible/image.jpg)
+**Score:** 409 | **Source:** reddit/r/memes
+
+---
+
+## Did you see Piers Morgan wreck Russell Brand last night?
+![Did you see Piers Morgan wreck Russell B](20260427-018-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
+**Score:** 745 | **Source:** reddit/r/memes
+
+---
+
 ## The middle class: :(
-![The middle class: :(](20260427-020-the-middle-class/image.jpg)
+![The middle class: :(](20260427-019-the-middle-class/image.jpg)
 **Score:** 96 | **Source:** reddit/r/dankmemes
+
+---
+
+## I present to you... The Ass Hare
+![I present to you... The Ass Hare](20260427-020-i-present-to-you-the-ass-hare/image.jpg)
+**Score:** 114 | **Source:** reddit/r/memes
 
 ---

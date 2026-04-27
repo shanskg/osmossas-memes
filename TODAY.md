@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-27 15:00
+# Meme Feed — 2026-04-27 15:10
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## This is a valid way of looking at it
-![This is a valid way of looking at it](20260427-001-this-is-a-valid-way-of-looking-at-it/image.jpg)
-**Score:** 342 | **Source:** reddit/r/WhitePeopleTwitter
+## I mean, he did tell his voters that he didn't care about them
+![I mean, he did tell his voters that he d](20260427-001-i-mean-he-did-tell-his-voters-that-he-di/image.jpg)
+**Score:** 258 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## She was a honeypot deployed to provide updates on their progress
-![She was a honeypot deployed to provide u](20260427-002-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
-**Score:** 13,161 | **Source:** reddit/r/BlackPeopleTwitter
+## A sane nation would take Fox off the air.
+![A sane nation would take Fox off the air](20260427-002-a-sane-nation-would-take-fox-off-the-air/image.jpg)
+**Score:** 505 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260427-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,179 | **Source:** reddit/r/facepalm
+## "I ain't really hurt. I might just walk off this broken leg"
+!["I ain't really hurt. I might just walk ](20260427-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
+**Score:** 3,077 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Another reminder of 'We're not a cult."
-![Another reminder of 'We're not a cult."](20260427-004-another-reminder-of-were-not-a-cult/image.jpg)
-**Score:** 4,141 | **Source:** reddit/r/facepalm
+## Word association Schoolboy Q
+![Word association Schoolboy Q](20260427-004-word-association-schoolboy-q/image.jpg)
+**Score:** 1,560 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## An insult or Anne in salt?
-![An insult or Anne in salt?](20260427-005-an-insult-or-anne-in-salt/image.jpg)
-**Score:** 3,002 | **Source:** reddit/r/technicallythetruth
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260427-005-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 1,759 | **Source:** reddit/r/facepalm
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260427-006-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,084 | **Source:** reddit/r/technicallythetruth
+## He did NOT dodge a bullet
+![He did NOT dodge a bullet](20260427-006-he-did-not-dodge-a-bullet/image.jpg)
+**Score:** 42,256 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## among oose
-![among oose](20260427-007-among-oose/image.jpg)
-**Score:** 523 | **Source:** reddit/r/suspiciouslyspecific
+## SUStainable Copper
+![SUStainable Copper](20260427-007-sustainable-copper/image.jpg)
+**Score:** 260 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Just slightly...
-![Just slightly...](20260427-008-just-slightly/image.jpg)
-**Score:** 518 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260427-009-brother-what-even-are-these-polls/image.jpg)
-**Score:** 297 | **Source:** reddit/r/oddlyspecific
-
----
-
-## Futabu anyone ???
-![Futabu anyone ???](20260427-010-futabu-anyone/image.jpg)
-**Score:** 2,355 | **Source:** reddit/r/HolUp
-
----
-
-## I cannot emphasise enough how much I mean the dog and not me
-![I cannot emphasise enough how much I mea](20260427-011-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
-**Score:** 677 | **Source:** reddit/r/memes
-
----
-
-## Did you see Piers Morgan wreck Russell Brand last night?
-![Did you see Piers Morgan wreck Russell B](20260427-012-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
-**Score:** 745 | **Source:** reddit/r/memes
-
----
-
-## Average CarX online interaction.
-![Average CarX online interaction.](20260427-013-average-carx-online-interaction/image.jpg)
-**Score:** 64 | **Source:** reddit/r/dankmemes
-
----
-
-## One man army barricading himself
-![One man army barricading himself](20260427-014-one-man-army-barricading-himself/image.jpg)
-**Score:** 75 | **Source:** reddit/r/dankmemes
-
----
-
-## The middle class: :(
-![The middle class: :(](20260427-015-the-middle-class/image.jpg)
-**Score:** 96 | **Source:** reddit/r/dankmemes
-
----
-
-## poisonous animal
-![poisonous animal](20260427-016-poisonous-animal/image.jpg)
-**Score:** 152 | **Source:** reddit/r/dankmemes
-
----
-
-## International memes
-![International memes](20260427-017-international-memes/image.jpg)
-**Score:** 169 | **Source:** reddit/r/dankmemes
-
----
-
-## It was funny
-![It was funny](20260427-018-it-was-funny/image.jpg)
-**Score:** 8,705 | **Source:** reddit/r/dankmemes
-
----
-
-## Being employed sucks sometimes
-![Being employed sucks sometimes](20260427-019-being-employed-sucks-sometimes/image.jpg)
-**Score:** 6,229 | **Source:** reddit/r/memes
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260427-008-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 90 | **Source:** reddit/r/HolUp
 
 ---
 
 ## Monday tomorrow
-![Monday tomorrow](20260427-020-monday-tomorrow/image.jpg)
+![Monday tomorrow](20260427-009-monday-tomorrow/image.jpg)
 **Score:** 53 | **Source:** reddit/r/dankmemes
+
+---
+
+## brøther, I cräve the forbidden lämp
+![brøther, I cräve the forbidden lämp](20260427-010-brøther-i-cräve-the-forbidden-lämp/image.jpg)
+**Score:** 3,461 | **Source:** reddit/r/dankmemes
+
+---
+
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260427-011-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 444 | **Source:** reddit/r/dankmemes
+
+---
+
+## Couldn't be me
+![Couldn't be me](20260427-012-couldnt-be-me/image.jpg)
+**Score:** 2,425 | **Source:** reddit/r/dankmemes
+
+---
+
+## poisonous animal
+![poisonous animal](20260427-013-poisonous-animal/image.jpg)
+**Score:** 152 | **Source:** reddit/r/dankmemes
+
+---
+
+## Lol my homework
+![Lol my homework](20260427-014-lol-my-homework/image.jpg)
+**Score:** 152 | **Source:** reddit/r/memes
+
+---
+
+## No AI, you cannot help me with this
+![No AI, you cannot help me with this](20260427-015-no-ai-you-cannot-help-me-with-this/image.jpg)
+**Score:** 217 | **Source:** reddit/r/memes
+
+---
+
+## That is the worst
+![That is the worst](20260427-016-that-is-the-worst/image.jpg)
+**Score:** 6,282 | **Source:** reddit/r/dankmemes
+
+---
+
+## food waste
+![food waste](20260427-017-food-waste/image.jpg)
+**Score:** 1,392 | **Source:** reddit/r/dankmemes
+
+---
+
+## Being employed sucks sometimes
+![Being employed sucks sometimes](20260427-018-being-employed-sucks-sometimes/image.jpg)
+**Score:** 6,229 | **Source:** reddit/r/memes
+
+---
+
+## Strategy: 100
+![Strategy: 100](20260427-019-strategy-100/image.jpg)
+**Score:** 152 | **Source:** reddit/r/dankmemes
+
+---
+
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260427-020-fatherhood-baaaaad/image.jpg)
+**Score:** 3,173 | **Source:** reddit/r/dankmemes
 
 ---

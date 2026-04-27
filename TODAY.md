@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-27 12:10
+# Meme Feed — 2026-04-27 12:21
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## President Obama Always Speaking Truth to Power!
-![President Obama Always Speaking Truth to](20260427-001-president-obama-always-speaking-truth-to/image.jpg)
-**Score:** 313 | **Source:** reddit/r/WhitePeopleTwitter
+## Turns out people don't like it when their work is stolen
+![Turns out people don't like it when thei](20260427-001-turns-out-people-dont-like-it-when-their/image.jpg)
+**Score:** 101 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## skins vs skins
-![skins vs skins](20260427-002-skins-vs-skins/image.jpg)
-**Score:** 1,014 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260427-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 5,181 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260427-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,170 | **Source:** reddit/r/facepalm
+## She won't, but still, the leopards are eating each other.
+![She won't, but still, the leopards are e](20260427-003-she-wont-but-still-the-leopards-are-eati/image.jpg)
+**Score:** 4,220 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260427-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 837 | **Source:** reddit/r/facepalm
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260427-004-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,137 | **Source:** reddit/r/facepalm
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260427-005-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,081 | **Source:** reddit/r/technicallythetruth
+## He didn't sound like much of anything in there
+![He didn't sound like much of anything in](20260427-005-he-didnt-sound-like-much-of-anything-in-/image.jpg)
+**Score:** 1,841 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## outperforming the inflation rate
-![outperforming the inflation rate](20260427-006-outperforming-the-inflation-rate/image.jpg)
-**Score:** 65,100 | **Source:** reddit/r/technicallythetruth
+## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
+![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260427-006-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
+**Score:** 1,503 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## among oose
-![among oose](20260427-007-among-oose/image.jpg)
-**Score:** 518 | **Source:** reddit/r/suspiciouslyspecific
+## imposter syndrome (among us disease)
+![imposter syndrome (among us disease)](20260427-007-imposter-syndrome-among-us-disease/image.jpg)
+**Score:** 2,243 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260427-008-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 425 | **Source:** reddit/r/oddlyspecific
-
----
-
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260427-009-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 88 | **Source:** reddit/r/HolUp
+## LinkedIn: where I go to be reminded why I don't go on LinkedIn.
+![LinkedIn: where I go to be reminded why ](20260427-008-linkedin-where-i-go-to-be-reminded-why-i/image.jpg)
+**Score:** 3,992 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## Darker and darker
-![Darker and darker](20260427-010-darker-and-darker/image.jpg)
-**Score:** 285 | **Source:** reddit/r/HolUp
+![Darker and darker](20260427-009-darker-and-darker/image.jpg)
+**Score:** 284 | **Source:** reddit/r/HolUp
 
 ---
 
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260427-011-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,451 | **Source:** reddit/r/dankmemes
+## Sometimes it just comes out :(
+![Sometimes it just comes out :(](20260427-010-sometimes-it-just-comes-out/image.jpg)
+**Score:** 107 | **Source:** reddit/r/dankmemes
 
 ---
 
-## food waste
-![food waste](20260427-012-food-waste/image.jpg)
-**Score:** 1,377 | **Source:** reddit/r/dankmemes
+## That is the worst
+![That is the worst](20260427-011-that-is-the-worst/image.jpg)
+**Score:** 6,276 | **Source:** reddit/r/dankmemes
 
 ---
 
-## every tiny thing looks suspicious at 3am
-![every tiny thing looks suspicious at 3am](20260427-013-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
-**Score:** 264 | **Source:** reddit/r/memes
+## "Fatherhood baaaaad!!!"
+!["Fatherhood baaaaad!!!"](20260427-012-fatherhood-baaaaad/image.jpg)
+**Score:** 3,165 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Did you see Piers Morgan wreck Russell Brand last night?
-![Did you see Piers Morgan wreck Russell B](20260427-014-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
-**Score:** 700 | **Source:** reddit/r/memes
-
----
-
-## bruh really
-![bruh really](20260427-015-bruh-really/image.jpg)
-**Score:** 3,680 | **Source:** reddit/r/memes
-
----
-
-## Couldn't be me
-![Couldn't be me](20260427-016-couldnt-be-me/image.jpg)
-**Score:** 2,426 | **Source:** reddit/r/dankmemes
-
----
-
-## I present to you... The Ass Hare
-![I present to you... The Ass Hare](20260427-017-i-present-to-you-the-ass-hare/image.jpg)
-**Score:** 77 | **Source:** reddit/r/memes
+## One man army barricading himself
+![One man army barricading himself](20260427-013-one-man-army-barricading-himself/image.jpg)
+**Score:** 55 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Being employed sucks sometimes
-![Being employed sucks sometimes](20260427-018-being-employed-sucks-sometimes/image.jpg)
-**Score:** 4,824 | **Source:** reddit/r/memes
+![Being employed sucks sometimes](20260427-014-being-employed-sucks-sometimes/image.jpg)
+**Score:** 5,570 | **Source:** reddit/r/memes
 
 ---
 
-## The middle class: :(
-![The middle class: :(](20260427-019-the-middle-class/image.jpg)
-**Score:** 93 | **Source:** reddit/r/dankmemes
+## And do it as slow as possible
+![And do it as slow as possible](20260427-015-and-do-it-as-slow-as-possible/image.jpg)
+**Score:** 397 | **Source:** reddit/r/memes
+
+---
+
+## I need a new mechanic…
+![I need a new mechanic…](20260427-016-i-need-a-new-mechanic/image.jpg)
+**Score:** 191 | **Source:** reddit/r/dankmemes
+
+---
+
+## Strategy: 100
+![Strategy: 100](20260427-017-strategy-100/image.jpg)
+**Score:** 147 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## I cannot emphasise enough how much I mean the dog and not me
-![I cannot emphasise enough how much I mea](20260427-020-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
-**Score:** 519 | **Source:** reddit/r/memes
+![I cannot emphasise enough how much I mea](20260427-018-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
+**Score:** 616 | **Source:** reddit/r/memes
+
+---
+
+## Average CarX online interaction.
+![Average CarX online interaction.](20260427-019-average-carx-online-interaction/image.jpg)
+**Score:** 63 | **Source:** reddit/r/dankmemes
+
+---
+
+## Lol my homework
+![Lol my homework](20260427-020-lol-my-homework/image.jpg)
+**Score:** 145 | **Source:** reddit/r/memes
 
 ---

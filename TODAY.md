@@ -1,24 +1,24 @@
-# Meme Feed — 2026-04-27 13:31
+# Meme Feed — 2026-04-27 13:40
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Kash Patel ran to save himself, ditching his girlfriend with some other man
-![Kash Patel ran to save himself, ditching](20260427-001-kash-patel-ran-to-save-himself-ditching-/image.jpg)
-**Score:** 474 | **Source:** reddit/r/WhitePeopleTwitter
+## The acting Attorney General doesn't want us asking how someone was able to cross
+![The acting Attorney General doesn't want](20260427-001-the-acting-attorney-general-doesnt-want-/image.jpg)
+**Score:** 2,145 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## He's really on top
-![He's really on top](20260427-002-hes-really-on-top/image.jpg)
-**Score:** 1,943 | **Source:** reddit/r/BlackPeopleTwitter
+## I mean, he did tell his voters that he didn't care about them
+![I mean, he did tell his voters that he d](20260427-002-i-mean-he-did-tell-his-voters-that-he-di/image.jpg)
+**Score:** 258 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Word association Schoolboy Q
-![Word association Schoolboy Q](20260427-003-word-association-schoolboy-q/image.jpg)
-**Score:** 1,560 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260427-003-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 5,184 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -34,51 +34,51 @@
 
 ---
 
-## It's easy to find a 1-step solution if the prior guesses weren't considered.
-![It's easy to find a 1-step solution if t](20260427-006-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
-**Score:** 2,406 | **Source:** reddit/r/technicallythetruth
+## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
+![It's anthropomorphism because nature has](20260427-006-its-anthropomorphism-because-nature-has-/image.jpg)
+**Score:** 127 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## outperforming the inflation rate
-![outperforming the inflation rate](20260427-007-outperforming-the-inflation-rate/image.jpg)
-**Score:** 65,095 | **Source:** reddit/r/technicallythetruth
+## An insult or Anne in salt?
+![An insult or Anne in salt?](20260427-007-an-insult-or-anne-in-salt/image.jpg)
+**Score:** 3,002 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## among oose
-![among oose](20260427-008-among-oose/image.jpg)
-**Score:** 523 | **Source:** reddit/r/suspiciouslyspecific
+## The Great Amongball...
+![The Great Amongball...](20260427-008-the-great-amongball/image.jpg)
+**Score:** 76 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260427-009-brother-what-even-are-these-polls/image.jpg)
-**Score:** 293 | **Source:** reddit/r/oddlyspecific
+## The chance of someone being able to answer this is very slim.
+![The chance of someone being able to answ](20260427-009-the-chance-of-someone-being-able-to-answ/image.jpg)
+**Score:** 81 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260427-010-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 90 | **Source:** reddit/r/HolUp
+## Who is your fav Cambodian gas station explosion survivor that is pregnant?
+![Who is your fav Cambodian gas station ex](20260427-010-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
+**Score:** 1,621 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Strategy: 100
-![Strategy: 100](20260427-011-strategy-100/image.jpg)
-**Score:** 147 | **Source:** reddit/r/dankmemes
+## AI is everywhere
+![AI is everywhere](20260427-011-ai-is-everywhere/image.jpg)
+**Score:** 1,030 | **Source:** reddit/r/HolUp
 
 ---
 
-## bruh really
-![bruh really](20260427-012-bruh-really/image.jpg)
-**Score:** 4,736 | **Source:** reddit/r/memes
+## Did you see Piers Morgan wreck Russell Brand last night?
+![Did you see Piers Morgan wreck Russell B](20260427-012-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
+**Score:** 722 | **Source:** reddit/r/memes
 
 ---
 
-## No AI, you cannot help me with this
-![No AI, you cannot help me with this](20260427-013-no-ai-you-cannot-help-me-with-this/image.jpg)
-**Score:** 206 | **Source:** reddit/r/memes
+## That is the worst
+![That is the worst](20260427-013-that-is-the-worst/image.jpg)
+**Score:** 6,276 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -88,38 +88,38 @@
 
 ---
 
-## every tiny thing looks suspicious at 3am
-![every tiny thing looks suspicious at 3am](20260427-015-every-tiny-thing-looks-suspicious-at-3am/image.jpg)
-**Score:** 268 | **Source:** reddit/r/memes
-
----
-
-## Average CarX online interaction.
-![Average CarX online interaction.](20260427-016-average-carx-online-interaction/image.jpg)
-**Score:** 63 | **Source:** reddit/r/dankmemes
+## I need a new mechanic…
+![I need a new mechanic…](20260427-015-i-need-a-new-mechanic/image.jpg)
+**Score:** 191 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## One man army barricading himself
-![One man army barricading himself](20260427-017-one-man-army-barricading-himself/image.jpg)
+![One man army barricading himself](20260427-016-one-man-army-barricading-himself/image.jpg)
 **Score:** 55 | **Source:** reddit/r/dankmemes
 
 ---
 
-## And do it as slow as possible
-![And do it as slow as possible](20260427-018-and-do-it-as-slow-as-possible/image.jpg)
-**Score:** 397 | **Source:** reddit/r/memes
+## Being employed sucks sometimes
+![Being employed sucks sometimes](20260427-017-being-employed-sucks-sometimes/image.jpg)
+**Score:** 5,570 | **Source:** reddit/r/memes
 
 ---
 
 ## Lol my homework
-![Lol my homework](20260427-019-lol-my-homework/image.jpg)
+![Lol my homework](20260427-018-lol-my-homework/image.jpg)
 **Score:** 145 | **Source:** reddit/r/memes
 
 ---
 
-## Being employed sucks sometimes
-![Being employed sucks sometimes](20260427-020-being-employed-sucks-sometimes/image.jpg)
-**Score:** 5,570 | **Source:** reddit/r/memes
+## No AI, you cannot help me with this
+![No AI, you cannot help me with this](20260427-019-no-ai-you-cannot-help-me-with-this/image.jpg)
+**Score:** 206 | **Source:** reddit/r/memes
+
+---
+
+## And do it as slow as possible
+![And do it as slow as possible](20260427-020-and-do-it-as-slow-as-possible/image.jpg)
+**Score:** 397 | **Source:** reddit/r/memes
 
 ---

@@ -1,66 +1,66 @@
-# Meme Feed — 2026-04-27 08:30
+# Meme Feed — 2026-04-27 08:40
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## 100% is an exaggeration. It was more of there always being a sole winner after a
-![100% is an exaggeration. It was more of ](20260427-001-100-is-an-exaggeration-it-was-more-of-th/image.jpg)
-**Score:** 66 | **Source:** reddit/r/BlackPeopleTwitter
+## Well whaddya know
+![Well whaddya know](20260427-001-well-whaddya-know/image.jpg)
+**Score:** 177 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Word association Schoolboy Q
-![Word association Schoolboy Q](20260427-002-word-association-schoolboy-q/image.jpg)
-**Score:** 1,541 | **Source:** reddit/r/BlackPeopleTwitter
+## skins vs skins
+![skins vs skins](20260427-002-skins-vs-skins/image.jpg)
+**Score:** 1,019 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260427-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,369 | **Source:** reddit/r/facepalm
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260427-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,181 | **Source:** reddit/r/facepalm
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260427-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 829 | **Source:** reddit/r/facepalm
+## Another reminder of 'We're not a cult."
+![Another reminder of 'We're not a cult."](20260427-004-another-reminder-of-were-not-a-cult/image.jpg)
+**Score:** 4,146 | **Source:** reddit/r/facepalm
 
 ---
 
-## Being shot with a depleted uranium bullet can't be good
-![Being shot with a depleted uranium bulle](20260427-005-being-shot-with-a-depleted-uranium-bulle/image.jpg)
-**Score:** 503 | **Source:** reddit/r/technicallythetruth
+## intelligence is not dangerous
+![intelligence is not dangerous](20260427-005-intelligence-is-not-dangerous/image.jpg)
+**Score:** 50,045 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260427-006-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,085 | **Source:** reddit/r/technicallythetruth
+## This surely must be a major loss for Glitch Productions...
+![This surely must be a major loss for Gli](20260427-006-this-surely-must-be-a-major-loss-for-gli/image.jpg)
+**Score:** 97 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Among cells
-![Among cells](20260427-007-among-cells/image.jpg)
-**Score:** 804 | **Source:** reddit/r/suspiciouslyspecific
+## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
+![If I go to a cookout and bite a hot dog ](20260427-007-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
+**Score:** 263 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## 17 strong opinions. No more, no less.
-![17 strong opinions. No more, no less.](20260427-008-17-strong-opinions-no-more-no-less/image.jpg)
-**Score:** 425 | **Source:** reddit/r/oddlyspecific
+## AI is everywhere
+![AI is everywhere](20260427-008-ai-is-everywhere/image.jpg)
+**Score:** 1,019 | **Source:** reddit/r/HolUp
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260427-009-an-augmented-reality-sandbox/image.jpg)
-**Score:** 605 | **Source:** reddit/r/HolUp
+## Great.  Thanks for creating these board name ideas for me, Pinterest.
+![Great.  Thanks for creating these board ](20260427-009-great-thanks-for-creating-these-board-na/image.jpg)
+**Score:** 83 | **Source:** reddit/r/HolUp
 
 ---
 
-## Darker and darker
-![Darker and darker](20260427-010-darker-and-darker/image.jpg)
-**Score:** 289 | **Source:** reddit/r/HolUp
+## bruh really
+![bruh really](20260427-010-bruh-really/image.jpg)
+**Score:** 2,767 | **Source:** reddit/r/memes
 
 ---
 
@@ -76,50 +76,50 @@
 
 ---
 
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260427-013-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,444 | **Source:** reddit/r/dankmemes
+## Not all dogs
+![Not all dogs](20260427-013-not-all-dogs/image.jpg)
+**Score:** 66 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I need a new mechanic…
-![I need a new mechanic…](20260427-014-i-need-a-new-mechanic/image.jpg)
-**Score:** 192 | **Source:** reddit/r/dankmemes
-
----
-
-## I cannot emphasise enough how much I mean the dog and not me
-![I cannot emphasise enough how much I mea](20260427-015-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
-**Score:** 423 | **Source:** reddit/r/memes
-
----
-
-## Lol my homework
-![Lol my homework](20260427-016-lol-my-homework/image.jpg)
-**Score:** 125 | **Source:** reddit/r/memes
-
----
-
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260427-017-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 443 | **Source:** reddit/r/dankmemes
-
----
-
-## International memes
-![International memes](20260427-018-international-memes/image.jpg)
-**Score:** 165 | **Source:** reddit/r/dankmemes
+## Strategy: 100
+![Strategy: 100](20260427-014-strategy-100/image.jpg)
+**Score:** 143 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## It was funny
-![It was funny](20260427-019-it-was-funny/image.jpg)
+![It was funny](20260427-015-it-was-funny/image.jpg)
 **Score:** 5,470 | **Source:** reddit/r/dankmemes
 
 ---
 
-## This is the way- the eyes splitter
-![This is the way- the eyes splitter](20260427-020-this-is-the-way-the-eyes-splitter/image.jpg)
-**Score:** 409 | **Source:** reddit/r/memes
+## poisonous animal
+![poisonous animal](20260427-016-poisonous-animal/image.jpg)
+**Score:** 151 | **Source:** reddit/r/dankmemes
+
+---
+
+## No AI, you cannot help me with this
+![No AI, you cannot help me with this](20260427-017-no-ai-you-cannot-help-me-with-this/image.jpg)
+**Score:** 176 | **Source:** reddit/r/memes
+
+---
+
+## Even in video games, they don't want you to be happy
+![Even in video games, they don't want you](20260427-018-even-in-video-games-they-dont-want-you-t/image.jpg)
+**Score:** 443 | **Source:** reddit/r/dankmemes
+
+---
+
+## Sometimes it just comes out :(
+![Sometimes it just comes out :(](20260427-019-sometimes-it-just-comes-out/image.jpg)
+**Score:** 94 | **Source:** reddit/r/dankmemes
+
+---
+
+## Can't Unsee It
+![Can't Unsee It](20260427-020-cant-unsee-it/image.jpg)
+**Score:** 112 | **Source:** reddit/r/dankmemes
 
 ---

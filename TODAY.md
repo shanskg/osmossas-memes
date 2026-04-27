@@ -1,4 +1,4 @@
-# Meme Feed — 2026-04-27 12:50
+# Meme Feed — 2026-04-27 13:01
 
 **Total:** 20 memes | Refresh every 10 min
 
@@ -10,116 +10,116 @@
 
 ---
 
-## The press has three completely different stories
-![The press has three completely different](20260427-002-the-press-has-three-completely-different/image.jpg)
-**Score:** 1,384 | **Source:** reddit/r/WhitePeopleTwitter
+## She won't, but still, the leopards are eating each other.
+![She won't, but still, the leopards are e](20260427-002-she-wont-but-still-the-leopards-are-eati/image.jpg)
+**Score:** 4,442 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## "I ain't really hurt. I might just walk off this broken leg"
-!["I ain't really hurt. I might just walk ](20260427-003-i-aint-really-hurt-i-might-just-walk-off/image.jpg)
-**Score:** 3,078 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## He's really on top
-![He's really on top](20260427-004-hes-really-on-top/image.jpg)
-**Score:** 1,943 | **Source:** reddit/r/BlackPeopleTwitter
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260427-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,170 | **Source:** reddit/r/facepalm
 
 ---
 
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260427-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260427-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,372 | **Source:** reddit/r/facepalm
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260427-006-well-did-they-accept-or-not/image.jpg)
-**Score:** 837 | **Source:** reddit/r/facepalm
+## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
+![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260427-005-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
+**Score:** 1,503 | **Source:** reddit/r/technicallythetruth
 
 ---
 
 ## Super rich or bus driver?
-![Super rich or bus driver?](20260427-007-super-rich-or-bus-driver/image.jpg)
+![Super rich or bus driver?](20260427-006-super-rich-or-bus-driver/image.jpg)
 **Score:** 31,013 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
-![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260427-008-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
-**Score:** 11,663 | **Source:** reddit/r/technicallythetruth
+## GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS 
+![GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS ](20260427-007-guys-guys-guys-guys-guys-guys-guys-guys-/image.jpg)
+**Score:** 314 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## imposter syndrome (among us disease)
-![imposter syndrome (among us disease)](20260427-009-imposter-syndrome-among-us-disease/image.jpg)
-**Score:** 2,243 | **Source:** reddit/r/suspiciouslyspecific
+## AI is everywhere
+![AI is everywhere](20260427-008-ai-is-everywhere/image.jpg)
+**Score:** 1,030 | **Source:** reddit/r/HolUp
 
 ---
 
-## It may appear to be anime, but if you take a closer look
-![It may appear to be anime, but if you ta](20260427-010-it-may-appear-to-be-anime-but-if-you-tak/image.jpg)
-**Score:** 382 | **Source:** reddit/r/suspiciouslyspecific
+## That is the worst
+![That is the worst](20260427-009-that-is-the-worst/image.jpg)
+**Score:** 6,276 | **Source:** reddit/r/dankmemes
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260427-011-an-augmented-reality-sandbox/image.jpg)
-**Score:** 600 | **Source:** reddit/r/HolUp
+## Strategy: 100
+![Strategy: 100](20260427-010-strategy-100/image.jpg)
+**Score:** 147 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Darker and darker
-![Darker and darker](20260427-012-darker-and-darker/image.jpg)
-**Score:** 284 | **Source:** reddit/r/HolUp
+## One man army barricading himself
+![One man army barricading himself](20260427-011-one-man-army-barricading-himself/image.jpg)
+**Score:** 55 | **Source:** reddit/r/dankmemes
+
+---
+
+## Average CarX online interaction.
+![Average CarX online interaction.](20260427-012-average-carx-online-interaction/image.jpg)
+**Score:** 63 | **Source:** reddit/r/dankmemes
+
+---
+
+## I present to you... The Ass Hare
+![I present to you... The Ass Hare](20260427-013-i-present-to-you-the-ass-hare/image.jpg)
+**Score:** 99 | **Source:** reddit/r/memes
+
+---
+
+## Being employed sucks sometimes
+![Being employed sucks sometimes](20260427-014-being-employed-sucks-sometimes/image.jpg)
+**Score:** 5,570 | **Source:** reddit/r/memes
 
 ---
 
 ## Sometimes it just comes out :(
-![Sometimes it just comes out :(](20260427-013-sometimes-it-just-comes-out/image.jpg)
+![Sometimes it just comes out :(](20260427-015-sometimes-it-just-comes-out/image.jpg)
 **Score:** 107 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## "Fatherhood baaaaad!!!"
-!["Fatherhood baaaaad!!!"](20260427-014-fatherhood-baaaaad/image.jpg)
+!["Fatherhood baaaaad!!!"](20260427-016-fatherhood-baaaaad/image.jpg)
 **Score:** 3,165 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Being employed sucks sometimes
-![Being employed sucks sometimes](20260427-015-being-employed-sucks-sometimes/image.jpg)
-**Score:** 5,570 | **Source:** reddit/r/memes
-
----
-
-## One man army barricading himself
-![One man army barricading himself](20260427-016-one-man-army-barricading-himself/image.jpg)
-**Score:** 55 | **Source:** reddit/r/dankmemes
-
----
-
-## I cannot emphasise enough how much I mean the dog and not me
-![I cannot emphasise enough how much I mea](20260427-017-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
-**Score:** 616 | **Source:** reddit/r/memes
-
----
-
-## Strategy: 100
-![Strategy: 100](20260427-018-strategy-100/image.jpg)
-**Score:** 147 | **Source:** reddit/r/dankmemes
-
----
-
 ## Did you see Piers Morgan wreck Russell Brand last night?
-![Did you see Piers Morgan wreck Russell B](20260427-019-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
+![Did you see Piers Morgan wreck Russell B](20260427-017-did-you-see-piers-morgan-wreck-russell-b/image.jpg)
 **Score:** 722 | **Source:** reddit/r/memes
 
 ---
 
-## That is the worst
-![That is the worst](20260427-020-that-is-the-worst/image.jpg)
-**Score:** 6,276 | **Source:** reddit/r/dankmemes
+## I cannot emphasise enough how much I mean the dog and not me
+![I cannot emphasise enough how much I mea](20260427-018-i-cannot-emphasise-enough-how-much-i-mea/image.jpg)
+**Score:** 616 | **Source:** reddit/r/memes
+
+---
+
+## I need a new mechanic…
+![I need a new mechanic…](20260427-019-i-need-a-new-mechanic/image.jpg)
+**Score:** 191 | **Source:** reddit/r/dankmemes
+
+---
+
+## bruh really
+![bruh really](20260427-020-bruh-really/image.jpg)
+**Score:** 4,736 | **Source:** reddit/r/memes
 
 ---

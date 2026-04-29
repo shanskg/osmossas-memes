@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-29 21:57
+# Meme Feed — 2026-04-30 00:18
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## “...without *extra* taxpayer funds”  📢 IT WAS NEVER GOING TO BE DONOR FUNDED
-![“...without *extra* taxpayer funds”  📢 I](20260429-001-without-extra-taxpayer-funds-it-was-neve/image.jpg)
-**Score:** 66 | **Source:** reddit/r/WhitePeopleTwitter
+## You're right to push back.
+![You're right to push back.](20260430-001-youre-right-to-push-back/image.jpg)
+**Score:** 159 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## She was a honeypot deployed to provide updates on their progress
-![She was a honeypot deployed to provide u](20260429-002-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
-**Score:** 13,541 | **Source:** reddit/r/BlackPeopleTwitter
+## I'll never not hear this again.
+![I'll never not hear this again.](20260430-002-ill-never-not-hear-this-again/image.jpg)
+**Score:** 164 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260429-003-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,413 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260429-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 835 | **Source:** reddit/r/facepalm
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260430-003-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 5,259 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260429-005-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 2,073 | **Source:** reddit/r/facepalm
+![South Korean Pilots Were Taking Selfies ](20260430-004-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 2,081 | **Source:** reddit/r/facepalm
 
 ---
 
-## This surely must be a major loss for Glitch Productions...
-![This surely must be a major loss for Gli](20260429-006-this-surely-must-be-a-major-loss-for-gli/image.jpg)
-**Score:** 110 | **Source:** reddit/r/technicallythetruth
-
----
-
-## intelligence is not dangerous
-![intelligence is not dangerous](20260429-007-intelligence-is-not-dangerous/image.jpg)
-**Score:** 55,346 | **Source:** reddit/r/technicallythetruth
-
----
-
-## It's Sabotage
-![It's Sabotage](20260429-008-its-sabotage/image.jpg)
-**Score:** 78 | **Source:** reddit/r/suspiciouslyspecific
+## I cast stairs... Wrong subReddit
+![I cast stairs... Wrong subReddit](20260430-005-i-cast-stairs-wrong-subreddit/image.jpg)
+**Score:** 2,708 | **Source:** reddit/r/technicallythetruth
 
 ---
 
 ## My 7 year old would love to know what others think of his drawing! Sus?
-![My 7 year old would love to know what ot](20260429-009-my-7-year-old-would-love-to-know-what-ot/image.jpg)
-**Score:** 1,254 | **Source:** reddit/r/suspiciouslyspecific
+![My 7 year old would love to know what ot](20260430-006-my-7-year-old-would-love-to-know-what-ot/image.jpg)
+**Score:** 1,256 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Sometimes it just comes out :(
-![Sometimes it just comes out :(](20260429-010-sometimes-it-just-comes-out/image.jpg)
-**Score:** 155 | **Source:** reddit/r/dankmemes
+## Darker and darker
+![Darker and darker](20260430-007-darker-and-darker/image.jpg)
+**Score:** 285 | **Source:** reddit/r/HolUp
+
+---
+
+## One man army barricading himself
+![One man army barricading himself](20260430-008-one-man-army-barricading-himself/image.jpg)
+**Score:** 565 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Monday tomorrow
-![Monday tomorrow](20260429-011-monday-tomorrow/image.jpg)
-**Score:** 94 | **Source:** reddit/r/dankmemes
+![Monday tomorrow](20260430-009-monday-tomorrow/image.jpg)
+**Score:** 100 | **Source:** reddit/r/dankmemes
 
 ---
 
-## This isn't about battery… it's about finishing what you started.
-![This isn't about battery… it's about fin](20260429-012-this-isnt-about-battery-its-about-finish/image.jpg)
-**Score:** 82 | **Source:** reddit/r/memes
+## It's just the truth lol
+![It's just the truth lol](20260430-010-its-just-the-truth-lol/image.jpg)
+**Score:** 695 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Bit of a broad brush
-![Bit of a broad brush](20260429-013-bit-of-a-broad-brush/image.jpg)
-**Score:** 1,079 | **Source:** reddit/r/memes
+![Bit of a broad brush](20260430-011-bit-of-a-broad-brush/image.jpg)
+**Score:** 1,136 | **Source:** reddit/r/memes
 
 ---
 
-## But people already pay taxes
-![But people already pay taxes](20260429-014-but-people-already-pay-taxes/image.jpg)
-**Score:** 275 | **Source:** reddit/r/dankmemes
+## When it just pops up!
+![When it just pops up!](20260430-012-when-it-just-pops-up/image.jpg)
+**Score:** 231 | **Source:** reddit/r/memes
 
 ---
 
-## Who doesn't like a nice pair of boobies?
-![Who doesn't like a nice pair of boobies?](20260429-015-who-doesnt-like-a-nice-pair-of-boobies/image.jpg)
-**Score:** 125 | **Source:** reddit/r/dankmemes
+## food waste
+![food waste](20260430-013-food-waste/image.jpg)
+**Score:** 1,488 | **Source:** reddit/r/dankmemes
 
 ---
 
-## It was funny
-![It was funny](20260429-016-it-was-funny/image.jpg)
-**Score:** 12,909 | **Source:** reddit/r/dankmemes
+## The DM is still there but he isn't
+![The DM is still there but he isn't](20260430-014-the-dm-is-still-there-but-he-isnt/image.jpg)
+**Score:** 21,049 | **Source:** reddit/r/memes
+
+---
+
+## Dead Internet Era
+![Dead Internet Era](20260430-015-dead-internet-era/image.jpg)
+**Score:** 217 | **Source:** reddit/r/memes
 
 ---
 
 ## star wars brain parasites
-![star wars brain parasites](20260429-017-star-wars-brain-parasites/image.jpg)
-**Score:** 108 | **Source:** reddit/r/dankmemes
+![star wars brain parasites](20260430-016-star-wars-brain-parasites/image.jpg)
+**Score:** 112 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## The good ones!
-![The good ones!](20260429-018-the-good-ones/image.jpg)
-**Score:** 1,829 | **Source:** reddit/r/memes
+![The good ones!](20260430-017-the-good-ones/image.jpg)
+**Score:** 2,114 | **Source:** reddit/r/memes
 
 ---
 
-## The queen likes what she sees
-![The queen likes what she sees](20260429-019-the-queen-likes-what-she-sees/image.jpg)
-**Score:** 64 | **Source:** reddit/r/dankmemes
+## It happened again guys
+![It happened again guys](20260430-018-it-happened-again-guys/image.jpg)
+**Score:** 2,281 | **Source:** reddit/r/memes
 
 ---
 
-## I can smell it from here
-![I can smell it from here](20260429-020-i-can-smell-it-from-here/image.jpg)
-**Score:** 67 | **Source:** reddit/r/dankmemes
+## But people already pay taxes
+![But people already pay taxes](20260430-019-but-people-already-pay-taxes/image.jpg)
+**Score:** 436 | **Source:** reddit/r/dankmemes
+
+---
+
+## It was funny
+![It was funny](20260430-020-it-was-funny/image.jpg)
+**Score:** 12,909 | **Source:** reddit/r/dankmemes
 
 ---

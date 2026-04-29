@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-27 18:30
+# Meme Feed — 2026-04-29 21:57
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## This is a valid way of looking at it
-![This is a valid way of looking at it](20260427-001-this-is-a-valid-way-of-looking-at-it/image.jpg)
-**Score:** 397 | **Source:** reddit/r/WhitePeopleTwitter
+## “...without *extra* taxpayer funds”  📢 IT WAS NEVER GOING TO BE DONOR FUNDED
+![“...without *extra* taxpayer funds”  📢 I](20260429-001-without-extra-taxpayer-funds-it-was-neve/image.jpg)
+**Score:** 66 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## She was a honeypot deployed to provide updates on their progress
+![She was a honeypot deployed to provide u](20260429-002-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
+**Score:** 13,541 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260427-002-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,409 | **Source:** reddit/r/BlackPeopleTwitter
+![Keep in mind when Across the Spiderverse](20260429-003-keep-in-mind-when-across-the-spiderverse/image.jpg)
+**Score:** 6,413 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260427-003-well-did-they-accept-or-not/image.jpg)
-**Score:** 827 | **Source:** reddit/r/facepalm
+![Well? Did they accept or not?](20260429-004-well-did-they-accept-or-not/image.jpg)
+**Score:** 835 | **Source:** reddit/r/facepalm
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260427-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,179 | **Source:** reddit/r/facepalm
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260429-005-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 2,073 | **Source:** reddit/r/facepalm
 
 ---
 
-## He did NOT dodge a bullet
-![He did NOT dodge a bullet](20260427-005-he-did-not-dodge-a-bullet/image.jpg)
-**Score:** 42,253 | **Source:** reddit/r/technicallythetruth
+## This surely must be a major loss for Glitch Productions...
+![This surely must be a major loss for Gli](20260429-006-this-surely-must-be-a-major-loss-for-gli/image.jpg)
+**Score:** 110 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Super rich or bus driver?
-![Super rich or bus driver?](20260427-006-super-rich-or-bus-driver/image.jpg)
-**Score:** 31,016 | **Source:** reddit/r/technicallythetruth
+## intelligence is not dangerous
+![intelligence is not dangerous](20260429-007-intelligence-is-not-dangerous/image.jpg)
+**Score:** 55,346 | **Source:** reddit/r/technicallythetruth
 
 ---
 
 ## It's Sabotage
-![It's Sabotage](20260427-007-its-sabotage/image.jpg)
-**Score:** 80 | **Source:** reddit/r/suspiciouslyspecific
+![It's Sabotage](20260429-008-its-sabotage/image.jpg)
+**Score:** 78 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## geometry sus
-![geometry sus](20260427-008-geometry-sus/image.jpg)
-**Score:** 74 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## LinkedIn: where I go to be reminded why I don't go on LinkedIn.
-![LinkedIn: where I go to be reminded why ](20260427-009-linkedin-where-i-go-to-be-reminded-why-i/image.jpg)
-**Score:** 4,020 | **Source:** reddit/r/oddlyspecific
-
----
-
-## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260427-010-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,334 | **Source:** reddit/r/HolUp
-
----
-
-## Strategy: 100
-![Strategy: 100](20260427-011-strategy-100/image.jpg)
-**Score:** 155 | **Source:** reddit/r/dankmemes
-
----
-
-## money money money
-![money money money](20260427-012-money-money-money/image.jpg)
-**Score:** 441 | **Source:** reddit/r/memes
-
----
-
-## It was funny
-![It was funny](20260427-013-it-was-funny/image.jpg)
-**Score:** 10,160 | **Source:** reddit/r/dankmemes
-
----
-
-## Oh man....
-![Oh man....](20260427-014-oh-man/image.jpg)
-**Score:** 1,020 | **Source:** reddit/r/memes
+## My 7 year old would love to know what others think of his drawing! Sus?
+![My 7 year old would love to know what ot](20260429-009-my-7-year-old-would-love-to-know-what-ot/image.jpg)
+**Score:** 1,254 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
 ## Sometimes it just comes out :(
-![Sometimes it just comes out :(](20260427-015-sometimes-it-just-comes-out/image.jpg)
-**Score:** 123 | **Source:** reddit/r/dankmemes
+![Sometimes it just comes out :(](20260429-010-sometimes-it-just-comes-out/image.jpg)
+**Score:** 155 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Even in video games, they don't want you to be happy
-![Even in video games, they don't want you](20260427-016-even-in-video-games-they-dont-want-you-t/image.jpg)
-**Score:** 449 | **Source:** reddit/r/dankmemes
+## Monday tomorrow
+![Monday tomorrow](20260429-011-monday-tomorrow/image.jpg)
+**Score:** 94 | **Source:** reddit/r/dankmemes
 
 ---
 
-## poisonous animal
-![poisonous animal](20260427-017-poisonous-animal/image.jpg)
-**Score:** 154 | **Source:** reddit/r/dankmemes
+## This isn't about battery… it's about finishing what you started.
+![This isn't about battery… it's about fin](20260429-012-this-isnt-about-battery-its-about-finish/image.jpg)
+**Score:** 82 | **Source:** reddit/r/memes
 
 ---
 
-## brøther, I cräve the forbidden lämp
-![brøther, I cräve the forbidden lämp](20260427-018-brøther-i-cräve-the-forbidden-lämp/image.jpg)
-**Score:** 3,455 | **Source:** reddit/r/dankmemes
+## Bit of a broad brush
+![Bit of a broad brush](20260429-013-bit-of-a-broad-brush/image.jpg)
+**Score:** 1,079 | **Source:** reddit/r/memes
 
 ---
 
-## The middle class: :(
-![The middle class: :(](20260427-019-the-middle-class/image.jpg)
-**Score:** 99 | **Source:** reddit/r/dankmemes
+## But people already pay taxes
+![But people already pay taxes](20260429-014-but-people-already-pay-taxes/image.jpg)
+**Score:** 275 | **Source:** reddit/r/dankmemes
 
 ---
 
-## food waste
-![food waste](20260427-020-food-waste/image.jpg)
-**Score:** 1,419 | **Source:** reddit/r/dankmemes
+## Who doesn't like a nice pair of boobies?
+![Who doesn't like a nice pair of boobies?](20260429-015-who-doesnt-like-a-nice-pair-of-boobies/image.jpg)
+**Score:** 125 | **Source:** reddit/r/dankmemes
+
+---
+
+## It was funny
+![It was funny](20260429-016-it-was-funny/image.jpg)
+**Score:** 12,909 | **Source:** reddit/r/dankmemes
+
+---
+
+## star wars brain parasites
+![star wars brain parasites](20260429-017-star-wars-brain-parasites/image.jpg)
+**Score:** 108 | **Source:** reddit/r/dankmemes
+
+---
+
+## The good ones!
+![The good ones!](20260429-018-the-good-ones/image.jpg)
+**Score:** 1,829 | **Source:** reddit/r/memes
+
+---
+
+## The queen likes what she sees
+![The queen likes what she sees](20260429-019-the-queen-likes-what-she-sees/image.jpg)
+**Score:** 64 | **Source:** reddit/r/dankmemes
+
+---
+
+## I can smell it from here
+![I can smell it from here](20260429-020-i-can-smell-it-from-here/image.jpg)
+**Score:** 67 | **Source:** reddit/r/dankmemes
 
 ---

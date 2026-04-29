@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-30 00:23
+# Meme Feed — 2026-04-30 04:18
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260430-001-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,431 | **Source:** reddit/r/BlackPeopleTwitter
+## Word association Schoolboy Q
+![Word association Schoolboy Q](20260430-001-word-association-schoolboy-q/image.jpg)
+**Score:** 1,649 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260430-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 5,259 | **Source:** reddit/r/BlackPeopleTwitter
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260430-002-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 2,081 | **Source:** reddit/r/facepalm
 
 ---
 
-## One of these post are under federal indictment.
-![One of these post are under federal indi](20260430-003-one-of-these-post-are-under-federal-indi/image.jpg)
-**Score:** 2,457 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260430-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,367 | **Source:** reddit/r/facepalm
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260430-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 839 | **Source:** reddit/r/facepalm
+## An insult or Anne in salt?
+![An insult or Anne in salt?](20260430-004-an-insult-or-anne-in-salt/image.jpg)
+**Score:** 3,673 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Sus adventures
-![Sus adventures](20260430-005-sus-adventures/image.jpg)
-**Score:** 134 | **Source:** reddit/r/suspiciouslyspecific
+## If I go to a cookout and bite a hot dog and it's a carrot I'm fighting everybody
+![If I go to a cookout and bite a hot dog ](20260430-005-if-i-go-to-a-cookout-and-bite-a-hot-dog-/image.jpg)
+**Score:** 263 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## LinkedIn: where I go to be reminded why I don't go on LinkedIn.
-![LinkedIn: where I go to be reminded why ](20260430-006-linkedin-where-i-go-to-be-reminded-why-i/image.jpg)
-**Score:** 4,188 | **Source:** reddit/r/oddlyspecific
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260430-006-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,339 | **Source:** reddit/r/HolUp
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260430-007-ai-is-everywhere/image.jpg)
-**Score:** 1,040 | **Source:** reddit/r/HolUp
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260430-007-an-augmented-reality-sandbox/image.jpg)
+**Score:** 608 | **Source:** reddit/r/HolUp
 
 ---
 
-## Bit of a broad brush
-![Bit of a broad brush](20260430-008-bit-of-a-broad-brush/image.jpg)
-**Score:** 1,136 | **Source:** reddit/r/memes
-
----
-
-## The DM is still there but he isn't
-![The DM is still there but he isn't](20260430-009-the-dm-is-still-there-but-he-isnt/image.jpg)
-**Score:** 21,049 | **Source:** reddit/r/memes
-
----
-
-## Dead Internet Era
-![Dead Internet Era](20260430-010-dead-internet-era/image.jpg)
-**Score:** 217 | **Source:** reddit/r/memes
+## Who doesn't like a nice pair of boobies?
+![Who doesn't like a nice pair of boobies?](20260430-008-who-doesnt-like-a-nice-pair-of-boobies/image.jpg)
+**Score:** 120 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## It happened again guys
-![It happened again guys](20260430-011-it-happened-again-guys/image.jpg)
-**Score:** 2,281 | **Source:** reddit/r/memes
+![It happened again guys](20260430-009-it-happened-again-guys/image.jpg)
+**Score:** 2,354 | **Source:** reddit/r/memes
 
 ---
 
-## Everyday problem
-![Everyday problem](20260430-012-everyday-problem/image.jpg)
-**Score:** 3,631 | **Source:** reddit/r/memes
+## I guess I made an error by not breaking the sound barrier
+![I guess I made an error by not breaking ](20260430-010-i-guess-i-made-an-error-by-not-breaking-/image.jpg)
+**Score:** 1,292 | **Source:** reddit/r/dankmemes
+
+---
+
+## star wars brain parasites
+![star wars brain parasites](20260430-011-star-wars-brain-parasites/image.jpg)
+**Score:** 116 | **Source:** reddit/r/dankmemes
+
+---
+
+## The all you can eat buffet security guards watching me eat all the customers
+![The all you can eat buffet security guar](20260430-012-the-all-you-can-eat-buffet-security-guar/image.jpg)
+**Score:** 52 | **Source:** reddit/r/memes
+
+---
+
+## The DM is still there but he isn't
+![The DM is still there but he isn't](20260430-013-the-dm-is-still-there-but-he-isnt/image.jpg)
+**Score:** 21,200 | **Source:** reddit/r/memes
+
+---
+
+## It was funny
+![It was funny](20260430-014-it-was-funny/image.jpg)
+**Score:** 12,929 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## When it just pops up!
-![When it just pops up!](20260430-013-when-it-just-pops-up/image.jpg)
-**Score:** 231 | **Source:** reddit/r/memes
+![When it just pops up!](20260430-015-when-it-just-pops-up/image.jpg)
+**Score:** 287 | **Source:** reddit/r/memes
 
 ---
 
 ## The good ones!
-![The good ones!](20260430-014-the-good-ones/image.jpg)
-**Score:** 2,114 | **Source:** reddit/r/memes
+![The good ones!](20260430-016-the-good-ones/image.jpg)
+**Score:** 2,566 | **Source:** reddit/r/memes
 
 ---
 
-## It's just the truth lol
-![It's just the truth lol](20260430-015-its-just-the-truth-lol/image.jpg)
-**Score:** 695 | **Source:** reddit/r/dankmemes
+## Everyday problem
+![Everyday problem](20260430-017-everyday-problem/image.jpg)
+**Score:** 3,648 | **Source:** reddit/r/memes
 
 ---
 
-## Hate when this happens
-![Hate when this happens](20260430-016-hate-when-this-happens/image.jpg)
-**Score:** 1,447 | **Source:** reddit/r/memes
+## I can smell it from here
+![I can smell it from here](20260430-018-i-can-smell-it-from-here/image.jpg)
+**Score:** 70 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Sometimes it just comes out :(
-![Sometimes it just comes out :(](20260430-017-sometimes-it-just-comes-out/image.jpg)
-**Score:** 154 | **Source:** reddit/r/dankmemes
-
----
-
-## This isn't about battery… it's about finishing what you started.
-![This isn't about battery… it's about fin](20260430-018-this-isnt-about-battery-its-about-finish/image.jpg)
-**Score:** 84 | **Source:** reddit/r/memes
-
----
-
-## Monday tomorrow
-![Monday tomorrow](20260430-019-monday-tomorrow/image.jpg)
-**Score:** 100 | **Source:** reddit/r/dankmemes
+## Bit of a broad brush
+![Bit of a broad brush](20260430-019-bit-of-a-broad-brush/image.jpg)
+**Score:** 1,187 | **Source:** reddit/r/memes
 
 ---
 
 ## One man army barricading himself
 ![One man army barricading himself](20260430-020-one-man-army-barricading-himself/image.jpg)
-**Score:** 565 | **Source:** reddit/r/dankmemes
+**Score:** 567 | **Source:** reddit/r/dankmemes
 
 ---

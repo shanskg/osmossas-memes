@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-30 12:17
+# Meme Feed — 2026-04-30 16:18
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## DOJ wants to take all profits from James Comey's crime novel.
-![DOJ wants to take all profits from James](20260430-001-doj-wants-to-take-all-profits-from-james/image.jpg)
-**Score:** 61 | **Source:** reddit/r/WhitePeopleTwitter
+## even Idiocracy wasn’t this dumb
+![even Idiocracy wasn’t this dumb](20260430-001-even-idiocracy-wasnt-this-dumb/image.jpg)
+**Score:** 699 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## The work to steal all future elections is under way.
-![The work to steal all future elections i](20260430-002-the-work-to-steal-all-future-elections-i/image.jpg)
-**Score:** 390 | **Source:** reddit/r/WhitePeopleTwitter
-
----
-
-## This a celly, that's a tool
-![This a celly, that's a tool](20260430-003-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,839 | **Source:** reddit/r/BlackPeopleTwitter
+## Asstronaut
+![Asstronaut](20260430-002-asstronaut/image.jpg)
+**Score:** 1,115 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
 ## Yes, I saw what you saw.
-![Yes, I saw what you saw.](20260430-004-yes-i-saw-what-you-saw/image.jpg)
-**Score:** 2,385 | **Source:** reddit/r/BlackPeopleTwitter
+![Yes, I saw what you saw.](20260430-003-yes-i-saw-what-you-saw/image.jpg)
+**Score:** 2,612 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260430-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,365 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260430-004-well-did-they-accept-or-not/image.jpg)
+**Score:** 834 | **Source:** reddit/r/facepalm
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260430-006-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,183 | **Source:** reddit/r/facepalm
+## The detective didn't find it
+![The detective didn't find it](20260430-005-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,829 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## A shower is hot
-![A shower is hot](20260430-007-a-shower-is-hot/image.jpg)
-**Score:** 1,151 | **Source:** reddit/r/technicallythetruth
+## among oose
+![among oose](20260430-006-among-oose/image.jpg)
+**Score:** 522 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## It's easy to find a 1-step solution if the prior guesses weren't considered.
-![It's easy to find a 1-step solution if t](20260430-008-its-easy-to-find-a-1-step-solution-if-th/image.jpg)
-**Score:** 2,407 | **Source:** reddit/r/technicallythetruth
-
----
-
-## Among Us Meme
-![Among Us Meme](20260430-009-among-us-meme/image.jpg)
-**Score:** 85 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS 
-![GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS ](20260430-010-guys-guys-guys-guys-guys-guys-guys-guys-/image.jpg)
-**Score:** 315 | **Source:** reddit/r/suspiciouslyspecific
+## Brother what even are these polls😐️
+![Brother what even are these polls😐️](20260430-007-brother-what-even-are-these-polls/image.jpg)
+**Score:** 304 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## Futabu anyone ???
-![Futabu anyone ???](20260430-011-futabu-anyone/image.jpg)
-**Score:** 2,360 | **Source:** reddit/r/HolUp
+![Futabu anyone ???](20260430-008-futabu-anyone/image.jpg)
+**Score:** 2,363 | **Source:** reddit/r/HolUp
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260430-012-ai-is-everywhere/image.jpg)
-**Score:** 1,039 | **Source:** reddit/r/HolUp
+## Sure thing , Lady Rushmore
+![Sure thing , Lady Rushmore](20260430-009-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,338 | **Source:** reddit/r/HolUp
 
 ---
 
-## It's just the truth lol
-![It's just the truth lol](20260430-013-its-just-the-truth-lol/image.jpg)
-**Score:** 820 | **Source:** reddit/r/dankmemes
+## I hate driving.
+![I hate driving.](20260430-010-i-hate-driving/image.jpg)
+**Score:** 24,317 | **Source:** reddit/r/memes
+
+---
+
+## Monday tomorrow
+![Monday tomorrow](20260430-011-monday-tomorrow/image.jpg)
+**Score:** 95 | **Source:** reddit/r/dankmemes
+
+---
+
+## Soon they'll stop hiring
+![Soon they'll stop hiring](20260430-012-soon-theyll-stop-hiring/image.jpg)
+**Score:** 85 | **Source:** reddit/r/memes
 
 ---
 
 ## It happened again guys
-![It happened again guys](20260430-014-it-happened-again-guys/image.jpg)
-**Score:** 2,387 | **Source:** reddit/r/memes
+![It happened again guys](20260430-013-it-happened-again-guys/image.jpg)
+**Score:** 2,397 | **Source:** reddit/r/memes
 
 ---
 
-## We need to build more ballrooms.
-![We need to build more ballrooms.](20260430-015-we-need-to-build-more-ballrooms/image.jpg)
-**Score:** 379 | **Source:** reddit/r/dankmemes
+## Yeah problably they didn't mean more selfish when they need something from you..
+![Yeah problably they didn't mean more sel](20260430-014-yeah-problably-they-didnt-mean-more-self/image.jpg)
+**Score:** 53 | **Source:** reddit/r/memes
+
+---
+
+## The good ones!
+![The good ones!](20260430-015-the-good-ones/image.jpg)
+**Score:** 2,953 | **Source:** reddit/r/memes
 
 ---
 
 ## My reddit browsing time would back me up
 ![My reddit browsing time would back me up](20260430-016-my-reddit-browsing-time-would-back-me-up/image.jpg)
-**Score:** 64 | **Source:** reddit/r/memes
-
----
-
-## My fashion sense was a lack thereof
-![My fashion sense was a lack thereof](20260430-017-my-fashion-sense-was-a-lack-thereof/image.jpg)
-**Score:** 1,860 | **Source:** reddit/r/dankmemes
-
----
-
-## star wars brain parasites
-![star wars brain parasites](20260430-018-star-wars-brain-parasites/image.jpg)
-**Score:** 117 | **Source:** reddit/r/dankmemes
+**Score:** 69 | **Source:** reddit/r/memes
 
 ---
 
 ## I guess I made an error by not breaking the sound barrier
-![I guess I made an error by not breaking ](20260430-019-i-guess-i-made-an-error-by-not-breaking-/image.jpg)
-**Score:** 4,034 | **Source:** reddit/r/dankmemes
+![I guess I made an error by not breaking ](20260430-017-i-guess-i-made-an-error-by-not-breaking-/image.jpg)
+**Score:** 4,751 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I hate driving.
-![I hate driving.](20260430-020-i-hate-driving/image.jpg)
-**Score:** 16,261 | **Source:** reddit/r/memes
+## please fill out this field
+![please fill out this field](20260430-018-please-fill-out-this-field/image.jpg)
+**Score:** 69 | **Source:** reddit/r/memes
+
+---
+
+## One man army barricading himself
+![One man army barricading himself](20260430-019-one-man-army-barricading-himself/image.jpg)
+**Score:** 573 | **Source:** reddit/r/dankmemes
+
+---
+
+## Every single time.
+![Every single time.](20260430-020-every-single-time/image.jpg)
+**Score:** 97 | **Source:** reddit/r/memes
 
 ---

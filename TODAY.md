@@ -1,125 +1,125 @@
-# Meme Feed — 2026-04-30 16:18
+# Meme Feed — 2026-04-30 20:18
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## even Idiocracy wasn’t this dumb
-![even Idiocracy wasn’t this dumb](20260430-001-even-idiocracy-wasnt-this-dumb/image.jpg)
-**Score:** 699 | **Source:** reddit/r/WhitePeopleTwitter
+## Erika Kirk "dressed like a sniper"
+![Erika Kirk "dressed like a sniper"](20260430-001-erika-kirk-dressed-like-a-sniper/image.jpg)
+**Score:** 4,023 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Asstronaut
-![Asstronaut](20260430-002-asstronaut/image.jpg)
-**Score:** 1,115 | **Source:** reddit/r/WhitePeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260430-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 5,279 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Yes, I saw what you saw.
-![Yes, I saw what you saw.](20260430-003-yes-i-saw-what-you-saw/image.jpg)
-**Score:** 2,612 | **Source:** reddit/r/BlackPeopleTwitter
+## She was a honeypot deployed to provide updates on their progress
+![She was a honeypot deployed to provide u](20260430-003-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
+**Score:** 13,579 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260430-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 834 | **Source:** reddit/r/facepalm
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260430-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,180 | **Source:** reddit/r/facepalm
 
 ---
 
-## The detective didn't find it
-![The detective didn't find it](20260430-005-the-detective-didnt-find-it/image.jpg)
-**Score:** 33,829 | **Source:** reddit/r/technicallythetruth
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260430-005-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 2,111 | **Source:** reddit/r/facepalm
 
 ---
 
-## among oose
-![among oose](20260430-006-among-oose/image.jpg)
-**Score:** 522 | **Source:** reddit/r/suspiciouslyspecific
+## intelligence is not dangerous
+![intelligence is not dangerous](20260430-006-intelligence-is-not-dangerous/image.jpg)
+**Score:** 55,530 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260430-007-brother-what-even-are-these-polls/image.jpg)
-**Score:** 304 | **Source:** reddit/r/oddlyspecific
+## Super rich or bus driver?
+![Super rich or bus driver?](20260430-007-super-rich-or-bus-driver/image.jpg)
+**Score:** 31,029 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260430-008-futabu-anyone/image.jpg)
-**Score:** 2,363 | **Source:** reddit/r/HolUp
+## The Hash-Slinging Slasher
+![The Hash-Slinging Slasher](20260430-008-the-hash-slinging-slasher/image.jpg)
+**Score:** 430 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## Who is your fav Cambodian gas station explosion survivor that is pregnant?
+![Who is your fav Cambodian gas station ex](20260430-009-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
+**Score:** 1,651 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## Sure thing , Lady Rushmore
-![Sure thing , Lady Rushmore](20260430-009-sure-thing-lady-rushmore/image.jpg)
-**Score:** 11,338 | **Source:** reddit/r/HolUp
+![Sure thing , Lady Rushmore](20260430-010-sure-thing-lady-rushmore/image.jpg)
+**Score:** 11,337 | **Source:** reddit/r/HolUp
 
 ---
 
-## I hate driving.
-![I hate driving.](20260430-010-i-hate-driving/image.jpg)
-**Score:** 24,317 | **Source:** reddit/r/memes
-
----
-
-## Monday tomorrow
-![Monday tomorrow](20260430-011-monday-tomorrow/image.jpg)
-**Score:** 95 | **Source:** reddit/r/dankmemes
-
----
-
-## Soon they'll stop hiring
-![Soon they'll stop hiring](20260430-012-soon-theyll-stop-hiring/image.jpg)
-**Score:** 85 | **Source:** reddit/r/memes
-
----
-
-## It happened again guys
-![It happened again guys](20260430-013-it-happened-again-guys/image.jpg)
-**Score:** 2,397 | **Source:** reddit/r/memes
-
----
-
-## Yeah problably they didn't mean more selfish when they need something from you..
-![Yeah problably they didn't mean more sel](20260430-014-yeah-problably-they-didnt-mean-more-self/image.jpg)
-**Score:** 53 | **Source:** reddit/r/memes
-
----
-
-## The good ones!
-![The good ones!](20260430-015-the-good-ones/image.jpg)
-**Score:** 2,953 | **Source:** reddit/r/memes
-
----
-
-## My reddit browsing time would back me up
-![My reddit browsing time would back me up](20260430-016-my-reddit-browsing-time-would-back-me-up/image.jpg)
-**Score:** 69 | **Source:** reddit/r/memes
-
----
-
-## I guess I made an error by not breaking the sound barrier
-![I guess I made an error by not breaking ](20260430-017-i-guess-i-made-an-error-by-not-breaking-/image.jpg)
-**Score:** 4,751 | **Source:** reddit/r/dankmemes
-
----
-
-## please fill out this field
-![please fill out this field](20260430-018-please-fill-out-this-field/image.jpg)
-**Score:** 69 | **Source:** reddit/r/memes
+## Futabu anyone ???
+![Futabu anyone ???](20260430-011-futabu-anyone/image.jpg)
+**Score:** 2,363 | **Source:** reddit/r/HolUp
 
 ---
 
 ## One man army barricading himself
-![One man army barricading himself](20260430-019-one-man-army-barricading-himself/image.jpg)
-**Score:** 573 | **Source:** reddit/r/dankmemes
+![One man army barricading himself](20260430-012-one-man-army-barricading-himself/image.jpg)
+**Score:** 569 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Every single time.
-![Every single time.](20260430-020-every-single-time/image.jpg)
-**Score:** 97 | **Source:** reddit/r/memes
+## But people already pay taxes
+![But people already pay taxes](20260430-013-but-people-already-pay-taxes/image.jpg)
+**Score:** 1,201 | **Source:** reddit/r/dankmemes
+
+---
+
+## please fill out this field
+![please fill out this field](20260430-014-please-fill-out-this-field/image.jpg)
+**Score:** 70 | **Source:** reddit/r/memes
+
+---
+
+## Who doesn't like a nice pair of boobies?
+![Who doesn't like a nice pair of boobies?](20260430-015-who-doesnt-like-a-nice-pair-of-boobies/image.jpg)
+**Score:** 125 | **Source:** reddit/r/dankmemes
+
+---
+
+## It was funny
+![It was funny](20260430-016-it-was-funny/image.jpg)
+**Score:** 12,933 | **Source:** reddit/r/dankmemes
+
+---
+
+## I hate driving.
+![I hate driving.](20260430-017-i-hate-driving/image.jpg)
+**Score:** 29,799 | **Source:** reddit/r/memes
+
+---
+
+## When it just pops up!
+![When it just pops up!](20260430-018-when-it-just-pops-up/image.jpg)
+**Score:** 342 | **Source:** reddit/r/memes
+
+---
+
+## I guess I made an error by not breaking the sound barrier
+![I guess I made an error by not breaking ](20260430-019-i-guess-i-made-an-error-by-not-breaking-/image.jpg)
+**Score:** 5,225 | **Source:** reddit/r/dankmemes
+
+---
+
+## We need to build more ballrooms.
+![We need to build more ballrooms.](20260430-020-we-need-to-build-more-ballrooms/image.jpg)
+**Score:** 399 | **Source:** reddit/r/dankmemes
 
 ---

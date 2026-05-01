@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-01 08:18
+# Meme Feed — 2026-05-01 12:18
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Exhibit A for the defense, your honor...
-![Exhibit A for the defense, your honor...](20260501-001-exhibit-a-for-the-defense-your-honor/image.jpg)
-**Score:** 484 | **Source:** reddit/r/WhitePeopleTwitter
+## He is utterly delusional.
+![He is utterly delusional.](20260501-001-he-is-utterly-delusional/image.jpg)
+**Score:** 91 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Libs of TikTok lady starting to realize single payer healthcare may not be such 
-![Libs of TikTok lady starting to realize ](20260501-002-libs-of-tiktok-lady-starting-to-realize-/image.jpg)
-**Score:** 2,105 | **Source:** reddit/r/WhitePeopleTwitter
-
----
-
-## This a celly, that's a tool
-![This a celly, that's a tool](20260501-003-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,845 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Keep in mind when Across the Spiderverse released it wasn't even finished 💀
-![Keep in mind when Across the Spiderverse](20260501-004-keep-in-mind-when-across-the-spiderverse/image.jpg)
-**Score:** 6,416 | **Source:** reddit/r/BlackPeopleTwitter
+## Word association Schoolboy Q
+![Word association Schoolboy Q](20260501-002-word-association-schoolboy-q/image.jpg)
+**Score:** 1,672 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260501-005-well-did-they-accept-or-not/image.jpg)
-**Score:** 837 | **Source:** reddit/r/facepalm
+![Well? Did they accept or not?](20260501-003-well-did-they-accept-or-not/image.jpg)
+**Score:** 834 | **Source:** reddit/r/facepalm
 
 ---
 
-## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
-![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260501-006-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
-**Score:** 1,532 | **Source:** reddit/r/technicallythetruth
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260501-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,181 | **Source:** reddit/r/facepalm
 
 ---
 
-## imposter syndrome (among us disease)
-![imposter syndrome (among us disease)](20260501-007-imposter-syndrome-among-us-disease/image.jpg)
-**Score:** 2,247 | **Source:** reddit/r/suspiciouslyspecific
+## It is a penny…
+![It is a penny…](20260501-005-it-is-a-penny/image.jpg)
+**Score:** 715 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Brother what even are these polls😐️
-![Brother what even are these polls😐️](20260501-008-brother-what-even-are-these-polls/image.jpg)
-**Score:** 301 | **Source:** reddit/r/oddlyspecific
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260501-006-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 648 | **Source:** reddit/r/HolUp
 
 ---
 
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260501-009-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 95 | **Source:** reddit/r/HolUp
+## star wars brain parasites
+![star wars brain parasites](20260501-007-star-wars-brain-parasites/image.jpg)
+**Score:** 125 | **Source:** reddit/r/dankmemes
+
+---
+
+## AI memes: ....
+![AI memes: ....](20260501-008-ai-memes/image.jpg)
+**Score:** 128 | **Source:** reddit/r/memes
+
+---
+
+## I guess I made an error by not breaking the sound barrier
+![I guess I made an error by not breaking ](20260501-009-i-guess-i-made-an-error-by-not-breaking-/image.jpg)
+**Score:** 5,964 | **Source:** reddit/r/dankmemes
+
+---
+
+## MURICA!!!!
+![MURICA!!!!](20260501-010-murica/image.jpg)
+**Score:** 65 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Can't wait to sleep again
-![Can't wait to sleep again](20260501-010-cant-wait-to-sleep-again/image.jpg)
-**Score:** 2,432 | **Source:** reddit/r/memes
-
----
-
-## It was funny
-![It was funny](20260501-011-it-was-funny/image.jpg)
-**Score:** 12,950 | **Source:** reddit/r/dankmemes
-
----
-
-## Still better than not being able to choose
-![Still better than not being able to choo](20260501-012-still-better-than-not-being-able-to-choo/image.jpg)
-**Score:** 214 | **Source:** reddit/r/dankmemes
-
----
-
-## I prefer AI free, manual explanations, WRITTEN BY MAN.
-![I prefer AI free, manual explanations, W](20260501-013-i-prefer-ai-free-manual-explanations-wri/image.jpg)
-**Score:** 78 | **Source:** reddit/r/memes
+![Can't wait to sleep again](20260501-011-cant-wait-to-sleep-again/image.jpg)
+**Score:** 3,314 | **Source:** reddit/r/memes
 
 ---
 
 ## But people already pay taxes
-![But people already pay taxes](20260501-014-but-people-already-pay-taxes/image.jpg)
-**Score:** 1,354 | **Source:** reddit/r/dankmemes
+![But people already pay taxes](20260501-012-but-people-already-pay-taxes/image.jpg)
+**Score:** 1,378 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I hate driving.
-![I hate driving.](20260501-015-i-hate-driving/image.jpg)
-**Score:** 37,361 | **Source:** reddit/r/memes
+## My fashion sense was a lack thereof
+![My fashion sense was a lack thereof](20260501-013-my-fashion-sense-was-a-lack-thereof/image.jpg)
+**Score:** 7,816 | **Source:** reddit/r/dankmemes
 
 ---
 
-## It's just the truth lol
-![It's just the truth lol](20260501-016-its-just-the-truth-lol/image.jpg)
-**Score:** 863 | **Source:** reddit/r/dankmemes
+## Loopholes! People, loopholes!
+![Loopholes! People, loopholes!](20260501-014-loopholes-people-loopholes/image.jpg)
+**Score:** 6,508 | **Source:** reddit/r/dankmemes
+
+---
+
+## Nah bruh get that slop outta here
+![Nah bruh get that slop outta here](20260501-015-nah-bruh-get-that-slop-outta-here/image.jpg)
+**Score:** 1,692 | **Source:** reddit/r/dankmemes
+
+---
+
+## We need to build more ballrooms.
+![We need to build more ballrooms.](20260501-016-we-need-to-build-more-ballrooms/image.jpg)
+**Score:** 454 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Who doesn't like a nice pair of boobies?
 ![Who doesn't like a nice pair of boobies?](20260501-017-who-doesnt-like-a-nice-pair-of-boobies/image.jpg)
-**Score:** 128 | **Source:** reddit/r/dankmemes
+**Score:** 132 | **Source:** reddit/r/dankmemes
 
 ---
 
-## One man army barricading himself
-![One man army barricading himself](20260501-018-one-man-army-barricading-himself/image.jpg)
-**Score:** 574 | **Source:** reddit/r/dankmemes
+## Still better than not being able to choose
+![Still better than not being able to choo](20260501-018-still-better-than-not-being-able-to-choo/image.jpg)
+**Score:** 267 | **Source:** reddit/r/dankmemes
 
 ---
 
-## star wars brain parasites
-![star wars brain parasites](20260501-019-star-wars-brain-parasites/image.jpg)
-**Score:** 121 | **Source:** reddit/r/dankmemes
+## The queen likes what she sees
+![The queen likes what she sees](20260501-019-the-queen-likes-what-she-sees/image.jpg)
+**Score:** 76 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Loopholes! People, loopholes!
-![Loopholes! People, loopholes!](20260501-020-loopholes-people-loopholes/image.jpg)
-**Score:** 6,115 | **Source:** reddit/r/dankmemes
+## It was funny
+![It was funny](20260501-020-it-was-funny/image.jpg)
+**Score:** 12,941 | **Source:** reddit/r/dankmemes
 
 ---

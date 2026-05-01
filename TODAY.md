@@ -1,89 +1,125 @@
-# Meme Feed — 2026-05-02 00:17
+# Meme Feed — 2026-05-02 05:23
 
-**Total:** 14 memes | Refresh every 10 min
-
----
-
-## This a celly, that's a tool
-![This a celly, that's a tool](20260502-001-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,847 | **Source:** reddit/r/BlackPeopleTwitter
+**Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Dibs on the Seattle Spearchuckers
-![Dibs on the Seattle Spearchuckers](20260502-002-dibs-on-the-seattle-spearchuckers/image.jpg)
-**Score:** 2,000 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260502-001-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 5,277 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260502-003-well-did-they-accept-or-not/image.jpg)
-**Score:** 832 | **Source:** reddit/r/facepalm
+## Karen doesn't quite understand the concept of hypocrisy...
+![Karen doesn't quite understand the conce](20260502-002-karen-doesnt-quite-understand-the-concep/image.jpg)
+**Score:** 500 | **Source:** reddit/r/facepalm
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260502-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,365 | **Source:** reddit/r/facepalm
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260502-003-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 2,134 | **Source:** reddit/r/facepalm
 
 ---
 
-## This surely must be a major loss for Glitch Productions...
-![This surely must be a major loss for Gli](20260502-005-this-surely-must-be-a-major-loss-for-gli/image.jpg)
-**Score:** 114 | **Source:** reddit/r/technicallythetruth
+## i just opened youtube
+![i just opened youtube](20260502-004-i-just-opened-youtube/image.jpg)
+**Score:** 8,979 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## He didn't sound like much of anything in there
-![He didn't sound like much of anything in](20260502-006-he-didnt-sound-like-much-of-anything-in-/image.jpg)
-**Score:** 1,841 | **Source:** reddit/r/technicallythetruth
+## An insult or Anne in salt?
+![An insult or Anne in salt?](20260502-005-an-insult-or-anne-in-salt/image.jpg)
+**Score:** 3,807 | **Source:** reddit/r/technicallythetruth
 
 ---
 
 ## tell me if this is wrong?
-![tell me if this is wrong?](20260502-007-tell-me-if-this-is-wrong/image.jpg)
-**Score:** 77 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## My 7 year old would love to know what others think of his drawing! Sus?
-![My 7 year old would love to know what ot](20260502-008-my-7-year-old-would-love-to-know-what-ot/image.jpg)
-**Score:** 1,259 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## Back from the dead
-![Back from the dead](20260502-009-back-from-the-dead/image.jpg)
-**Score:** 168 | **Source:** reddit/r/HolUp
-
----
-
-## Work smarter, not harder.
-![Work smarter, not harder.](20260502-010-work-smarter-not-harder/image.jpg)
-**Score:** 804 | **Source:** reddit/r/dankmemes
-
----
-
-## Teacher, Teacher, leave us kids alone...
-![Teacher, Teacher, leave us kids alone...](20260502-011-teacher-teacher-leave-us-kids-alone/image.jpg)
-**Score:** 111 | **Source:** reddit/r/memes
-
----
-
-## I hate driving.
-![I hate driving.](20260502-012-i-hate-driving/image.jpg)
-**Score:** 39,734 | **Source:** reddit/r/memes
+![tell me if this is wrong?](20260502-006-tell-me-if-this-is-wrong/image.jpg)
+**Score:** 78 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
 ## Can't wait to sleep again
-![Can't wait to sleep again](20260502-013-cant-wait-to-sleep-again/image.jpg)
-**Score:** 5,042 | **Source:** reddit/r/memes
+![Can't wait to sleep again](20260502-007-cant-wait-to-sleep-again/image.jpg)
+**Score:** 5,321 | **Source:** reddit/r/memes
 
 ---
 
-## There body's look stiff as bricks the more I look at them
-![There body's look stiff as bricks the mo](20260502-014-there-bodys-look-stiff-as-bricks-the-mor/image.jpg)
-**Score:** 112 | **Source:** reddit/r/dankmemes
+## One for all the household CTOs
+![One for all the household CTOs](20260502-008-one-for-all-the-household-ctos/image.jpg)
+**Score:** 1,233 | **Source:** reddit/r/memes
+
+---
+
+## I hate driving.
+![I hate driving.](20260502-009-i-hate-driving/image.jpg)
+**Score:** 40,124 | **Source:** reddit/r/memes
+
+---
+
+## My fashion sense was a lack thereof
+![My fashion sense was a lack thereof](20260502-010-my-fashion-sense-was-a-lack-thereof/image.jpg)
+**Score:** 8,372 | **Source:** reddit/r/dankmemes
+
+---
+
+## Work smarter, not harder.
+![Work smarter, not harder.](20260502-011-work-smarter-not-harder/image.jpg)
+**Score:** 1,463 | **Source:** reddit/r/dankmemes
+
+---
+
+## MURICA!!!!
+![MURICA!!!!](20260502-012-murica/image.jpg)
+**Score:** 96 | **Source:** reddit/r/dankmemes
+
+---
+
+## Comics 80'
+![Comics 80'](20260502-013-comics-80/image.jpg)
+**Score:** 284 | **Source:** reddit/r/memes
+
+---
+
+## One has to be used for years and other one for barely a month
+![One has to be used for years and other o](20260502-014-one-has-to-be-used-for-years-and-other-o/image.jpg)
+**Score:** 3,341 | **Source:** reddit/r/memes
+
+---
+
+## Loopholes! People, loopholes!
+![Loopholes! People, loopholes!](20260502-015-loopholes-people-loopholes/image.jpg)
+**Score:** 7,272 | **Source:** reddit/r/dankmemes
+
+---
+
+## Still better than not being able to choose
+![Still better than not being able to choo](20260502-016-still-better-than-not-being-able-to-choo/image.jpg)
+**Score:** 408 | **Source:** reddit/r/dankmemes
+
+---
+
+## AI memes: ....
+![AI memes: ....](20260502-017-ai-memes/image.jpg)
+**Score:** 164 | **Source:** reddit/r/memes
+
+---
+
+## 11 inches and still not applicable 🥀
+![11 inches and still not applicable 🥀](20260502-018-11-inches-and-still-not-applicable/image.jpg)
+**Score:** 431 | **Source:** reddit/r/dankmemes
+
+---
+
+## Tge only slander I'm a victim of
+![Tge only slander I'm a victim of](20260502-019-tge-only-slander-im-a-victim-of/image.jpg)
+**Score:** 87 | **Source:** reddit/r/memes
+
+---
+
+## Teacher, Teacher, leave us kids alone...
+![Teacher, Teacher, leave us kids alone...](20260502-020-teacher-teacher-leave-us-kids-alone/image.jpg)
+**Score:** 141 | **Source:** reddit/r/memes
 
 ---

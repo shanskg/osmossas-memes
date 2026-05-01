@@ -1,119 +1,89 @@
-# Meme Feed — 2026-05-01 20:34
+# Meme Feed — 2026-05-02 00:17
 
-**Total:** 19 memes | Refresh every 10 min
-
----
-
-## What's done in the light will get more bright
-![What's done in the light will get more b](20260501-001-whats-done-in-the-light-will-get-more-br/image.jpg)
-**Score:** 1,350 | **Source:** reddit/r/BlackPeopleTwitter
+**Total:** 14 memes | Refresh every 10 min
 
 ---
 
 ## This a celly, that's a tool
-![This a celly, that's a tool](20260501-002-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,842 | **Source:** reddit/r/BlackPeopleTwitter
+![This a celly, that's a tool](20260502-001-this-a-celly-thats-a-tool/image.jpg)
+**Score:** 5,847 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260501-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,181 | **Source:** reddit/r/facepalm
+## Dibs on the Seattle Spearchuckers
+![Dibs on the Seattle Spearchuckers](20260502-002-dibs-on-the-seattle-spearchuckers/image.jpg)
+**Score:** 2,000 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260501-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 833 | **Source:** reddit/r/facepalm
+![Well? Did they accept or not?](20260502-003-well-did-they-accept-or-not/image.jpg)
+**Score:** 832 | **Source:** reddit/r/facepalm
 
 ---
 
-## How did none of you notice this?
-![How did none of you notice this?](20260501-005-how-did-none-of-you-notice-this/image.jpg)
-**Score:** 1,080 | **Source:** reddit/r/suspiciouslyspecific
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260502-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,365 | **Source:** reddit/r/facepalm
 
 ---
 
-## geometry sus
-![geometry sus](20260501-006-geometry-sus/image.jpg)
-**Score:** 74 | **Source:** reddit/r/suspiciouslyspecific
+## This surely must be a major loss for Glitch Productions...
+![This surely must be a major loss for Gli](20260502-005-this-surely-must-be-a-major-loss-for-gli/image.jpg)
+**Score:** 114 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## My Physics Class Homework Scores
-![My Physics Class Homework Scores](20260501-007-my-physics-class-homework-scores/image.jpg)
-**Score:** 58 | **Source:** reddit/r/oddlyspecific
+## He didn't sound like much of anything in there
+![He didn't sound like much of anything in](20260502-006-he-didnt-sound-like-much-of-anything-in-/image.jpg)
+**Score:** 1,841 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## One for all the household CTOs
-![One for all the household CTOs](20260501-008-one-for-all-the-household-ctos/image.jpg)
-**Score:** 1,064 | **Source:** reddit/r/memes
+## tell me if this is wrong?
+![tell me if this is wrong?](20260502-007-tell-me-if-this-is-wrong/image.jpg)
+**Score:** 77 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## I hate driving.
-![I hate driving.](20260501-009-i-hate-driving/image.jpg)
-**Score:** 39,268 | **Source:** reddit/r/memes
+## My 7 year old would love to know what others think of his drawing! Sus?
+![My 7 year old would love to know what ot](20260502-008-my-7-year-old-would-love-to-know-what-ot/image.jpg)
+**Score:** 1,259 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## It's NEVER 1 thing at Target
-![It's NEVER 1 thing at Target](20260501-010-its-never-1-thing-at-target/image.jpg)
-**Score:** 56 | **Source:** reddit/r/memes
-
----
-
-## My fashion sense was a lack thereof
-![My fashion sense was a lack thereof](20260501-011-my-fashion-sense-was-a-lack-thereof/image.jpg)
-**Score:** 8,226 | **Source:** reddit/r/dankmemes
-
----
-
-## The queen likes what she sees
-![The queen likes what she sees](20260501-012-the-queen-likes-what-she-sees/image.jpg)
-**Score:** 77 | **Source:** reddit/r/dankmemes
-
----
-
-## Loopholes! People, loopholes!
-![Loopholes! People, loopholes!](20260501-013-loopholes-people-loopholes/image.jpg)
-**Score:** 7,016 | **Source:** reddit/r/dankmemes
-
----
-
-## But people already pay taxes
-![But people already pay taxes](20260501-014-but-people-already-pay-taxes/image.jpg)
-**Score:** 1,394 | **Source:** reddit/r/dankmemes
-
----
-
-## Can't wait to sleep again
-![Can't wait to sleep again](20260501-015-cant-wait-to-sleep-again/image.jpg)
-**Score:** 4,567 | **Source:** reddit/r/memes
+## Back from the dead
+![Back from the dead](20260502-009-back-from-the-dead/image.jpg)
+**Score:** 168 | **Source:** reddit/r/HolUp
 
 ---
 
 ## Work smarter, not harder.
-![Work smarter, not harder.](20260501-016-work-smarter-not-harder/image.jpg)
-**Score:** 203 | **Source:** reddit/r/dankmemes
+![Work smarter, not harder.](20260502-010-work-smarter-not-harder/image.jpg)
+**Score:** 804 | **Source:** reddit/r/dankmemes
 
 ---
 
-## It's just the truth lol
-![It's just the truth lol](20260501-017-its-just-the-truth-lol/image.jpg)
-**Score:** 875 | **Source:** reddit/r/dankmemes
+## Teacher, Teacher, leave us kids alone...
+![Teacher, Teacher, leave us kids alone...](20260502-011-teacher-teacher-leave-us-kids-alone/image.jpg)
+**Score:** 111 | **Source:** reddit/r/memes
 
 ---
 
-## I guess I made an error by not breaking the sound barrier
-![I guess I made an error by not breaking ](20260501-018-i-guess-i-made-an-error-by-not-breaking-/image.jpg)
-**Score:** 6,056 | **Source:** reddit/r/dankmemes
+## I hate driving.
+![I hate driving.](20260502-012-i-hate-driving/image.jpg)
+**Score:** 39,734 | **Source:** reddit/r/memes
 
 ---
 
-## AI memes: ....
-![AI memes: ....](20260501-019-ai-memes/image.jpg)
-**Score:** 145 | **Source:** reddit/r/memes
+## Can't wait to sleep again
+![Can't wait to sleep again](20260502-013-cant-wait-to-sleep-again/image.jpg)
+**Score:** 5,042 | **Source:** reddit/r/memes
+
+---
+
+## There body's look stiff as bricks the more I look at them
+![There body's look stiff as bricks the mo](20260502-014-there-bodys-look-stiff-as-bricks-the-mor/image.jpg)
+**Score:** 112 | **Source:** reddit/r/dankmemes
 
 ---

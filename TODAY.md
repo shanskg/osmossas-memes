@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-02 20:18
+# Meme Feed — 2026-05-03 00:18
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
 ## more of this, please
-![more of this, please](20260502-001-more-of-this-please/image.jpg)
-**Score:** 1,432 | **Source:** reddit/r/WhitePeopleTwitter
+![more of this, please](20260503-001-more-of-this-please/image.jpg)
+**Score:** 1,436 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260502-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 5,280 | **Source:** reddit/r/BlackPeopleTwitter
+## if other countries don’t let this into their country, I support them
+![if other countries don’t let this into t](20260503-002-if-other-countries-dont-let-this-into-th/image.jpg)
+**Score:** 331 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260502-003-well-did-they-accept-or-not/image.jpg)
-**Score:** 830 | **Source:** reddit/r/facepalm
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260503-003-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,433 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260502-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,368 | **Source:** reddit/r/facepalm
+## She was a honeypot deployed to provide updates on their progress
+![She was a honeypot deployed to provide u](20260503-004-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
+**Score:** 13,613 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260502-005-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,101 | **Source:** reddit/r/technicallythetruth
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260503-005-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 2,135 | **Source:** reddit/r/facepalm
 
 ---
 
-## My 7 year old would love to know what others think of his drawing! Sus?
-![My 7 year old would love to know what ot](20260502-006-my-7-year-old-would-love-to-know-what-ot/image.jpg)
-**Score:** 1,255 | **Source:** reddit/r/suspiciouslyspecific
+## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
+![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260503-006-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
+**Score:** 11,755 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## imposter syndrome (among us disease)
-![imposter syndrome (among us disease)](20260502-007-imposter-syndrome-among-us-disease/image.jpg)
-**Score:** 2,247 | **Source:** reddit/r/suspiciouslyspecific
+## An insult or Anne in salt?
+![An insult or Anne in salt?](20260503-007-an-insult-or-anne-in-salt/image.jpg)
+**Score:** 3,861 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## My Physics Class Homework Scores
-![My Physics Class Homework Scores](20260502-008-my-physics-class-homework-scores/image.jpg)
-**Score:** 54 | **Source:** reddit/r/oddlyspecific
+## Bingo's eyes are lookin a little sus.
+![Bingo's eyes are lookin a little sus.](20260503-008-bingos-eyes-are-lookin-a-little-sus/image.jpg)
+**Score:** 245 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260502-009-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 95 | **Source:** reddit/r/HolUp
+## Who is your fav Cambodian gas station explosion survivor that is pregnant?
+![Who is your fav Cambodian gas station ex](20260503-009-who-is-your-fav-cambodian-gas-station-ex/image.jpg)
+**Score:** 1,653 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## I guess I made an error by not breaking the sound barrier
-![I guess I made an error by not breaking ](20260502-010-i-guess-i-made-an-error-by-not-breaking-/image.jpg)
-**Score:** 6,166 | **Source:** reddit/r/dankmemes
+## Darker and darker
+![Darker and darker](20260503-010-darker-and-darker/image.jpg)
+**Score:** 287 | **Source:** reddit/r/HolUp
 
 ---
 
-## I probably should take off my tracker beforehand
-![I probably should take off my tracker be](20260502-011-i-probably-should-take-off-my-tracker-be/image.jpg)
-**Score:** 924 | **Source:** reddit/r/memes
-
----
-
-## Loopholes! People, loopholes!
-![Loopholes! People, loopholes!](20260502-012-loopholes-people-loopholes/image.jpg)
-**Score:** 7,415 | **Source:** reddit/r/dankmemes
-
----
-
-## Men's mental health discourse in a nutshell
-![Men's mental health discourse in a nutsh](20260502-013-mens-mental-health-discourse-in-a-nutshe/image.jpg)
-**Score:** 166 | **Source:** reddit/r/memes
-
----
-
-## Tge only slander I'm a victim of
-![Tge only slander I'm a victim of](20260502-014-tge-only-slander-im-a-victim-of/image.jpg)
-**Score:** 118 | **Source:** reddit/r/memes
+## My fashion sense was a lack thereof
+![My fashion sense was a lack thereof](20260503-011-my-fashion-sense-was-a-lack-thereof/image.jpg)
+**Score:** 8,501 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## It's like Chain reaction
-![It's like Chain reaction](20260502-015-its-like-chain-reaction/image.jpg)
-**Score:** 12,569 | **Source:** reddit/r/memes
+![It's like Chain reaction](20260503-012-its-like-chain-reaction/image.jpg)
+**Score:** 27,998 | **Source:** reddit/r/memes
+
+---
+
+## Work smarter, not harder.
+![Work smarter, not harder.](20260503-013-work-smarter-not-harder/image.jpg)
+**Score:** 2,726 | **Source:** reddit/r/dankmemes
+
+---
+
+## I guess I made an error by not breaking the sound barrier
+![I guess I made an error by not breaking ](20260503-014-i-guess-i-made-an-error-by-not-breaking-/image.jpg)
+**Score:** 6,172 | **Source:** reddit/r/dankmemes
+
+---
+
+## 11 inches and still not applicable 🥀
+![11 inches and still not applicable 🥀](20260503-015-11-inches-and-still-not-applicable/image.jpg)
+**Score:** 1,075 | **Source:** reddit/r/dankmemes
+
+---
+
+## A-meow-zon
+![A-meow-zon](20260503-016-a-meow-zon/image.jpg)
+**Score:** 93 | **Source:** reddit/r/memes
+
+---
+
+## The accurate definition of Soft Power
+![The accurate definition of Soft Power](20260503-017-the-accurate-definition-of-soft-power/image.jpg)
+**Score:** 226 | **Source:** reddit/r/memes
+
+---
+
+## We need to build more ballrooms.
+![We need to build more ballrooms.](20260503-018-we-need-to-build-more-ballrooms/image.jpg)
+**Score:** 491 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## But people already pay taxes
-![But people already pay taxes](20260502-016-but-people-already-pay-taxes/image.jpg)
+![But people already pay taxes](20260503-019-but-people-already-pay-taxes/image.jpg)
 **Score:** 1,417 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Out of season
-![Out of season](20260502-017-out-of-season/image.jpg)
-**Score:** 116 | **Source:** reddit/r/dankmemes
-
----
-
-## There body's look stiff as bricks the more I look at them
-![There body's look stiff as bricks the mo](20260502-018-there-bodys-look-stiff-as-bricks-the-mor/image.jpg)
-**Score:** 172 | **Source:** reddit/r/dankmemes
-
----
-
-## Nah bruh get that slop outta here
-![Nah bruh get that slop outta here](20260502-019-nah-bruh-get-that-slop-outta-here/image.jpg)
-**Score:** 2,166 | **Source:** reddit/r/dankmemes
-
----
-
-## Still better than not being able to choose
-![Still better than not being able to choo](20260502-020-still-better-than-not-being-able-to-choo/image.jpg)
-**Score:** 457 | **Source:** reddit/r/dankmemes
+## Can't wait to sleep again
+![Can't wait to sleep again](20260503-020-cant-wait-to-sleep-again/image.jpg)
+**Score:** 5,494 | **Source:** reddit/r/memes
 
 ---

@@ -1,24 +1,24 @@
-# Meme Feed — 2026-05-03 20:19
+# Meme Feed — 2026-05-03 20:23
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## They can't keep their lies straight.
-![They can't keep their lies straight.](20260503-001-they-cant-keep-their-lies-straight/image.jpg)
-**Score:** 986 | **Source:** reddit/r/WhitePeopleTwitter
+## a real man of the people. Never heard the words affordability, grocery, corner s
+![a real man of the people. Never heard th](20260503-001-a-real-man-of-the-people-never-heard-the/image.jpg)
+**Score:** 126 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260503-002-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,433 | **Source:** reddit/r/BlackPeopleTwitter
+## Who here is excited to have a bunch of 70 and 80 year olds in the House? Age lim
+![Who here is excited to have a bunch of 7](20260503-002-who-here-is-excited-to-have-a-bunch-of-7/image.jpg)
+**Score:** 570 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260503-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,181 | **Source:** reddit/r/facepalm
+## She was a honeypot deployed to provide updates on their progress
+![She was a honeypot deployed to provide u](20260503-003-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
+**Score:** 13,620 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
@@ -28,45 +28,45 @@
 
 ---
 
-## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
-![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260503-005-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
-**Score:** 1,541 | **Source:** reddit/r/technicallythetruth
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260503-005-well-did-they-accept-or-not/image.jpg)
+**Score:** 832 | **Source:** reddit/r/facepalm
 
 ---
 
-## Guess what game this is (hint it has among us in the name)
-![Guess what game this is (hint it has amo](20260503-006-guess-what-game-this-is-hint-it-has-amon/image.jpg)
-**Score:** 160 | **Source:** reddit/r/suspiciouslyspecific
+## A shower is hot
+![A shower is hot](20260503-006-a-shower-is-hot/image.jpg)
+**Score:** 1,175 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## And now I can't unseee it
-![And now I can't unseee it](20260503-007-and-now-i-cant-unseee-it/image.jpg)
-**Score:** 1,047 | **Source:** reddit/r/oddlyspecific
+## Some inflation is good
+![Some inflation is good](20260503-007-some-inflation-is-good/image.jpg)
+**Score:** 15,701 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260503-008-futabu-anyone/image.jpg)
-**Score:** 2,363 | **Source:** reddit/r/HolUp
+## Among who?
+![Among who?](20260503-008-among-who/image.jpg)
+**Score:** 3,782 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## But people already pay taxes
-![But people already pay taxes](20260503-009-but-people-already-pay-taxes/image.jpg)
-**Score:** 1,438 | **Source:** reddit/r/dankmemes
+## Kate is 98.7% L. Crispatus Dominant
+![Kate is 98.7% L. Crispatus Dominant](20260503-009-kate-is-987-l-crispatus-dominant/image.jpg)
+**Score:** 599 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## It's like Chain reaction
-![It's like Chain reaction](20260503-010-its-like-chain-reaction/image.jpg)
-**Score:** 47,178 | **Source:** reddit/r/memes
+## AI is everywhere
+![AI is everywhere](20260503-010-ai-is-everywhere/image.jpg)
+**Score:** 1,040 | **Source:** reddit/r/HolUp
 
 ---
 
-## The Betrayal of all time.
-![The Betrayal of all time.](20260503-011-the-betrayal-of-all-time/image.jpg)
-**Score:** 51 | **Source:** reddit/r/memes
+## My new invention..."The meme compass". You can place memes on it if you want!
+![My new invention..."The meme compass". Y](20260503-011-my-new-inventionthe-meme-compass-you-can/image.jpg)
+**Score:** 1,447 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -76,50 +76,50 @@
 
 ---
 
-## My fashion sense was a lack thereof
-![My fashion sense was a lack thereof](20260503-013-my-fashion-sense-was-a-lack-thereof/image.jpg)
-**Score:** 8,541 | **Source:** reddit/r/dankmemes
+## It's like Chain reaction
+![It's like Chain reaction](20260503-013-its-like-chain-reaction/image.jpg)
+**Score:** 47,178 | **Source:** reddit/r/memes
+
+---
+
+## The Betrayal of all time.
+![The Betrayal of all time.](20260503-014-the-betrayal-of-all-time/image.jpg)
+**Score:** 51 | **Source:** reddit/r/memes
 
 ---
 
 ## It’s a process
-![It’s a process](20260503-014-its-a-process/image.jpg)
+![It’s a process](20260503-015-its-a-process/image.jpg)
 **Score:** 67 | **Source:** reddit/r/memes
 
 ---
 
+## My fashion sense was a lack thereof
+![My fashion sense was a lack thereof](20260503-016-my-fashion-sense-was-a-lack-thereof/image.jpg)
+**Score:** 8,541 | **Source:** reddit/r/dankmemes
+
+---
+
+## But people already pay taxes
+![But people already pay taxes](20260503-017-but-people-already-pay-taxes/image.jpg)
+**Score:** 1,438 | **Source:** reddit/r/dankmemes
+
+---
+
 ## A-meow-zon
-![A-meow-zon](20260503-015-a-meow-zon/image.jpg)
+![A-meow-zon](20260503-018-a-meow-zon/image.jpg)
 **Score:** 1,068 | **Source:** reddit/r/memes
 
 ---
 
 ## was i wrong though?
-![was i wrong though?](20260503-016-was-i-wrong-though/image.jpg)
+![was i wrong though?](20260503-019-was-i-wrong-though/image.jpg)
 **Score:** 554 | **Source:** reddit/r/memes
 
 ---
 
-## My new invention..."The meme compass". You can place memes on it if you want!
-![My new invention..."The meme compass". Y](20260503-017-my-new-inventionthe-meme-compass-you-can/image.jpg)
-**Score:** 1,447 | **Source:** reddit/r/dankmemes
-
----
-
-## I probably should take off my tracker beforehand
-![I probably should take off my tracker be](20260503-018-i-probably-should-take-off-my-tracker-be/image.jpg)
-**Score:** 3,850 | **Source:** reddit/r/memes
-
----
-
 ## Pretty much
-![Pretty much](20260503-019-pretty-much/image.jpg)
+![Pretty much](20260503-020-pretty-much/image.jpg)
 **Score:** 2,681 | **Source:** reddit/r/memes
-
----
-
-## Imagine if I post a meme about inhaling bleach powder
-![Imagine if I post a meme about inhaling ](20260503-020-imagine-if-i-post-a-meme-about-inhaling-/image.jpg)
-**Score:** 1,086 | **Source:** reddit/r/memes
 
 ---

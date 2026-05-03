@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-04 00:18
+# Meme Feed — 2026-05-04 04:18
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
+## Word association Schoolboy Q
+![Word association Schoolboy Q](20260504-001-word-association-schoolboy-q/image.jpg)
+**Score:** 1,673 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
 ## Proximity to systematic wealth but still being outside of it can have you making
-![Proximity to systematic wealth but still](20260504-001-proximity-to-systematic-wealth-but-still/image.jpg)
-**Score:** 10,433 | **Source:** reddit/r/BlackPeopleTwitter
+![Proximity to systematic wealth but still](20260504-002-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,427 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260504-002-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,362 | **Source:** reddit/r/facepalm
+![Scammer pretending to be me is letting m](20260504-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,366 | **Source:** reddit/r/facepalm
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260504-003-i-just-opened-youtube/image.jpg)
-**Score:** 8,984 | **Source:** reddit/r/technicallythetruth
+## To be fair an Avocado is just Guacamole in ball form.
+![To be fair an Avocado is just Guacamole ](20260504-004-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
+**Score:** 10,112 | **Source:** reddit/r/technicallythetruth
 
 ---
 
 ## Oh Oracle, How Will I Die? Surrounded By Those You Call Your Friends
-![Oh Oracle, How Will I Die? Surrounded By](20260504-004-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
-**Score:** 3,932 | **Source:** reddit/r/technicallythetruth
+![Oh Oracle, How Will I Die? Surrounded By](20260504-005-oh-oracle-how-will-i-die-surrounded-by-t/image.jpg)
+**Score:** 3,935 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## You can't rape a .38
-![You can't rape a .38](20260504-005-you-cant-rape-a-38/image.jpg)
-**Score:** 59 | **Source:** reddit/r/oddlyspecific
+## what more to say
+![what more to say](20260504-006-what-more-to-say/image.jpg)
+**Score:** 124 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260504-006-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 94 | **Source:** reddit/r/HolUp
+## AI is everywhere
+![AI is everywhere](20260504-007-ai-is-everywhere/image.jpg)
+**Score:** 1,034 | **Source:** reddit/r/HolUp
 
 ---
 
-## Imagine if I post a meme about inhaling bleach powder
-![Imagine if I post a meme about inhaling ](20260504-007-imagine-if-i-post-a-meme-about-inhaling-/image.jpg)
-**Score:** 1,095 | **Source:** reddit/r/memes
+## is my brain fried or this is a crazy ad
+![is my brain fried or this is a crazy ad](20260504-008-is-my-brain-fried-or-this-is-a-crazy-ad/image.jpg)
+**Score:** 180 | **Source:** reddit/r/HolUp
 
 ---
 
-## We need to build more ballrooms.
-![We need to build more ballrooms.](20260504-008-we-need-to-build-more-ballrooms/image.jpg)
-**Score:** 498 | **Source:** reddit/r/dankmemes
+## Nah bruh get that slop outta here
+![Nah bruh get that slop outta here](20260504-009-nah-bruh-get-that-slop-outta-here/image.jpg)
+**Score:** 2,230 | **Source:** reddit/r/dankmemes
 
 ---
 
-## My fashion sense was a lack thereof
-![My fashion sense was a lack thereof](20260504-009-my-fashion-sense-was-a-lack-thereof/image.jpg)
-**Score:** 8,551 | **Source:** reddit/r/dankmemes
-
----
-
-## I probably should take off my tracker beforehand
-![I probably should take off my tracker be](20260504-010-i-probably-should-take-off-my-tracker-be/image.jpg)
-**Score:** 3,925 | **Source:** reddit/r/memes
+## A-meow-zon
+![A-meow-zon](20260504-010-a-meow-zon/image.jpg)
+**Score:** 1,166 | **Source:** reddit/r/memes
 
 ---
 
 ## was i wrong though?
 ![was i wrong though?](20260504-011-was-i-wrong-though/image.jpg)
-**Score:** 2,491 | **Source:** reddit/r/memes
+**Score:** 4,388 | **Source:** reddit/r/memes
 
 ---
 
-## Avicenna? The DJ?
-![Avicenna? The DJ?](20260504-012-avicenna-the-dj/image.jpg)
-**Score:** 444 | **Source:** reddit/r/dankmemes
+## I probably should take off my tracker beforehand
+![I probably should take off my tracker be](20260504-012-i-probably-should-take-off-my-tracker-be/image.jpg)
+**Score:** 3,972 | **Source:** reddit/r/memes
+
+---
+
+## It's like Chain reaction
+![It's like Chain reaction](20260504-013-its-like-chain-reaction/image.jpg)
+**Score:** 49,043 | **Source:** reddit/r/memes
+
+---
+
+## "I told you that in confidence!"
+!["I told you that in confidence!"](20260504-014-i-told-you-that-in-confidence/image.jpg)
+**Score:** 80 | **Source:** reddit/r/dankmemes
+
+---
+
+## My fashion sense was a lack thereof
+![My fashion sense was a lack thereof](20260504-015-my-fashion-sense-was-a-lack-thereof/image.jpg)
+**Score:** 8,556 | **Source:** reddit/r/dankmemes
+
+---
+
+## My new invention..."The meme compass". You can place memes on it if you want!
+![My new invention..."The meme compass". Y](20260504-016-my-new-inventionthe-meme-compass-you-can/image.jpg)
+**Score:** 1,474 | **Source:** reddit/r/dankmemes
+
+---
+
+## Out of season
+![Out of season](20260504-017-out-of-season/image.jpg)
+**Score:** 136 | **Source:** reddit/r/dankmemes
+
+---
+
+## But people already pay taxes
+![But people already pay taxes](20260504-018-but-people-already-pay-taxes/image.jpg)
+**Score:** 1,442 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## MURICA!!!!
-![MURICA!!!!](20260504-013-murica/image.jpg)
-**Score:** 123 | **Source:** reddit/r/dankmemes
+![MURICA!!!!](20260504-019-murica/image.jpg)
+**Score:** 120 | **Source:** reddit/r/dankmemes
 
 ---
 
-## A-meow-zon
-![A-meow-zon](20260504-014-a-meow-zon/image.jpg)
-**Score:** 1,133 | **Source:** reddit/r/memes
-
----
-
-## seriously why is it like this
-![seriously why is it like this](20260504-015-seriously-why-is-it-like-this/image.jpg)
-**Score:** 60 | **Source:** reddit/r/memes
-
----
-
-## Work smarter, not harder.
-![Work smarter, not harder.](20260504-016-work-smarter-not-harder/image.jpg)
-**Score:** 2,927 | **Source:** reddit/r/dankmemes
-
----
-
-## The Betrayal of all time.
-![The Betrayal of all time.](20260504-017-the-betrayal-of-all-time/image.jpg)
-**Score:** 63 | **Source:** reddit/r/memes
-
----
-
-## 11 inches and still not applicable 🥀
-![11 inches and still not applicable 🥀](20260504-018-11-inches-and-still-not-applicable/image.jpg)
-**Score:** 1,288 | **Source:** reddit/r/dankmemes
-
----
-
-## Still better than not being able to choose
-![Still better than not being able to choo](20260504-019-still-better-than-not-being-able-to-choo/image.jpg)
-**Score:** 472 | **Source:** reddit/r/dankmemes
-
----
-
-## Loopholes! People, loopholes!
-![Loopholes! People, loopholes!](20260504-020-loopholes-people-loopholes/image.jpg)
-**Score:** 7,486 | **Source:** reddit/r/dankmemes
+## Choose your path
+![Choose your path](20260504-020-choose-your-path/image.jpg)
+**Score:** 1,045 | **Source:** reddit/r/dankmemes
 
 ---

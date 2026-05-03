@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-03 04:18
+# Meme Feed — 2026-05-03 08:18
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## how do you reason with this?
-![how do you reason with this?](20260503-001-how-do-you-reason-with-this/image.jpg)
-**Score:** 120 | **Source:** reddit/r/WhitePeopleTwitter
+## May Day 2026
+![May Day 2026](20260503-001-may-day-2026/image.jpg)
+**Score:** 380 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## What's done in the light will get more bright
-![What's done in the light will get more b](20260503-002-whats-done-in-the-light-will-get-more-br/image.jpg)
-**Score:** 1,384 | **Source:** reddit/r/BlackPeopleTwitter
+## Yes, I saw what you saw.
+![Yes, I saw what you saw.](20260503-002-yes-i-saw-what-you-saw/image.jpg)
+**Score:** 4,620 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260503-003-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 2,136 | **Source:** reddit/r/facepalm
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260503-003-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,426 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## It is a penny…
-![It is a penny…](20260503-004-it-is-a-penny/image.jpg)
-**Score:** 845 | **Source:** reddit/r/technicallythetruth
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260503-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,367 | **Source:** reddit/r/facepalm
+
+---
+
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260503-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,180 | **Source:** reddit/r/facepalm
 
 ---
 
 ## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260503-005-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,107 | **Source:** reddit/r/technicallythetruth
+![To be fair an Avocado is just Guacamole ](20260503-006-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
+**Score:** 10,103 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Just slightly...
-![Just slightly...](20260503-006-just-slightly/image.jpg)
-**Score:** 521 | **Source:** reddit/r/suspiciouslyspecific
+## The detective didn't find it
+![The detective didn't find it](20260503-007-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,845 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## And now I can't unseee it
-![And now I can't unseee it](20260503-007-and-now-i-cant-unseee-it/image.jpg)
-**Score:** 1,019 | **Source:** reddit/r/oddlyspecific
+## It's Sabotage
+![It's Sabotage](20260503-008-its-sabotage/image.jpg)
+**Score:** 76 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260503-008-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 651 | **Source:** reddit/r/HolUp
+## what more to say
+![what more to say](20260503-009-what-more-to-say/image.jpg)
+**Score:** 112 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## An augmented reality sandbox...
-![An augmented reality sandbox...](20260503-009-an-augmented-reality-sandbox/image.jpg)
-**Score:** 610 | **Source:** reddit/r/HolUp
+## Selling my cow
+![Selling my cow](20260503-010-selling-my-cow/image.jpg)
+**Score:** 1,177 | **Source:** reddit/r/HolUp
 
 ---
 
 ## Men's mental health discourse in a nutshell
-![Men's mental health discourse in a nutsh](20260503-010-mens-mental-health-discourse-in-a-nutshe/image.jpg)
-**Score:** 206 | **Source:** reddit/r/memes
-
----
-
-## Imagine if I post a meme about inhaling bleach powder
-![Imagine if I post a meme about inhaling ](20260503-011-imagine-if-i-post-a-meme-about-inhaling-/image.jpg)
-**Score:** 828 | **Source:** reddit/r/memes
-
----
-
-## A-meow-zon
-![A-meow-zon](20260503-012-a-meow-zon/image.jpg)
-**Score:** 488 | **Source:** reddit/r/memes
-
----
-
-## The accurate definition of Soft Power
-![The accurate definition of Soft Power](20260503-013-the-accurate-definition-of-soft-power/image.jpg)
-**Score:** 233 | **Source:** reddit/r/memes
-
----
-
-## Happens sometimes
-![Happens sometimes](20260503-014-happens-sometimes/image.jpg)
-**Score:** 99 | **Source:** reddit/r/memes
-
----
-
-## I probably should take off my tracker beforehand
-![I probably should take off my tracker be](20260503-015-i-probably-should-take-off-my-tracker-be/image.jpg)
-**Score:** 3,087 | **Source:** reddit/r/memes
-
----
-
-## Work smarter, not harder.
-![Work smarter, not harder.](20260503-016-work-smarter-not-harder/image.jpg)
-**Score:** 2,812 | **Source:** reddit/r/dankmemes
-
----
-
-## MURICA!!!!
-![MURICA!!!!](20260503-017-murica/image.jpg)
-**Score:** 115 | **Source:** reddit/r/dankmemes
-
----
-
-## We need to build more ballrooms.
-![We need to build more ballrooms.](20260503-018-we-need-to-build-more-ballrooms/image.jpg)
-**Score:** 496 | **Source:** reddit/r/dankmemes
-
----
-
-## Out of season
-![Out of season](20260503-019-out-of-season/image.jpg)
-**Score:** 127 | **Source:** reddit/r/dankmemes
+![Men's mental health discourse in a nutsh](20260503-011-mens-mental-health-discourse-in-a-nutshe/image.jpg)
+**Score:** 218 | **Source:** reddit/r/memes
 
 ---
 
 ## 11 inches and still not applicable 🥀
-![11 inches and still not applicable 🥀](20260503-020-11-inches-and-still-not-applicable/image.jpg)
-**Score:** 1,149 | **Source:** reddit/r/dankmemes
+![11 inches and still not applicable 🥀](20260503-012-11-inches-and-still-not-applicable/image.jpg)
+**Score:** 1,207 | **Source:** reddit/r/dankmemes
+
+---
+
+## Work smarter, not harder.
+![Work smarter, not harder.](20260503-013-work-smarter-not-harder/image.jpg)
+**Score:** 2,865 | **Source:** reddit/r/dankmemes
+
+---
+
+## A-meow-zon
+![A-meow-zon](20260503-014-a-meow-zon/image.jpg)
+**Score:** 748 | **Source:** reddit/r/memes
+
+---
+
+## yes melissa i will READ the question again
+![yes melissa i will READ the question aga](20260503-015-yes-melissa-i-will-read-the-question-aga/image.jpg)
+**Score:** 6,526 | **Source:** reddit/r/dankmemes
+
+---
+
+## Still better than not being able to choose
+![Still better than not being able to choo](20260503-016-still-better-than-not-being-able-to-choo/image.jpg)
+**Score:** 467 | **Source:** reddit/r/dankmemes
+
+---
+
+## My fashion sense was a lack thereof
+![My fashion sense was a lack thereof](20260503-017-my-fashion-sense-was-a-lack-thereof/image.jpg)
+**Score:** 8,537 | **Source:** reddit/r/dankmemes
+
+---
+
+## It's like Chain reaction
+![It's like Chain reaction](20260503-018-its-like-chain-reaction/image.jpg)
+**Score:** 40,894 | **Source:** reddit/r/memes
+
+---
+
+## Nah bruh get that slop outta here
+![Nah bruh get that slop outta here](20260503-019-nah-bruh-get-that-slop-outta-here/image.jpg)
+**Score:** 2,216 | **Source:** reddit/r/dankmemes
+
+---
+
+## Imagine if I post a meme about inhaling bleach powder
+![Imagine if I post a meme about inhaling ](20260503-020-imagine-if-i-post-a-meme-about-inhaling-/image.jpg)
+**Score:** 945 | **Source:** reddit/r/memes
 
 ---

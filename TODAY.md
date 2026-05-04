@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-04 16:18
+# Meme Feed — 2026-05-04 20:18
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Once again, not a drag queen
-![Once again, not a drag queen](20260504-001-once-again-not-a-drag-queen/image.jpg)
-**Score:** 490 | **Source:** reddit/r/WhitePeopleTwitter
+## The US government now ends their lies with, "YOU CAN'T MAKE THIS UP"
+![The US government now ends their lies wi](20260504-001-the-us-government-now-ends-their-lies-wi/image.jpg)
+**Score:** 105 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## She was a honeypot deployed to provide updates on their progress
-![She was a honeypot deployed to provide u](20260504-002-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
-**Score:** 13,621 | **Source:** reddit/r/BlackPeopleTwitter
+## I've never seen them lose a case
+![I've never seen them lose a case](20260504-002-ive-never-seen-them-lose-a-case/image.jpg)
+**Score:** 8,965 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260504-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,181 | **Source:** reddit/r/facepalm
+## Word association Schoolboy Q
+![Word association Schoolboy Q](20260504-003-word-association-schoolboy-q/image.jpg)
+**Score:** 1,680 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
 ![South Korean Pilots Were Taking Selfies ](20260504-004-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 2,140 | **Source:** reddit/r/facepalm
+**Score:** 2,141 | **Source:** reddit/r/facepalm
 
 ---
 
-## I cast stairs... Wrong subReddit
-![I cast stairs... Wrong subReddit](20260504-005-i-cast-stairs-wrong-subreddit/image.jpg)
-**Score:** 2,733 | **Source:** reddit/r/technicallythetruth
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260504-005-well-did-they-accept-or-not/image.jpg)
+**Score:** 832 | **Source:** reddit/r/facepalm
 
 ---
 
-## My 7 year old would love to know what others think of his drawing! Sus?
-![My 7 year old would love to know what ot](20260504-006-my-7-year-old-would-love-to-know-what-ot/image.jpg)
-**Score:** 1,258 | **Source:** reddit/r/suspiciouslyspecific
+## He didn't sound like much of anything in there
+![He didn't sound like much of anything in](20260504-006-he-didnt-sound-like-much-of-anything-in-/image.jpg)
+**Score:** 1,841 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
-![“Godzilla really pulled up on Lady Liber](20260504-007-godzilla-really-pulled-up-on-lady-libert/image.jpg)
-**Score:** 656 | **Source:** reddit/r/HolUp
+## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
+![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260504-007-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
+**Score:** 1,543 | **Source:** reddit/r/technicallythetruth
 
 ---
 
 ## Futabu anyone ???
 ![Futabu anyone ???](20260504-008-futabu-anyone/image.jpg)
-**Score:** 2,368 | **Source:** reddit/r/HolUp
+**Score:** 2,364 | **Source:** reddit/r/HolUp
 
 ---
 
-## It's like Chain reaction
-![It's like Chain reaction](20260504-009-its-like-chain-reaction/image.jpg)
-**Score:** 50,422 | **Source:** reddit/r/memes
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260504-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 653 | **Source:** reddit/r/HolUp
+
+---
+
+## Cornermaxxing
+![Cornermaxxing](20260504-010-cornermaxxing/image.jpg)
+**Score:** 1,508 | **Source:** reddit/r/memes
+
+---
+
+## Decepticon operated can opener
+![Decepticon operated can opener](20260504-011-decepticon-operated-can-opener/image.jpg)
+**Score:** 58 | **Source:** reddit/r/memes
 
 ---
 
 ## was i wrong though?
-![was i wrong though?](20260504-010-was-i-wrong-though/image.jpg)
-**Score:** 6,714 | **Source:** reddit/r/memes
+![was i wrong though?](20260504-012-was-i-wrong-though/image.jpg)
+**Score:** 7,165 | **Source:** reddit/r/memes
 
 ---
 
-## 11 inches and still not applicable 🥀
-![11 inches and still not applicable 🥀](20260504-011-11-inches-and-still-not-applicable/image.jpg)
-**Score:** 1,303 | **Source:** reddit/r/dankmemes
+## There's no title.
+![There's no title.](20260504-013-theres-no-title/image.jpg)
+**Score:** 99 | **Source:** reddit/r/dankmemes
 
 ---
 
-## My fashion sense was a lack thereof
-![My fashion sense was a lack thereof](20260504-012-my-fashion-sense-was-a-lack-thereof/image.jpg)
-**Score:** 8,569 | **Source:** reddit/r/dankmemes
+## Nah bruh get that slop outta here
+![Nah bruh get that slop outta here](20260504-014-nah-bruh-get-that-slop-outta-here/image.jpg)
+**Score:** 2,240 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Still better than not being able to choose
-![Still better than not being able to choo](20260504-013-still-better-than-not-being-able-to-choo/image.jpg)
-**Score:** 474 | **Source:** reddit/r/dankmemes
+## My new invention..."The meme compass". You can place memes on it if you want!
+![My new invention..."The meme compass". Y](20260504-015-my-new-inventionthe-meme-compass-you-can/image.jpg)
+**Score:** 1,500 | **Source:** reddit/r/dankmemes
+
+---
+
+## Holy shhhh...
+![Holy shhhh...](20260504-016-holy-shhhh/image.jpg)
+**Score:** 469 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Honestly, that's all I remember from this godforsaken movie.
-![Honestly, that's all I remember from thi](20260504-014-honestly-thats-all-i-remember-from-this-/image.jpg)
-**Score:** 95 | **Source:** reddit/r/memes
+![Honestly, that's all I remember from thi](20260504-017-honestly-thats-all-i-remember-from-this-/image.jpg)
+**Score:** 104 | **Source:** reddit/r/memes
+
+---
+
+## I guess I made an error by not breaking the sound barrier
+![I guess I made an error by not breaking ](20260504-018-i-guess-i-made-an-error-by-not-breaking-/image.jpg)
+**Score:** 6,207 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Work smarter, not harder.
-![Work smarter, not harder.](20260504-015-work-smarter-not-harder/image.jpg)
-**Score:** 2,948 | **Source:** reddit/r/dankmemes
+![Work smarter, not harder.](20260504-019-work-smarter-not-harder/image.jpg)
+**Score:** 2,951 | **Source:** reddit/r/dankmemes
 
 ---
 
-## they only want cisplants
-![they only want cisplants](20260504-016-they-only-want-cisplants/image.jpg)
-**Score:** 1,607 | **Source:** reddit/r/dankmemes
-
----
-
-## Man this is rough
-![Man this is rough](20260504-017-man-this-is-rough/image.jpg)
-**Score:** 97 | **Source:** reddit/r/dankmemes
-
----
-
-## Out of season
-![Out of season](20260504-018-out-of-season/image.jpg)
-**Score:** 138 | **Source:** reddit/r/dankmemes
-
----
-
-## Loopholes! People, loopholes!
-![Loopholes! People, loopholes!](20260504-019-loopholes-people-loopholes/image.jpg)
-**Score:** 7,496 | **Source:** reddit/r/dankmemes
-
----
-
-## Choose your path
-![Choose your path](20260504-020-choose-your-path/image.jpg)
-**Score:** 2,050 | **Source:** reddit/r/dankmemes
+## Coming soon to an airport near you!
+![Coming soon to an airport near you!](20260504-020-coming-soon-to-an-airport-near-you/image.jpg)
+**Score:** 66 | **Source:** reddit/r/memes
 
 ---

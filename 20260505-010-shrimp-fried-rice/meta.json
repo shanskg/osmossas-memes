@@ -6,5 +6,7 @@
   "subreddit": "reddit/r/HolUp",
   "image_path": "20260505-010-shrimp-fried-rice/image.jpg",
   "scraped_at": "2026-05-05T00:17:18.327245",
-  "status": "pending"
+  "status": "video_v2",
+  "video_path": "videos/20260505-010-shrimp-fried-rice.mp4",
+  "background": "bg_130105_001.mp4"
 }

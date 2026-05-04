@@ -1,66 +1,66 @@
-# Meme Feed — 2026-05-04 08:18
+# Meme Feed — 2026-05-04 08:20
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## the normalization and acceptance of his lawlessness is why he's back in the Whit
-![the normalization and acceptance of his ](20260504-001-the-normalization-and-acceptance-of-his-/image.jpg)
-**Score:** 2,463 | **Source:** reddit/r/WhitePeopleTwitter
+## Once again, not a drag queen
+![Once again, not a drag queen](20260504-001-once-again-not-a-drag-queen/image.jpg)
+**Score:** 476 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Crazy thing to say
-![Crazy thing to say](20260504-002-crazy-thing-to-say/image.jpg)
-**Score:** 1,172 | **Source:** reddit/r/WhitePeopleTwitter
+## What's done in the light will get more bright
+![What's done in the light will get more b](20260504-002-whats-done-in-the-light-will-get-more-br/image.jpg)
+**Score:** 1,401 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Word association Schoolboy Q
-![Word association Schoolboy Q](20260504-003-word-association-schoolboy-q/image.jpg)
-**Score:** 1,676 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## I've never seen them lose a case
-![I've never seen them lose a case](20260504-004-ive-never-seen-them-lose-a-case/image.jpg)
-**Score:** 8,661 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260504-005-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 2,137 | **Source:** reddit/r/facepalm
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260504-003-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,426 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260504-006-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+![Scammer pretending to be me is letting m](20260504-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
 **Score:** 1,366 | **Source:** reddit/r/facepalm
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260504-007-i-just-opened-youtube/image.jpg)
-**Score:** 8,977 | **Source:** reddit/r/technicallythetruth
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260504-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,180 | **Source:** reddit/r/facepalm
 
 ---
 
-## Do we have stone age PokéFans in the chat?
-![Do we have stone age PokéFans in the cha](20260504-008-do-we-have-stone-age-pokéfans-in-the-cha/image.jpg)
-**Score:** 4,332 | **Source:** reddit/r/technicallythetruth
+## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
+![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260504-006-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
+**Score:** 1,550 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## I probably should take off my tracker beforehand
-![I probably should take off my tracker be](20260504-009-i-probably-should-take-off-my-tracker-be/image.jpg)
-**Score:** 3,987 | **Source:** reddit/r/memes
+## Among us irl 🤯
+![Among us irl 🤯](20260504-007-among-us-irl/image.jpg)
+**Score:** 237 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## There's no title.
-![There's no title.](20260504-010-theres-no-title/image.jpg)
-**Score:** 51 | **Source:** reddit/r/dankmemes
+## what more to say
+![what more to say](20260504-008-what-more-to-say/image.jpg)
+**Score:** 128 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## “Godzilla really pulled up on Lady Liberty like that… 💀 hold up”
+![“Godzilla really pulled up on Lady Liber](20260504-009-godzilla-really-pulled-up-on-lady-libert/image.jpg)
+**Score:** 656 | **Source:** reddit/r/HolUp
+
+---
+
+## An augmented reality sandbox...
+![An augmented reality sandbox...](20260504-010-an-augmented-reality-sandbox/image.jpg)
+**Score:** 609 | **Source:** reddit/r/HolUp
 
 ---
 
@@ -70,56 +70,56 @@
 
 ---
 
-## Still better than not being able to choose
-![Still better than not being able to choo](20260504-012-still-better-than-not-being-able-to-choo/image.jpg)
-**Score:** 473 | **Source:** reddit/r/dankmemes
+## There body's look stiff as bricks the more I look at them
+![There body's look stiff as bricks the mo](20260504-012-there-bodys-look-stiff-as-bricks-the-mor/image.jpg)
+**Score:** 206 | **Source:** reddit/r/dankmemes
 
 ---
 
-## they only want cisplants
-![they only want cisplants](20260504-013-they-only-want-cisplants/image.jpg)
-**Score:** 338 | **Source:** reddit/r/dankmemes
-
----
-
-## Chronological order ahh situation
-![Chronological order ahh situation](20260504-014-chronological-order-ahh-situation/image.jpg)
-**Score:** 111 | **Source:** reddit/r/memes
-
----
-
-## Choose your path
-![Choose your path](20260504-015-choose-your-path/image.jpg)
-**Score:** 376 | **Source:** reddit/r/memes
-
----
-
-## Avicenna? The DJ?
-![Avicenna? The DJ?](20260504-016-avicenna-the-dj/image.jpg)
-**Score:** 463 | **Source:** reddit/r/dankmemes
-
----
-
-## Nah bruh get that slop outta here
-![Nah bruh get that slop outta here](20260504-017-nah-bruh-get-that-slop-outta-here/image.jpg)
-**Score:** 2,237 | **Source:** reddit/r/dankmemes
-
----
-
-## A-meow-zon
-![A-meow-zon](20260504-018-a-meow-zon/image.jpg)
-**Score:** 1,185 | **Source:** reddit/r/memes
-
----
-
-## But people already pay taxes
-![But people already pay taxes](20260504-019-but-people-already-pay-taxes/image.jpg)
-**Score:** 1,445 | **Source:** reddit/r/dankmemes
+## 11 inches and still not applicable 🥀
+![11 inches and still not applicable 🥀](20260504-013-11-inches-and-still-not-applicable/image.jpg)
+**Score:** 1,298 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Work smarter, not harder.
-![Work smarter, not harder.](20260504-020-work-smarter-not-harder/image.jpg)
+![Work smarter, not harder.](20260504-014-work-smarter-not-harder/image.jpg)
 **Score:** 2,948 | **Source:** reddit/r/dankmemes
+
+---
+
+## Out of season
+![Out of season](20260504-015-out-of-season/image.jpg)
+**Score:** 137 | **Source:** reddit/r/dankmemes
+
+---
+
+## "I told you that in confidence!"
+!["I told you that in confidence!"](20260504-016-i-told-you-that-in-confidence/image.jpg)
+**Score:** 95 | **Source:** reddit/r/dankmemes
+
+---
+
+## Still better than not being able to choose
+![Still better than not being able to choo](20260504-017-still-better-than-not-being-able-to-choo/image.jpg)
+**Score:** 473 | **Source:** reddit/r/dankmemes
+
+---
+
+## Chronological order ahh situation
+![Chronological order ahh situation](20260504-018-chronological-order-ahh-situation/image.jpg)
+**Score:** 111 | **Source:** reddit/r/memes
+
+---
+
+## There's no title.
+![There's no title.](20260504-019-theres-no-title/image.jpg)
+**Score:** 51 | **Source:** reddit/r/dankmemes
+
+---
+
+## Choose your path
+![Choose your path](20260504-020-choose-your-path/image.jpg)
+**Score:** 1,623 | **Source:** reddit/r/dankmemes
 
 ---

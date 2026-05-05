@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-05 12:23
+# Meme Feed — 2026-05-05 16:18
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Surveillance state incoming
-![Surveillance state incoming](20260505-001-surveillance-state-incoming/image.jpg)
-**Score:** 9,319 | **Source:** reddit/r/WhitePeopleTwitter
+## Yes, I saw what you saw.
+![Yes, I saw what you saw.](20260505-001-yes-i-saw-what-you-saw/image.jpg)
+**Score:** 4,969 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Put your stocks in your car to go somewhere this summer I guess
-![Put your stocks in your car to go somewh](20260505-002-put-your-stocks-in-your-car-to-go-somewh/image.jpg)
-**Score:** 1,333 | **Source:** reddit/r/WhitePeopleTwitter
-
----
-
-## What's done in the light will get more bright
-![What's done in the light will get more b](20260505-003-whats-done-in-the-light-will-get-more-br/image.jpg)
-**Score:** 1,408 | **Source:** reddit/r/BlackPeopleTwitter
+## Proximity to systematic wealth but still being outside of it can have you making
+![Proximity to systematic wealth but still](20260505-002-proximity-to-systematic-wealth-but-still/image.jpg)
+**Score:** 10,434 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260505-004-well-did-they-accept-or-not/image.jpg)
-**Score:** 834 | **Source:** reddit/r/facepalm
+![Well? Did they accept or not?](20260505-003-well-did-they-accept-or-not/image.jpg)
+**Score:** 831 | **Source:** reddit/r/facepalm
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260505-005-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,178 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260505-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,371 | **Source:** reddit/r/facepalm
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260505-006-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,116 | **Source:** reddit/r/technicallythetruth
+## I cast stairs... Wrong subReddit
+![I cast stairs... Wrong subReddit](20260505-005-i-cast-stairs-wrong-subreddit/image.jpg)
+**Score:** 2,737 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Super rich or bus driver?
-![Super rich or bus driver?](20260505-007-super-rich-or-bus-driver/image.jpg)
-**Score:** 31,033 | **Source:** reddit/r/technicallythetruth
-
----
-
-## You can't rape a .38
-![You can't rape a .38](20260505-008-you-cant-rape-a-38/image.jpg)
-**Score:** 91 | **Source:** reddit/r/oddlyspecific
+## intelligence is not dangerous
+![intelligence is not dangerous](20260505-006-intelligence-is-not-dangerous/image.jpg)
+**Score:** 55,759 | **Source:** reddit/r/technicallythetruth
 
 ---
 
 ## AI is everywhere
-![AI is everywhere](20260505-009-ai-is-everywhere/image.jpg)
-**Score:** 1,041 | **Source:** reddit/r/HolUp
+![AI is everywhere](20260505-007-ai-is-everywhere/image.jpg)
+**Score:** 1,043 | **Source:** reddit/r/HolUp
 
 ---
 
-## Shrimp fried rice
-![Shrimp fried rice](20260505-010-shrimp-fried-rice/image.jpg)
-**Score:** 199 | **Source:** reddit/r/HolUp
+## Warm Season
+![Warm Season](20260505-008-warm-season/image.jpg)
+**Score:** 300 | **Source:** reddit/r/memes
 
 ---
 
-## she be like say sike right now
-![she be like say sike right now](20260505-011-she-be-like-say-sike-right-now/image.jpg)
-**Score:** 87 | **Source:** reddit/r/dankmemes
+## Loopholes! People, loopholes!
+![Loopholes! People, loopholes!](20260505-009-loopholes-people-loopholes/image.jpg)
+**Score:** 7,508 | **Source:** reddit/r/dankmemes
 
 ---
 
-## There body's look stiff as bricks the more I look at them
-![There body's look stiff as bricks the mo](20260505-012-there-bodys-look-stiff-as-bricks-the-mor/image.jpg)
-**Score:** 209 | **Source:** reddit/r/dankmemes
+## My new invention..."The meme compass". You can place memes on it if you want!
+![My new invention..."The meme compass". Y](20260505-010-my-new-inventionthe-meme-compass-you-can/image.jpg)
+**Score:** 1,509 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Holy shhhh...
-![Holy shhhh...](20260505-013-holy-shhhh/image.jpg)
-**Score:** 618 | **Source:** reddit/r/dankmemes
+## Choose your path
+![Choose your path](20260505-011-choose-your-path/image.jpg)
+**Score:** 2,478 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Coming soon to an airport near you!
-![Coming soon to an airport near you!](20260505-014-coming-soon-to-an-airport-near-you/image.jpg)
-**Score:** 92 | **Source:** reddit/r/memes
+## The fight against the Asian hornet in the years 2016-2025 ended with the capitul
+![The fight against the Asian hornet in th](20260505-012-the-fight-against-the-asian-hornet-in-th/image.jpg)
+**Score:** 245 | **Source:** reddit/r/dankmemes
+
+---
+
+## Found out today what "NTR" is. Anime was a mistake.
+![Found out today what "NTR" is. Anime was](20260505-013-found-out-today-what-ntr-is-anime-was-a-/image.jpg)
+**Score:** 4,469 | **Source:** reddit/r/memes
+
+---
+
+## He protects us all!
+![He protects us all!](20260505-014-he-protects-us-all/image.jpg)
+**Score:** 2,643 | **Source:** reddit/r/memes
 
 ---
 
 ## My gut reaction is not good
 ![My gut reaction is not good](20260505-015-my-gut-reaction-is-not-good/image.jpg)
-**Score:** 126 | **Source:** reddit/r/memes
+**Score:** 1,239 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Found out today what "NTR" is. Anime was a mistake.
-![Found out today what "NTR" is. Anime was](20260505-016-found-out-today-what-ntr-is-anime-was-a-/image.jpg)
-**Score:** 3,586 | **Source:** reddit/r/memes
+## Holy shhhh...
+![Holy shhhh...](20260505-016-holy-shhhh/image.jpg)
+**Score:** 618 | **Source:** reddit/r/dankmemes
 
 ---
 
-## was i wrong though?
-![was i wrong though?](20260505-017-was-i-wrong-though/image.jpg)
-**Score:** 7,551 | **Source:** reddit/r/memes
+## Dont cry dont cry dont cry
+![Dont cry dont cry dont cry](20260505-017-dont-cry-dont-cry-dont-cry/image.jpg)
+**Score:** 140 | **Source:** reddit/r/memes
 
 ---
 
-## He protects us all!
-![He protects us all!](20260505-018-he-protects-us-all/image.jpg)
-**Score:** 548 | **Source:** reddit/r/memes
+## How To Get Strangled By Your Own Memories
+![How To Get Strangled By Your Own Memorie](20260505-018-how-to-get-strangled-by-your-own-memorie/image.jpg)
+**Score:** 72 | **Source:** reddit/r/memes
 
 ---
 
-## Man this is rough
-![Man this is rough](20260505-019-man-this-is-rough/image.jpg)
-**Score:** 767 | **Source:** reddit/r/dankmemes
+## Nah bruh get that slop outta here
+![Nah bruh get that slop outta here](20260505-019-nah-bruh-get-that-slop-outta-here/image.jpg)
+**Score:** 2,243 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I pay taxes on the money I earn then on the money I spend.
-![I pay taxes on the money I earn then on ](20260505-020-i-pay-taxes-on-the-money-i-earn-then-on-/image.jpg)
-**Score:** 454 | **Source:** reddit/r/memes
+## Heat Season
+![Heat Season](20260505-020-heat-season/image.jpg)
+**Score:** 80 | **Source:** reddit/r/dankmemes
 
 ---

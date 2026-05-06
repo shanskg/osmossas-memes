@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-06 16:23
+# Meme Feed — 2026-05-06 20:17
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Go to bed, Uncle Don, you're drunk. Don't forget to take your meds...
-![Go to bed, Uncle Don, you're drunk. Don'](20260506-001-go-to-bed-uncle-don-youre-drunk-dont-for/image.jpg)
-**Score:** 607 | **Source:** reddit/r/WhitePeopleTwitter
+## What are the chances?
+![What are the chances?](20260506-001-what-are-the-chances/image.jpg)
+**Score:** 6,934 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## She was a honeypot deployed to provide updates on their progress
-![She was a honeypot deployed to provide u](20260506-002-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
-**Score:** 13,622 | **Source:** reddit/r/BlackPeopleTwitter
+## Yes, I saw what you saw.
+![Yes, I saw what you saw.](20260506-002-yes-i-saw-what-you-saw/image.jpg)
+**Score:** 4,982 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260506-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,180 | **Source:** reddit/r/facepalm
+## Too many people are too mad about this non issue
+![Too many people are too mad about this n](20260506-003-too-many-people-are-too-mad-about-this-n/image.jpg)
+**Score:** 2,822 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
 ![South Korean Pilots Were Taking Selfies ](20260506-004-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 2,138 | **Source:** reddit/r/facepalm
+**Score:** 2,139 | **Source:** reddit/r/facepalm
 
 ---
 
-## It is a penny…
-![It is a penny…](20260506-005-it-is-a-penny/image.jpg)
-**Score:** 948 | **Source:** reddit/r/technicallythetruth
+## An insult or Anne in salt?
+![An insult or Anne in salt?](20260506-005-an-insult-or-anne-in-salt/image.jpg)
+**Score:** 3,884 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260506-006-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,110 | **Source:** reddit/r/technicallythetruth
+## Kate is 98.7% L. Crispatus Dominant
+![Kate is 98.7% L. Crispatus Dominant](20260506-006-kate-is-987-l-crispatus-dominant/image.jpg)
+**Score:** 707 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260506-007-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 92 | **Source:** reddit/r/HolUp
+## My Physics Class Homework Scores
+![My Physics Class Homework Scores](20260506-007-my-physics-class-homework-scores/image.jpg)
+**Score:** 59 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## AI is everywhere
 ![AI is everywhere](20260506-008-ai-is-everywhere/image.jpg)
-**Score:** 1,041 | **Source:** reddit/r/HolUp
+**Score:** 1,042 | **Source:** reddit/r/HolUp
 
 ---
 
-## programmer's new paradigm
-![programmer's new paradigm](20260506-009-programmers-new-paradigm/image.jpg)
-**Score:** 3,809 | **Source:** reddit/r/memes
+## It's SO important to them.  Meanwhile, I didn't even have a desk or nametag anym
+![It's SO important to them.  Meanwhile, I](20260506-009-its-so-important-to-them-meanwhile-i-did/image.jpg)
+**Score:** 85 | **Source:** reddit/r/dankmemes
 
 ---
 
-## That's just downright mad
-![That's just downright mad](20260506-010-thats-just-downright-mad/image.jpg)
-**Score:** 2,832 | **Source:** reddit/r/dankmemes
+## A friend was complaining about this today so i had to make it
+![A friend was complaining about this toda](20260506-010-a-friend-was-complaining-about-this-toda/image.jpg)
+**Score:** 4,353 | **Source:** reddit/r/memes
 
 ---
 
-## i am Just a Sensitive Young Man in the World of evil Foids
-![i am Just a Sensitive Young Man in the W](20260506-011-i-am-just-a-sensitive-young-man-in-the-w/image.jpg)
-**Score:** 64 | **Source:** reddit/r/dankmemes
+## Current life update 🥲🥲
+![Current life update 🥲🥲](20260506-011-current-life-update/image.jpg)
+**Score:** 682 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Mother. I'm scared
-![Mother. I'm scared](20260506-012-mother-im-scared/image.jpg)
-**Score:** 9,739 | **Source:** reddit/r/memes
-
----
-
-## First contact would be rough
-![First contact would be rough](20260506-013-first-contact-would-be-rough/image.jpg)
-**Score:** 365 | **Source:** reddit/r/memes
-
----
-
-## He protects us all!
-![He protects us all!](20260506-014-he-protects-us-all/image.jpg)
-**Score:** 7,595 | **Source:** reddit/r/memes
-
----
-
-## I am FREEEEE
-![I am FREEEEE](20260506-015-i-am-freeeee/image.jpg)
-**Score:** 215 | **Source:** reddit/r/dankmemes
-
----
-
-## The fight against the Asian hornet in the years 2016-2025 ended with the capitul
-![The fight against the Asian hornet in th](20260506-016-the-fight-against-the-asian-hornet-in-th/image.jpg)
-**Score:** 341 | **Source:** reddit/r/dankmemes
-
----
-
-## How AI companies proliferate
-![How AI companies proliferate](20260506-017-how-ai-companies-proliferate/image.jpg)
-**Score:** 75 | **Source:** reddit/r/dankmemes
+## r/askreddit
+![r/askreddit](20260506-012-raskreddit/image.jpg)
+**Score:** 543 | **Source:** reddit/r/memes
 
 ---
 
 ## Holy shhhh...
-![Holy shhhh...](20260506-018-holy-shhhh/image.jpg)
-**Score:** 694 | **Source:** reddit/r/dankmemes
+![Holy shhhh...](20260506-013-holy-shhhh/image.jpg)
+**Score:** 704 | **Source:** reddit/r/dankmemes
 
 ---
 
-## she be like say sike right now
-![she be like say sike right now](20260506-019-she-be-like-say-sike-right-now/image.jpg)
-**Score:** 103 | **Source:** reddit/r/dankmemes
+## Choose your path
+![Choose your path](20260506-014-choose-your-path/image.jpg)
+**Score:** 2,533 | **Source:** reddit/r/dankmemes
 
 ---
 
-## My new invention..."The meme compass". You can place memes on it if you want!
-![My new invention..."The meme compass". Y](20260506-020-my-new-inventionthe-meme-compass-you-can/image.jpg)
-**Score:** 1,509 | **Source:** reddit/r/dankmemes
+## That's just downright mad
+![That's just downright mad](20260506-015-thats-just-downright-mad/image.jpg)
+**Score:** 2,992 | **Source:** reddit/r/dankmemes
+
+---
+
+## bros before hoes
+![bros before hoes](20260506-016-bros-before-hoes/image.jpg)
+**Score:** 559 | **Source:** reddit/r/memes
+
+---
+
+## Real fans do not necessarily agree
+![Real fans do not necessarily agree](20260506-017-real-fans-do-not-necessarily-agree/image.jpg)
+**Score:** 655 | **Source:** reddit/r/memes
+
+---
+
+## Man this is rough
+![Man this is rough](20260506-018-man-this-is-rough/image.jpg)
+**Score:** 858 | **Source:** reddit/r/dankmemes
+
+---
+
+## What if I told you...
+![What if I told you...](20260506-019-what-if-i-told-you/image.jpg)
+**Score:** 55 | **Source:** reddit/r/memes
+
+---
+
+## Found out today what "NTR" is. Anime was a mistake.
+![Found out today what "NTR" is. Anime was](20260506-020-found-out-today-what-ntr-is-anime-was-a-/image.jpg)
+**Score:** 5,251 | **Source:** reddit/r/memes
 
 ---

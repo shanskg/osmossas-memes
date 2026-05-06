@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-06 08:42
+# Meme Feed — 2026-05-06 12:18
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## This a celly, that's a tool
-![This a celly, that's a tool](20260506-001-this-a-celly-thats-a-tool/image.jpg)
-**Score:** 5,850 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## What's done in the light will get more bright
-![What's done in the light will get more b](20260506-002-whats-done-in-the-light-will-get-more-br/image.jpg)
-**Score:** 1,407 | **Source:** reddit/r/BlackPeopleTwitter
+## Word association Schoolboy Q
+![Word association Schoolboy Q](20260506-001-word-association-schoolboy-q/image.jpg)
+**Score:** 1,681 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## If you're going to steal a video, maybe don't steal one of the most iconic video
-![If you're going to steal a video, maybe ](20260506-003-if-youre-going-to-steal-a-video-maybe-do/image.jpg)
-**Score:** 3,534 | **Source:** reddit/r/facepalm
+![If you're going to steal a video, maybe ](20260506-002-if-youre-going-to-steal-a-video-maybe-do/image.jpg)
+**Score:** 5,562 | **Source:** reddit/r/facepalm
+
+---
+
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260506-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,367 | **Source:** reddit/r/facepalm
 
 ---
 
 ## This surely must be a major loss for Glitch Productions...
 ![This surely must be a major loss for Gli](20260506-004-this-surely-must-be-a-major-loss-for-gli/image.jpg)
-**Score:** 114 | **Source:** reddit/r/technicallythetruth
+**Score:** 116 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## He didn't sound like much of anything in there
-![He didn't sound like much of anything in](20260506-005-he-didnt-sound-like-much-of-anything-in-/image.jpg)
-**Score:** 1,844 | **Source:** reddit/r/technicallythetruth
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260506-005-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 95 | **Source:** reddit/r/HolUp
 
 ---
 
-## what more to say
-![what more to say](20260506-006-what-more-to-say/image.jpg)
-**Score:** 130 | **Source:** reddit/r/oddlyspecific
+## My new invention..."The meme compass". You can place memes on it if you want!
+![My new invention..."The meme compass". Y](20260506-006-my-new-inventionthe-meme-compass-you-can/image.jpg)
+**Score:** 1,516 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Shrimp fried rice
-![Shrimp fried rice](20260506-007-shrimp-fried-rice/image.jpg)
-**Score:** 327 | **Source:** reddit/r/HolUp
-
----
-
-## AI is everywhere
-![AI is everywhere](20260506-008-ai-is-everywhere/image.jpg)
-**Score:** 1,043 | **Source:** reddit/r/HolUp
-
----
-
-## Please...Just...Collapse
-![Please...Just...Collapse](20260506-009-pleasejustcollapse/image.jpg)
-**Score:** 11,185 | **Source:** reddit/r/memes
+## How AI companies proliferate
+![How AI companies proliferate](20260506-007-how-ai-companies-proliferate/image.jpg)
+**Score:** 62 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Choose your path
-![Choose your path](20260506-010-choose-your-path/image.jpg)
-**Score:** 2,524 | **Source:** reddit/r/dankmemes
+![Choose your path](20260506-008-choose-your-path/image.jpg)
+**Score:** 2,532 | **Source:** reddit/r/dankmemes
+
+---
+
+## They don't even say why
+![They don't even say why](20260506-009-they-dont-even-say-why/image.jpg)
+**Score:** 56 | **Source:** reddit/r/dankmemes
+
+---
+
+## r/askreddit
+![r/askreddit](20260506-010-raskreddit/image.jpg)
+**Score:** 63 | **Source:** reddit/r/memes
 
 ---
 
 ## Found out today what "NTR" is. Anime was a mistake.
 ![Found out today what "NTR" is. Anime was](20260506-011-found-out-today-what-ntr-is-anime-was-a-/image.jpg)
-**Score:** 5,229 | **Source:** reddit/r/memes
+**Score:** 5,237 | **Source:** reddit/r/memes
 
 ---
 
-## I am watching warhammer 40k
-![I am watching warhammer 40k](20260506-012-i-am-watching-warhammer-40k/image.jpg)
-**Score:** 9,742 | **Source:** reddit/r/dankmemes
+## Real fans do not necessarily agree
+![Real fans do not necessarily agree](20260506-012-real-fans-do-not-necessarily-agree/image.jpg)
+**Score:** 608 | **Source:** reddit/r/memes
 
 ---
 
 ## she be like say sike right now
 ![she be like say sike right now](20260506-013-she-be-like-say-sike-right-now/image.jpg)
-**Score:** 103 | **Source:** reddit/r/dankmemes
+**Score:** 106 | **Source:** reddit/r/dankmemes
 
 ---
 
-## they only want cisplants
-![they only want cisplants](20260506-014-they-only-want-cisplants/image.jpg)
-**Score:** 3,012 | **Source:** reddit/r/dankmemes
-
----
-
-## bros before hoes
-![bros before hoes](20260506-015-bros-before-hoes/image.jpg)
-**Score:** 350 | **Source:** reddit/r/memes
+## Holy shhhh...
+![Holy shhhh...](20260506-014-holy-shhhh/image.jpg)
+**Score:** 685 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## This turns me on 💡
-![This turns me on 💡](20260506-016-this-turns-me-on/image.jpg)
-**Score:** 2,048 | **Source:** reddit/r/memes
+![This turns me on 💡](20260506-015-this-turns-me-on/image.jpg)
+**Score:** 2,291 | **Source:** reddit/r/memes
 
 ---
 
-## My new invention..."The meme compass". You can place memes on it if you want!
-![My new invention..."The meme compass". Y](20260506-017-my-new-inventionthe-meme-compass-you-can/image.jpg)
-**Score:** 1,508 | **Source:** reddit/r/dankmemes
+## they only want cisplants
+![they only want cisplants](20260506-016-they-only-want-cisplants/image.jpg)
+**Score:** 3,027 | **Source:** reddit/r/dankmemes
 
 ---
 
-## My gut reaction is not good
-![My gut reaction is not good](20260506-018-my-gut-reaction-is-not-good/image.jpg)
-**Score:** 530 | **Source:** reddit/r/memes
+## bros before hoes
+![bros before hoes](20260506-017-bros-before-hoes/image.jpg)
+**Score:** 414 | **Source:** reddit/r/memes
 
 ---
 
-## Is it really so necessarary?
-![Is it really so necessarary?](20260506-019-is-it-really-so-necessarary/image.jpg)
-**Score:** 13,000 | **Source:** reddit/r/memes
+## He protects us all!
+![He protects us all!](20260506-018-he-protects-us-all/image.jpg)
+**Score:** 7,436 | **Source:** reddit/r/memes
 
 ---
 
 ## It's SO important to them.  Meanwhile, I didn't even have a desk or nametag anym
-![It's SO important to them.  Meanwhile, I](20260506-020-its-so-important-to-them-meanwhile-i-did/image.jpg)
-**Score:** 76 | **Source:** reddit/r/dankmemes
+![It's SO important to them.  Meanwhile, I](20260506-019-its-so-important-to-them-meanwhile-i-did/image.jpg)
+**Score:** 72 | **Source:** reddit/r/dankmemes
+
+---
+
+## I am watching warhammer 40k
+![I am watching warhammer 40k](20260506-020-i-am-watching-warhammer-40k/image.jpg)
+**Score:** 9,891 | **Source:** reddit/r/dankmemes
 
 ---

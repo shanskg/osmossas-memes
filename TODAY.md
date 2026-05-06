@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-06 20:17
+# Meme Feed — 2026-05-07 00:17
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## What are the chances?
-![What are the chances?](20260506-001-what-are-the-chances/image.jpg)
-**Score:** 6,934 | **Source:** reddit/r/WhitePeopleTwitter
+## so much for the party of fiscal responsibility￼
+![so much for the party of fiscal responsi](20260507-001-so-much-for-the-party-of-fiscal-responsi/image.jpg)
+**Score:** 72 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
 ## Yes, I saw what you saw.
-![Yes, I saw what you saw.](20260506-002-yes-i-saw-what-you-saw/image.jpg)
+![Yes, I saw what you saw.](20260507-002-yes-i-saw-what-you-saw/image.jpg)
 **Score:** 4,982 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Too many people are too mad about this non issue
-![Too many people are too mad about this n](20260506-003-too-many-people-are-too-mad-about-this-n/image.jpg)
-**Score:** 2,822 | **Source:** reddit/r/BlackPeopleTwitter
+## Word association Schoolboy Q
+![Word association Schoolboy Q](20260507-003-word-association-schoolboy-q/image.jpg)
+**Score:** 1,687 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260506-004-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 2,139 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260507-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,368 | **Source:** reddit/r/facepalm
 
 ---
 
-## An insult or Anne in salt?
-![An insult or Anne in salt?](20260506-005-an-insult-or-anne-in-salt/image.jpg)
-**Score:** 3,884 | **Source:** reddit/r/technicallythetruth
+## If you're going to steal a video, maybe don't steal one of the most iconic video
+![If you're going to steal a video, maybe ](20260507-005-if-youre-going-to-steal-a-video-maybe-do/image.jpg)
+**Score:** 8,848 | **Source:** reddit/r/facepalm
 
 ---
 
-## Kate is 98.7% L. Crispatus Dominant
-![Kate is 98.7% L. Crispatus Dominant](20260506-006-kate-is-987-l-crispatus-dominant/image.jpg)
-**Score:** 707 | **Source:** reddit/r/oddlyspecific
+## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
+![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260507-006-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
+**Score:** 11,764 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## My Physics Class Homework Scores
-![My Physics Class Homework Scores](20260506-007-my-physics-class-homework-scores/image.jpg)
-**Score:** 59 | **Source:** reddit/r/oddlyspecific
+## A shower is hot
+![A shower is hot](20260507-007-a-shower-is-hot/image.jpg)
+**Score:** 1,192 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260506-008-ai-is-everywhere/image.jpg)
-**Score:** 1,042 | **Source:** reddit/r/HolUp
+## Dippers shadow in this episode of Gravity Falls
+![Dippers shadow in this episode of Gravit](20260507-008-dippers-shadow-in-this-episode-of-gravit/image.jpg)
+**Score:** 1,086 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## It's SO important to them.  Meanwhile, I didn't even have a desk or nametag anym
-![It's SO important to them.  Meanwhile, I](20260506-009-its-so-important-to-them-meanwhile-i-did/image.jpg)
-**Score:** 85 | **Source:** reddit/r/dankmemes
+## I'm too lazy to take a picture, so I made a drawing more time consuming but anyw
+![I'm too lazy to take a picture, so I mad](20260507-009-im-too-lazy-to-take-a-picture-so-i-made-/image.jpg)
+**Score:** 215 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## A friend was complaining about this today so i had to make it
-![A friend was complaining about this toda](20260506-010-a-friend-was-complaining-about-this-toda/image.jpg)
-**Score:** 4,353 | **Source:** reddit/r/memes
+## why does it happen though one leg one arm out is perfection
+![why does it happen though one leg one ar](20260507-010-why-does-it-happen-though-one-leg-one-ar/image.jpg)
+**Score:** 1,090 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Current life update 🥲🥲
-![Current life update 🥲🥲](20260506-011-current-life-update/image.jpg)
-**Score:** 682 | **Source:** reddit/r/dankmemes
+## Deer jerky, Budweiser &amp; pickles
+![Deer jerky, Budweiser &amp; pickles](20260507-011-deer-jerky-budweiser-amp-pickles/image.jpg)
+**Score:** 292 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## r/askreddit
-![r/askreddit](20260506-012-raskreddit/image.jpg)
-**Score:** 543 | **Source:** reddit/r/memes
+## i am Just a Sensitive Young Man in the World of evil Foids
+![i am Just a Sensitive Young Man in the W](20260507-012-i-am-just-a-sensitive-young-man-in-the-w/image.jpg)
+**Score:** 300 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Holy shhhh...
-![Holy shhhh...](20260506-013-holy-shhhh/image.jpg)
-**Score:** 704 | **Source:** reddit/r/dankmemes
+## Always thought this photo of a snooty looking fish had meme potential.
+![Always thought this photo of a snooty lo](20260507-013-always-thought-this-photo-of-a-snooty-lo/image.jpg)
+**Score:** 50 | **Source:** reddit/r/memes
 
 ---
 
-## Choose your path
-![Choose your path](20260506-014-choose-your-path/image.jpg)
-**Score:** 2,533 | **Source:** reddit/r/dankmemes
+## First contact would be rough
+![First contact would be rough](20260507-014-first-contact-would-be-rough/image.jpg)
+**Score:** 2,609 | **Source:** reddit/r/memes
 
 ---
 
-## That's just downright mad
-![That's just downright mad](20260506-015-thats-just-downright-mad/image.jpg)
-**Score:** 2,992 | **Source:** reddit/r/dankmemes
-
----
-
-## bros before hoes
-![bros before hoes](20260506-016-bros-before-hoes/image.jpg)
-**Score:** 559 | **Source:** reddit/r/memes
+## they only want cisplants
+![they only want cisplants](20260507-015-they-only-want-cisplants/image.jpg)
+**Score:** 3,037 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Real fans do not necessarily agree
-![Real fans do not necessarily agree](20260506-017-real-fans-do-not-necessarily-agree/image.jpg)
-**Score:** 655 | **Source:** reddit/r/memes
+![Real fans do not necessarily agree](20260507-016-real-fans-do-not-necessarily-agree/image.jpg)
+**Score:** 656 | **Source:** reddit/r/memes
 
 ---
 
-## Man this is rough
-![Man this is rough](20260506-018-man-this-is-rough/image.jpg)
-**Score:** 858 | **Source:** reddit/r/dankmemes
+## That's just downright mad
+![That's just downright mad](20260507-017-thats-just-downright-mad/image.jpg)
+**Score:** 3,058 | **Source:** reddit/r/dankmemes
 
 ---
 
-## What if I told you...
-![What if I told you...](20260506-019-what-if-i-told-you/image.jpg)
-**Score:** 55 | **Source:** reddit/r/memes
+## Is it really so necessarary?
+![Is it really so necessarary?](20260507-018-is-it-really-so-necessarary/image.jpg)
+**Score:** 17,700 | **Source:** reddit/r/memes
 
 ---
 
-## Found out today what "NTR" is. Anime was a mistake.
-![Found out today what "NTR" is. Anime was](20260506-020-found-out-today-what-ntr-is-anime-was-a-/image.jpg)
-**Score:** 5,251 | **Source:** reddit/r/memes
+## My gut reaction is not good
+![My gut reaction is not good](20260507-019-my-gut-reaction-is-not-good/image.jpg)
+**Score:** 2,294 | **Source:** reddit/r/dankmemes
+
+---
+
+## A friend was complaining about this today so i had to make it
+![A friend was complaining about this toda](20260507-020-a-friend-was-complaining-about-this-toda/image.jpg)
+**Score:** 4,454 | **Source:** reddit/r/memes
 
 ---

@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-06 16:18
+# Meme Feed — 2026-05-06 16:23
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Word association Schoolboy Q
-![Word association Schoolboy Q](20260506-001-word-association-schoolboy-q/image.jpg)
-**Score:** 1,681 | **Source:** reddit/r/BlackPeopleTwitter
+## Go to bed, Uncle Don, you're drunk. Don't forget to take your meds...
+![Go to bed, Uncle Don, you're drunk. Don'](20260506-001-go-to-bed-uncle-don-youre-drunk-dont-for/image.jpg)
+**Score:** 607 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260506-002-well-did-they-accept-or-not/image.jpg)
-**Score:** 830 | **Source:** reddit/r/facepalm
+## She was a honeypot deployed to provide updates on their progress
+![She was a honeypot deployed to provide u](20260506-002-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
+**Score:** 13,622 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260506-003-enjoy-your-hot-water/image.jpg)
-**Score:** 981 | **Source:** reddit/r/technicallythetruth
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260506-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,180 | **Source:** reddit/r/facepalm
 
 ---
 
-## when subaru is sus
-![when subaru is sus](20260506-004-when-subaru-is-sus/image.jpg)
-**Score:** 163 | **Source:** reddit/r/suspiciouslyspecific
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260506-004-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 2,138 | **Source:** reddit/r/facepalm
 
 ---
 
-## The people who reach midlife with no close friends aren't unlikable they're ofte
-![The people who reach midlife with no clo](20260506-005-the-people-who-reach-midlife-with-no-clo/image.jpg)
-**Score:** 128 | **Source:** reddit/r/oddlyspecific
+## It is a penny…
+![It is a penny…](20260506-005-it-is-a-penny/image.jpg)
+**Score:** 948 | **Source:** reddit/r/technicallythetruth
+
+---
+
+## To be fair an Avocado is just Guacamole in ball form.
+![To be fair an Avocado is just Guacamole ](20260506-006-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
+**Score:** 10,110 | **Source:** reddit/r/technicallythetruth
 
 ---
 
 ## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260506-006-even-hes-wondering-if-the-allegations-of/image.jpg)
+![Even he's wondering if the allegations o](20260506-007-even-hes-wondering-if-the-allegations-of/image.jpg)
 **Score:** 92 | **Source:** reddit/r/HolUp
 
 ---
 
-## r/askreddit
-![r/askreddit](20260506-007-raskreddit/image.jpg)
-**Score:** 312 | **Source:** reddit/r/memes
+## AI is everywhere
+![AI is everywhere](20260506-008-ai-is-everywhere/image.jpg)
+**Score:** 1,041 | **Source:** reddit/r/HolUp
 
 ---
 
-## My gut reaction is not good
-![My gut reaction is not good](20260506-008-my-gut-reaction-is-not-good/image.jpg)
-**Score:** 538 | **Source:** reddit/r/memes
-
----
-
-## AGI corps be like
-![AGI corps be like](20260506-009-agi-corps-be-like/image.jpg)
-**Score:** 77 | **Source:** reddit/r/dankmemes
-
----
-
-## Mother. I'm scared
-![Mother. I'm scared](20260506-010-mother-im-scared/image.jpg)
-**Score:** 9,739 | **Source:** reddit/r/memes
-
----
-
-## This turns me on 💡
-![This turns me on 💡](20260506-011-this-turns-me-on/image.jpg)
-**Score:** 2,669 | **Source:** reddit/r/memes
-
----
-
-## Current life update 🥲🥲
-![Current life update 🥲🥲](20260506-012-current-life-update/image.jpg)
-**Score:** 374 | **Source:** reddit/r/dankmemes
-
----
-
-## Found out today what "NTR" is. Anime was a mistake.
-![Found out today what "NTR" is. Anime was](20260506-013-found-out-today-what-ntr-is-anime-was-a-/image.jpg)
-**Score:** 5,243 | **Source:** reddit/r/memes
-
----
-
-## It's SO important to them.  Meanwhile, I didn't even have a desk or nametag anym
-![It's SO important to them.  Meanwhile, I](20260506-014-its-so-important-to-them-meanwhile-i-did/image.jpg)
-**Score:** 80 | **Source:** reddit/r/dankmemes
-
----
-
-## They don't even say why
-![They don't even say why](20260506-015-they-dont-even-say-why/image.jpg)
-**Score:** 57 | **Source:** reddit/r/dankmemes
-
----
-
-## she be like say sike right now
-![she be like say sike right now](20260506-016-she-be-like-say-sike-right-now/image.jpg)
-**Score:** 103 | **Source:** reddit/r/dankmemes
-
----
-
-## Man this is rough
-![Man this is rough](20260506-017-man-this-is-rough/image.jpg)
-**Score:** 859 | **Source:** reddit/r/dankmemes
-
----
-
-## they only want cisplants
-![they only want cisplants](20260506-018-they-only-want-cisplants/image.jpg)
-**Score:** 3,026 | **Source:** reddit/r/dankmemes
+## programmer's new paradigm
+![programmer's new paradigm](20260506-009-programmers-new-paradigm/image.jpg)
+**Score:** 3,809 | **Source:** reddit/r/memes
 
 ---
 
 ## That's just downright mad
-![That's just downright mad](20260506-019-thats-just-downright-mad/image.jpg)
+![That's just downright mad](20260506-010-thats-just-downright-mad/image.jpg)
 **Score:** 2,832 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## i am Just a Sensitive Young Man in the World of evil Foids
-![i am Just a Sensitive Young Man in the W](20260506-020-i-am-just-a-sensitive-young-man-in-the-w/image.jpg)
+![i am Just a Sensitive Young Man in the W](20260506-011-i-am-just-a-sensitive-young-man-in-the-w/image.jpg)
 **Score:** 64 | **Source:** reddit/r/dankmemes
+
+---
+
+## Mother. I'm scared
+![Mother. I'm scared](20260506-012-mother-im-scared/image.jpg)
+**Score:** 9,739 | **Source:** reddit/r/memes
+
+---
+
+## First contact would be rough
+![First contact would be rough](20260506-013-first-contact-would-be-rough/image.jpg)
+**Score:** 365 | **Source:** reddit/r/memes
+
+---
+
+## He protects us all!
+![He protects us all!](20260506-014-he-protects-us-all/image.jpg)
+**Score:** 7,595 | **Source:** reddit/r/memes
+
+---
+
+## I am FREEEEE
+![I am FREEEEE](20260506-015-i-am-freeeee/image.jpg)
+**Score:** 215 | **Source:** reddit/r/dankmemes
+
+---
+
+## The fight against the Asian hornet in the years 2016-2025 ended with the capitul
+![The fight against the Asian hornet in th](20260506-016-the-fight-against-the-asian-hornet-in-th/image.jpg)
+**Score:** 341 | **Source:** reddit/r/dankmemes
+
+---
+
+## How AI companies proliferate
+![How AI companies proliferate](20260506-017-how-ai-companies-proliferate/image.jpg)
+**Score:** 75 | **Source:** reddit/r/dankmemes
+
+---
+
+## Holy shhhh...
+![Holy shhhh...](20260506-018-holy-shhhh/image.jpg)
+**Score:** 694 | **Source:** reddit/r/dankmemes
+
+---
+
+## she be like say sike right now
+![she be like say sike right now](20260506-019-she-be-like-say-sike-right-now/image.jpg)
+**Score:** 103 | **Source:** reddit/r/dankmemes
+
+---
+
+## My new invention..."The meme compass". You can place memes on it if you want!
+![My new invention..."The meme compass". Y](20260506-020-my-new-inventionthe-meme-compass-you-can/image.jpg)
+**Score:** 1,509 | **Source:** reddit/r/dankmemes
 
 ---

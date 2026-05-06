@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-07 00:23
+# Meme Feed — 2026-05-07 04:17
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## She was a honeypot deployed to provide updates on their progress
-![She was a honeypot deployed to provide u](20260507-001-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
-**Score:** 13,629 | **Source:** reddit/r/BlackPeopleTwitter
+## they will try to steal an election
+![they will try to steal an election](20260507-001-they-will-try-to-steal-an-election/image.jpg)
+**Score:** 1,214 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## Word association Schoolboy Q
+![Word association Schoolboy Q](20260507-002-word-association-schoolboy-q/image.jpg)
+**Score:** 1,677 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Too many people are too mad about this non issue
-![Too many people are too mad about this n](20260507-002-too-many-people-are-too-mad-about-this-n/image.jpg)
-**Score:** 2,841 | **Source:** reddit/r/BlackPeopleTwitter
+![Too many people are too mad about this n](20260507-003-too-many-people-are-too-mad-about-this-n/image.jpg)
+**Score:** 2,855 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260507-003-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 2,142 | **Source:** reddit/r/facepalm
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260507-004-well-did-they-accept-or-not/image.jpg)
+**Score:** 837 | **Source:** reddit/r/facepalm
 
 ---
 
-## He didn't sound like much of anything in there
-![He didn't sound like much of anything in](20260507-004-he-didnt-sound-like-much-of-anything-in-/image.jpg)
-**Score:** 1,852 | **Source:** reddit/r/technicallythetruth
+## It's anthropomorphism because nature has no crowns nor kings and you don't ferti
+![It's anthropomorphism because nature has](20260507-005-its-anthropomorphism-because-nature-has-/image.jpg)
+**Score:** 150 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## intelligence is not dangerous
-![intelligence is not dangerous](20260507-005-intelligence-is-not-dangerous/image.jpg)
-**Score:** 55,766 | **Source:** reddit/r/technicallythetruth
+## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
+![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260507-006-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
+**Score:** 1,551 | **Source:** reddit/r/technicallythetruth
 
 ---
 
 ## Bingo's eyes are lookin a little sus.
-![Bingo's eyes are lookin a little sus.](20260507-006-bingos-eyes-are-lookin-a-little-sus/image.jpg)
+![Bingo's eyes are lookin a little sus.](20260507-007-bingos-eyes-are-lookin-a-little-sus/image.jpg)
 **Score:** 243 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
+## tell me if this is wrong?
+![tell me if this is wrong?](20260507-008-tell-me-if-this-is-wrong/image.jpg)
+**Score:** 93 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## My Physics Class Homework Scores
+![My Physics Class Homework Scores](20260507-009-my-physics-class-homework-scores/image.jpg)
+**Score:** 61 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## Futabu anyone ???
+![Futabu anyone ???](20260507-010-futabu-anyone/image.jpg)
+**Score:** 2,367 | **Source:** reddit/r/HolUp
+
+---
+
 ## Shrimp fried rice
-![Shrimp fried rice](20260507-007-shrimp-fried-rice/image.jpg)
-**Score:** 458 | **Source:** reddit/r/HolUp
+![Shrimp fried rice](20260507-011-shrimp-fried-rice/image.jpg)
+**Score:** 476 | **Source:** reddit/r/HolUp
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260507-008-ai-is-everywhere/image.jpg)
-**Score:** 1,040 | **Source:** reddit/r/HolUp
+## I love you, but no Sweetie.
+![I love you, but no Sweetie.](20260507-012-i-love-you-but-no-sweetie/image.jpg)
+**Score:** 559 | **Source:** reddit/r/memes
 
 ---
 
-## Absolutely unusable
-![Absolutely unusable](20260507-009-absolutely-unusable/image.jpg)
-**Score:** 58 | **Source:** reddit/r/memes
-
----
-
-## Is it really so necessarary?
-![Is it really so necessarary?](20260507-010-is-it-really-so-necessarary/image.jpg)
-**Score:** 17,700 | **Source:** reddit/r/memes
-
----
-
-## This turns me on 💡
-![This turns me on 💡](20260507-011-this-turns-me-on/image.jpg)
-**Score:** 3,258 | **Source:** reddit/r/memes
-
----
-
-## AGI corps be like
-![AGI corps be like](20260507-012-agi-corps-be-like/image.jpg)
-**Score:** 77 | **Source:** reddit/r/dankmemes
-
----
-
-## Choose your path
-![Choose your path](20260507-013-choose-your-path/image.jpg)
-**Score:** 2,537 | **Source:** reddit/r/dankmemes
-
----
-
-## Volkswagen: no comments
-![Volkswagen: no comments](20260507-014-volkswagen-no-comments/image.jpg)
-**Score:** 1,187 | **Source:** reddit/r/memes
-
----
-
-## Current life update 🥲🥲
-![Current life update 🥲🥲](20260507-015-current-life-update/image.jpg)
-**Score:** 911 | **Source:** reddit/r/dankmemes
+## A friend was complaining about this today so i had to make it
+![A friend was complaining about this toda](20260507-013-a-friend-was-complaining-about-this-toda/image.jpg)
+**Score:** 4,511 | **Source:** reddit/r/memes
 
 ---
 
 ## Always thought this photo of a snooty looking fish had meme potential.
-![Always thought this photo of a snooty lo](20260507-016-always-thought-this-photo-of-a-snooty-lo/image.jpg)
+![Always thought this photo of a snooty lo](20260507-014-always-thought-this-photo-of-a-snooty-lo/image.jpg)
 **Score:** 50 | **Source:** reddit/r/memes
 
 ---
 
-## bros before hoes
-![bros before hoes](20260507-017-bros-before-hoes/image.jpg)
-**Score:** 609 | **Source:** reddit/r/memes
+## He protects us all!
+![He protects us all!](20260507-015-he-protects-us-all/image.jpg)
+**Score:** 7,745 | **Source:** reddit/r/memes
 
 ---
 
-## I am watching warhammer 40k
-![I am watching warhammer 40k](20260507-018-i-am-watching-warhammer-40k/image.jpg)
-**Score:** 10,126 | **Source:** reddit/r/dankmemes
+## Check your storage for a 4GB AI model if you use Chrome
+![Check your storage for a 4GB AI model if](20260507-016-check-your-storage-for-a-4gb-ai-model-if/image.jpg)
+**Score:** 6,984 | **Source:** reddit/r/memes
 
 ---
 
-## What if I told you...
-![What if I told you...](20260507-019-what-if-i-told-you/image.jpg)
-**Score:** 55 | **Source:** reddit/r/memes
+## " now with 0 soul! "
+![" now with 0 soul! "](20260507-017-now-with-0-soul/image.jpg)
+**Score:** 930 | **Source:** reddit/r/memes
 
 ---
 
-## I peed here.
-![I peed here.](20260507-020-i-peed-here/image.jpg)
-**Score:** 5,434 | **Source:** reddit/r/memes
+## "I told you that in confidence!"
+!["I told you that in confidence!"](20260507-018-i-told-you-that-in-confidence/image.jpg)
+**Score:** 144 | **Source:** reddit/r/dankmemes
+
+---
+
+## Hello from across the pond.
+![Hello from across the pond.](20260507-019-hello-from-across-the-pond/image.jpg)
+**Score:** 54 | **Source:** reddit/r/dankmemes
+
+---
+
+## Aged like Hg-197
+![Aged like Hg-197](20260507-020-aged-like-hg-197/image.jpg)
+**Score:** 171 | **Source:** reddit/r/dankmemes
 
 ---

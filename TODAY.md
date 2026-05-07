@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-07 12:17
+# Meme Feed — 2026-05-07 16:17
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## They used a tornado evacuation to redraw districts
-![They used a tornado evacuation to redraw](20260507-001-they-used-a-tornado-evacuation-to-redraw/image.jpg)
-**Score:** 588 | **Source:** reddit/r/WhitePeopleTwitter
+## Narcissism worsening.
+![Narcissism worsening.](20260507-001-narcissism-worsening/image.jpg)
+**Score:** 26,679 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Soon they will prescribe brain worms
-![Soon they will prescribe brain worms](20260507-002-soon-they-will-prescribe-brain-worms/image.jpg)
-**Score:** 5,398 | **Source:** reddit/r/WhitePeopleTwitter
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260507-002-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,181 | **Source:** reddit/r/facepalm
 
 ---
 
-## Word association Schoolboy Q
-![Word association Schoolboy Q](20260507-003-word-association-schoolboy-q/image.jpg)
-**Score:** 1,684 | **Source:** reddit/r/BlackPeopleTwitter
+## He didn't sound like much of anything in there
+![He didn't sound like much of anything in](20260507-003-he-didnt-sound-like-much-of-anything-in-/image.jpg)
+**Score:** 1,843 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Yes, I saw what you saw.
-![Yes, I saw what you saw.](20260507-004-yes-i-saw-what-you-saw/image.jpg)
-**Score:** 4,983 | **Source:** reddit/r/BlackPeopleTwitter
+## Do we have stone age PokéFans in the chat?
+![Do we have stone age PokéFans in the cha](20260507-004-do-we-have-stone-age-pokéfans-in-the-cha/image.jpg)
+**Score:** 4,507 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260507-005-well-did-they-accept-or-not/image.jpg)
-**Score:** 835 | **Source:** reddit/r/facepalm
+## Sus adventures
+![Sus adventures](20260507-005-sus-adventures/image.jpg)
+**Score:** 139 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260507-006-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,371 | **Source:** reddit/r/facepalm
+## Juicy Amogus pics
+![Juicy Amogus pics](20260507-006-juicy-amogus-pics/image.jpg)
+**Score:** 807 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## An insult or Anne in salt?
-![An insult or Anne in salt?](20260507-007-an-insult-or-anne-in-salt/image.jpg)
-**Score:** 3,889 | **Source:** reddit/r/technicallythetruth
+## Deer jerky, Budweiser &amp; pickles
+![Deer jerky, Budweiser &amp; pickles](20260507-007-deer-jerky-budweiser-amp-pickles/image.jpg)
+**Score:** 453 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260507-008-i-just-opened-youtube/image.jpg)
-**Score:** 8,996 | **Source:** reddit/r/technicallythetruth
+## why does it happen though one leg one arm out is perfection
+![why does it happen though one leg one ar](20260507-008-why-does-it-happen-though-one-leg-one-ar/image.jpg)
+**Score:** 1,092 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## When the sausages are sus
-![When the sausages are sus](20260507-009-when-the-sausages-are-sus/image.jpg)
-**Score:** 101 | **Source:** reddit/r/suspiciouslyspecific
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260507-009-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 98 | **Source:** reddit/r/HolUp
 
 ---
 
-## My 7 year old would love to know what others think of his drawing! Sus?
-![My 7 year old would love to know what ot](20260507-010-my-7-year-old-would-love-to-know-what-ot/image.jpg)
-**Score:** 1,253 | **Source:** reddit/r/suspiciouslyspecific
+## That is very frustrating
+![That is very frustrating](20260507-010-that-is-very-frustrating/image.jpg)
+**Score:** 221 | **Source:** reddit/r/dankmemes
 
 ---
 
-## International Space Station Toilet Tracker
-![International Space Station Toilet Track](20260507-011-international-space-station-toilet-track/image.jpg)
-**Score:** 250 | **Source:** reddit/r/oddlyspecific
+## A friend was complaining about this today so i had to make it
+![A friend was complaining about this toda](20260507-011-a-friend-was-complaining-about-this-toda/image.jpg)
+**Score:** 4,587 | **Source:** reddit/r/memes
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260507-012-futabu-anyone/image.jpg)
-**Score:** 2,371 | **Source:** reddit/r/HolUp
+## I am FREEEEE
+![I am FREEEEE](20260507-012-i-am-freeeee/image.jpg)
+**Score:** 325 | **Source:** reddit/r/dankmemes
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260507-013-ai-is-everywhere/image.jpg)
-**Score:** 1,035 | **Source:** reddit/r/HolUp
+## Choose your path
+![Choose your path](20260507-013-choose-your-path/image.jpg)
+**Score:** 2,541 | **Source:** reddit/r/dankmemes
 
 ---
 
-## It's A Shame They Can't Downvote &amp; Block Reality Itself
-![It's A Shame They Can't Downvote &amp; B](20260507-014-its-a-shame-they-cant-downvote-amp-block/image.jpg)
-**Score:** 377 | **Source:** reddit/r/memes
+## It supposed to be
+![It supposed to be](20260507-014-it-supposed-to-be/image.jpg)
+**Score:** 179 | **Source:** reddit/r/memes
 
 ---
 
-## programmer's new paradigm
-![programmer's new paradigm](20260507-015-programmers-new-paradigm/image.jpg)
-**Score:** 4,603 | **Source:** reddit/r/memes
+## they only want cisplants
+![they only want cisplants](20260507-015-they-only-want-cisplants/image.jpg)
+**Score:** 3,049 | **Source:** reddit/r/dankmemes
 
 ---
 
-## i am Just a Sensitive Young Man in the World of evil Foids
-![i am Just a Sensitive Young Man in the W](20260507-016-i-am-just-a-sensitive-young-man-in-the-w/image.jpg)
-**Score:** 450 | **Source:** reddit/r/dankmemes
+## Aged like Hg-197
+![Aged like Hg-197](20260507-016-aged-like-hg-197/image.jpg)
+**Score:** 1,195 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Hello from across the pond.
 ![Hello from across the pond.](20260507-017-hello-from-across-the-pond/image.jpg)
-**Score:** 67 | **Source:** reddit/r/dankmemes
+**Score:** 78 | **Source:** reddit/r/dankmemes
 
 ---
 
-## My gut reaction is not good
-![My gut reaction is not good](20260507-018-my-gut-reaction-is-not-good/image.jpg)
-**Score:** 2,295 | **Source:** reddit/r/dankmemes
+## programmer's new paradigm
+![programmer's new paradigm](20260507-018-programmers-new-paradigm/image.jpg)
+**Score:** 4,613 | **Source:** reddit/r/memes
 
 ---
 
-## I didn't agree to install a DLC
-![I didn't agree to install a DLC](20260507-019-i-didnt-agree-to-install-a-dlc/image.jpg)
-**Score:** 244 | **Source:** reddit/r/dankmemes
+## AGI corps be like
+![AGI corps be like](20260507-019-agi-corps-be-like/image.jpg)
+**Score:** 75 | **Source:** reddit/r/dankmemes
 
 ---
 
-## I love you, but no Sweetie.
-![I love you, but no Sweetie.](20260507-020-i-love-you-but-no-sweetie/image.jpg)
-**Score:** 2,219 | **Source:** reddit/r/memes
+## Is it really so necessarary?
+![Is it really so necessarary?](20260507-020-is-it-really-so-necessarary/image.jpg)
+**Score:** 18,503 | **Source:** reddit/r/memes
 
 ---

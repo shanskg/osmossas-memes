@@ -1,90 +1,90 @@
-# Meme Feed — 2026-05-07 20:17
+# Meme Feed — 2026-05-07 20:23
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## “Ted Turner died. Here’s how that news is all about me!”
-![“Ted Turner died. Here’s how that news i](20260507-001-ted-turner-died-heres-how-that-news-is-a/image.jpg)
-**Score:** 221 | **Source:** reddit/r/WhitePeopleTwitter
+## Is this play about us?
+![Is this play about us?](20260507-001-is-this-play-about-us/image.jpg)
+**Score:** 538 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Too many people are too mad about this non issue
-![Too many people are too mad about this n](20260507-002-too-many-people-are-too-mad-about-this-n/image.jpg)
-**Score:** 2,897 | **Source:** reddit/r/BlackPeopleTwitter
+## Reform SCOTUS!
+![Reform SCOTUS!](20260507-002-reform-scotus/image.jpg)
+**Score:** 845 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Yes, I saw what you saw.
-![Yes, I saw what you saw.](20260507-003-yes-i-saw-what-you-saw/image.jpg)
-**Score:** 4,982 | **Source:** reddit/r/BlackPeopleTwitter
+## She was a honeypot deployed to provide updates on their progress
+![She was a honeypot deployed to provide u](20260507-003-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
+**Score:** 13,621 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260507-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,185 | **Source:** reddit/r/facepalm
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260507-004-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 5,287 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260507-005-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 2,134 | **Source:** reddit/r/facepalm
+## IndyCar launches then rapidly deletes "One Nation, One Race" t-shirt
+![IndyCar launches then rapidly deletes "O](20260507-005-indycar-launches-then-rapidly-deletes-on/image.jpg)
+**Score:** 6,860 | **Source:** reddit/r/facepalm
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260507-006-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,111 | **Source:** reddit/r/technicallythetruth
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260507-006-well-did-they-accept-or-not/image.jpg)
+**Score:** 842 | **Source:** reddit/r/facepalm
 
 ---
 
-## Sus adventures
-![Sus adventures](20260507-007-sus-adventures/image.jpg)
-**Score:** 134 | **Source:** reddit/r/suspiciouslyspecific
+## Do we have stone age PokéFans in the chat?
+![Do we have stone age PokéFans in the cha](20260507-007-do-we-have-stone-age-pokéfans-in-the-cha/image.jpg)
+**Score:** 4,514 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## You can't rape a .38
-![You can't rape a .38](20260507-008-you-cant-rape-a-38/image.jpg)
-**Score:** 95 | **Source:** reddit/r/oddlyspecific
+## outperforming the inflation rate
+![outperforming the inflation rate](20260507-008-outperforming-the-inflation-rate/image.jpg)
+**Score:** 65,379 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Ts so funny
-![Ts so funny](20260507-009-ts-so-funny/image.jpg)
-**Score:** 486 | **Source:** reddit/r/HolUp
+## Bingo's eyes are lookin a little sus.
+![Bingo's eyes are lookin a little sus.](20260507-009-bingos-eyes-are-lookin-a-little-sus/image.jpg)
+**Score:** 244 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260507-010-ai-is-everywhere/image.jpg)
-**Score:** 1,037 | **Source:** reddit/r/HolUp
+## The people who reach midlife with no close friends aren't unlikable they're ofte
+![The people who reach midlife with no clo](20260507-010-the-people-who-reach-midlife-with-no-clo/image.jpg)
+**Score:** 141 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## I don't care that a book I didn't read has a character with a different skin col
-![I don't care that a book I didn't read h](20260507-011-i-dont-care-that-a-book-i-didnt-read-has/image.jpg)
-**Score:** 855 | **Source:** reddit/r/dankmemes
+## Kate is 98.7% L. Crispatus Dominant
+![Kate is 98.7% L. Crispatus Dominant](20260507-011-kate-is-987-l-crispatus-dominant/image.jpg)
+**Score:** 713 | **Source:** reddit/r/oddlyspecific
+
+---
+
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260507-012-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 98 | **Source:** reddit/r/HolUp
+
+---
+
+## That is very frustrating
+![That is very frustrating](20260507-013-that-is-very-frustrating/image.jpg)
+**Score:** 264 | **Source:** reddit/r/memes
 
 ---
 
 ## Stay tuned for covid season 2
-![Stay tuned for covid season 2](20260507-012-stay-tuned-for-covid-season-2/image.jpg)
+![Stay tuned for covid season 2](20260507-014-stay-tuned-for-covid-season-2/image.jpg)
 **Score:** 89 | **Source:** reddit/r/memes
-
----
-
-## Brian Griffin?
-![Brian Griffin?](20260507-013-brian-griffin/image.jpg)
-**Score:** 608 | **Source:** reddit/r/memes
-
----
-
-## Wtf is it even possible 😭😭🙏
-![Wtf is it even possible 😭😭🙏](20260507-014-wtf-is-it-even-possible/image.jpg)
-**Score:** 1,538 | **Source:** reddit/r/dankmemes
 
 ---
 
@@ -94,32 +94,32 @@
 
 ---
 
-## Mother. I'm scared
-![Mother. I'm scared](20260507-016-mother-im-scared/image.jpg)
-**Score:** 27,498 | **Source:** reddit/r/memes
-
----
-
-## Aged like Hg-197
-![Aged like Hg-197](20260507-017-aged-like-hg-197/image.jpg)
-**Score:** 1,386 | **Source:** reddit/r/dankmemes
-
----
-
 ## Job market
-![Job market](20260507-018-job-market/image.jpg)
+![Job market](20260507-016-job-market/image.jpg)
 **Score:** 5,766 | **Source:** reddit/r/dankmemes
 
 ---
 
-## That is very frustrating
-![That is very frustrating](20260507-019-that-is-very-frustrating/image.jpg)
-**Score:** 264 | **Source:** reddit/r/memes
+## they only want cisplants
+![they only want cisplants](20260507-017-they-only-want-cisplants/image.jpg)
+**Score:** 3,052 | **Source:** reddit/r/dankmemes
 
 ---
 
-## they only want cisplants
-![they only want cisplants](20260507-020-they-only-want-cisplants/image.jpg)
-**Score:** 3,052 | **Source:** reddit/r/dankmemes
+## It's sad that so many games come to mind
+![It's sad that so many games come to mind](20260507-018-its-sad-that-so-many-games-come-to-mind/image.jpg)
+**Score:** 1,517 | **Source:** reddit/r/memes
+
+---
+
+## True story, bro.
+![True story, bro.](20260507-019-true-story-bro/image.jpg)
+**Score:** 91 | **Source:** reddit/r/dankmemes
+
+---
+
+## The fight against the Asian hornet in the years 2016-2025 ended with the capitul
+![The fight against the Asian hornet in th](20260507-020-the-fight-against-the-asian-hornet-in-th/image.jpg)
+**Score:** 354 | **Source:** reddit/r/dankmemes
 
 ---

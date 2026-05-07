@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-07 20:23
+# Meme Feed — 2026-05-08 00:17
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Is this play about us?
-![Is this play about us?](20260507-001-is-this-play-about-us/image.jpg)
-**Score:** 538 | **Source:** reddit/r/WhitePeopleTwitter
+## What's done in the light will get more bright
+![What's done in the light will get more b](20260508-001-whats-done-in-the-light-will-get-more-br/image.jpg)
+**Score:** 1,411 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Reform SCOTUS!
-![Reform SCOTUS!](20260507-002-reform-scotus/image.jpg)
-**Score:** 845 | **Source:** reddit/r/WhitePeopleTwitter
-
----
-
-## She was a honeypot deployed to provide updates on their progress
-![She was a honeypot deployed to provide u](20260507-003-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
-**Score:** 13,621 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## Keep an eye out for the quiet ones
-![Keep an eye out for the quiet ones](20260507-004-keep-an-eye-out-for-the-quiet-ones/image.jpg)
-**Score:** 5,287 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## IndyCar launches then rapidly deletes "One Nation, One Race" t-shirt
-![IndyCar launches then rapidly deletes "O](20260507-005-indycar-launches-then-rapidly-deletes-on/image.jpg)
-**Score:** 6,860 | **Source:** reddit/r/facepalm
+## Too many people are too mad about this non issue
+![Too many people are too mad about this n](20260508-002-too-many-people-are-too-mad-about-this-n/image.jpg)
+**Score:** 2,900 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## Well? Did they accept or not?
-![Well? Did they accept or not?](20260507-006-well-did-they-accept-or-not/image.jpg)
-**Score:** 842 | **Source:** reddit/r/facepalm
+![Well? Did they accept or not?](20260508-003-well-did-they-accept-or-not/image.jpg)
+**Score:** 839 | **Source:** reddit/r/facepalm
 
 ---
 
-## Do we have stone age PokéFans in the chat?
-![Do we have stone age PokéFans in the cha](20260507-007-do-we-have-stone-age-pokéfans-in-the-cha/image.jpg)
-**Score:** 4,514 | **Source:** reddit/r/technicallythetruth
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260508-004-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 2,137 | **Source:** reddit/r/facepalm
 
 ---
 
-## outperforming the inflation rate
-![outperforming the inflation rate](20260507-008-outperforming-the-inflation-rate/image.jpg)
-**Score:** 65,379 | **Source:** reddit/r/technicallythetruth
+## I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)
+![I'm in a sandcastle right now ദ്ദി(ᵔᗜᵔ)](20260508-005-im-in-a-sandcastle-right-now-ദദᵔᗜᵔ/image.jpg)
+**Score:** 1,558 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Bingo's eyes are lookin a little sus.
-![Bingo's eyes are lookin a little sus.](20260507-009-bingos-eyes-are-lookin-a-little-sus/image.jpg)
-**Score:** 244 | **Source:** reddit/r/suspiciouslyspecific
+## I Ordered a Burrito Bowl at Chipotle
+![I Ordered a Burrito Bowl at Chipotle](20260508-006-i-ordered-a-burrito-bowl-at-chipotle/image.jpg)
+**Score:** 4,406 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## The people who reach midlife with no close friends aren't unlikable they're ofte
-![The people who reach midlife with no clo](20260507-010-the-people-who-reach-midlife-with-no-clo/image.jpg)
-**Score:** 141 | **Source:** reddit/r/oddlyspecific
+## Rest in piss
+![Rest in piss](20260508-007-rest-in-piss/image.jpg)
+**Score:** 402 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Kate is 98.7% L. Crispatus Dominant
-![Kate is 98.7% L. Crispatus Dominant](20260507-011-kate-is-987-l-crispatus-dominant/image.jpg)
-**Score:** 713 | **Source:** reddit/r/oddlyspecific
+## Oddly specific Sweden
+![Oddly specific Sweden](20260508-008-oddly-specific-sweden/image.jpg)
+**Score:** 745 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260507-012-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 98 | **Source:** reddit/r/HolUp
+## Shrimp fried rice
+![Shrimp fried rice](20260508-009-shrimp-fried-rice/image.jpg)
+**Score:** 495 | **Source:** reddit/r/HolUp
 
 ---
 
-## That is very frustrating
-![That is very frustrating](20260507-013-that-is-very-frustrating/image.jpg)
-**Score:** 264 | **Source:** reddit/r/memes
+## That's just downright mad
+![That's just downright mad](20260508-010-thats-just-downright-mad/image.jpg)
+**Score:** 3,185 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Stay tuned for covid season 2
-![Stay tuned for covid season 2](20260507-014-stay-tuned-for-covid-season-2/image.jpg)
-**Score:** 89 | **Source:** reddit/r/memes
+## It supposed to be
+![It supposed to be](20260508-011-it-supposed-to-be/image.jpg)
+**Score:** 276 | **Source:** reddit/r/memes
 
 ---
 
-## Is it really so necessarary?
-![Is it really so necessarary?](20260507-015-is-it-really-so-necessarary/image.jpg)
-**Score:** 18,613 | **Source:** reddit/r/memes
-
----
-
-## Job market
-![Job market](20260507-016-job-market/image.jpg)
-**Score:** 5,766 | **Source:** reddit/r/dankmemes
-
----
-
-## they only want cisplants
-![they only want cisplants](20260507-017-they-only-want-cisplants/image.jpg)
-**Score:** 3,052 | **Source:** reddit/r/dankmemes
-
----
-
-## It's sad that so many games come to mind
-![It's sad that so many games come to mind](20260507-018-its-sad-that-so-many-games-come-to-mind/image.jpg)
-**Score:** 1,517 | **Source:** reddit/r/memes
+## How AI companies proliferate
+![How AI companies proliferate](20260508-012-how-ai-companies-proliferate/image.jpg)
+**Score:** 97 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## True story, bro.
-![True story, bro.](20260507-019-true-story-bro/image.jpg)
-**Score:** 91 | **Source:** reddit/r/dankmemes
+![True story, bro.](20260508-013-true-story-bro/image.jpg)
+**Score:** 104 | **Source:** reddit/r/dankmemes
 
 ---
 
-## The fight against the Asian hornet in the years 2016-2025 ended with the capitul
-![The fight against the Asian hornet in th](20260507-020-the-fight-against-the-asian-hornet-in-th/image.jpg)
-**Score:** 354 | **Source:** reddit/r/dankmemes
+## That is very frustrating
+![That is very frustrating](20260508-014-that-is-very-frustrating/image.jpg)
+**Score:** 293 | **Source:** reddit/r/dankmemes
+
+---
+
+## Mother. I'm scared
+![Mother. I'm scared](20260508-015-mother-im-scared/image.jpg)
+**Score:** 27,854 | **Source:** reddit/r/memes
+
+---
+
+## I am watching warhammer 40k
+![I am watching warhammer 40k](20260508-016-i-am-watching-warhammer-40k/image.jpg)
+**Score:** 10,208 | **Source:** reddit/r/dankmemes
+
+---
+
+## That is very frustrating
+![That is very frustrating](20260508-017-that-is-very-frustrating/image.jpg)
+**Score:** 271 | **Source:** reddit/r/memes
+
+---
+
+## Gen Z these days be like:
+![Gen Z these days be like:](20260508-018-gen-z-these-days-be-like/image.jpg)
+**Score:** 78 | **Source:** reddit/r/memes
+
+---
+
+## Check your storage for a 4GB AI model if you use Chrome
+![Check your storage for a 4GB AI model if](20260508-019-check-your-storage-for-a-4gb-ai-model-if/image.jpg)
+**Score:** 10,841 | **Source:** reddit/r/memes
+
+---
+
+## i am Just a Sensitive Young Man in the World of evil Foids
+![i am Just a Sensitive Young Man in the W](20260508-020-i-am-just-a-sensitive-young-man-in-the-w/image.jpg)
+**Score:** 480 | **Source:** reddit/r/dankmemes
 
 ---

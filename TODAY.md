@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-08 12:18
+# Meme Feed — 2026-05-08 16:17
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Read that again
-![Read that again](20260508-001-read-that-again/image.jpg)
-**Score:** 1,297 | **Source:** reddit/r/WhitePeopleTwitter
+## Too many people are too mad about this non issue
+![Too many people are too mad about this n](20260508-001-too-many-people-are-too-mad-about-this-n/image.jpg)
+**Score:** 2,943 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Kyle Bittenhouse
-![Kyle Bittenhouse](20260508-002-kyle-bittenhouse/image.jpg)
-**Score:** 852 | **Source:** reddit/r/WhitePeopleTwitter
+## Yes, I saw what you saw.
+![Yes, I saw what you saw.](20260508-002-yes-i-saw-what-you-saw/image.jpg)
+**Score:** 4,986 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Pool stretches from here to Scotland
-![Pool stretches from here to Scotland](20260508-003-pool-stretches-from-here-to-scotland/image.jpg)
-**Score:** 8,264 | **Source:** reddit/r/BlackPeopleTwitter
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260508-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,186 | **Source:** reddit/r/facepalm
 
 ---
 
-## Obama's deal
-![Obama's deal](20260508-004-obamas-deal/image.jpg)
-**Score:** 24,906 | **Source:** reddit/r/BlackPeopleTwitter
+## Do we have stone age PokéFans in the chat?
+![Do we have stone age PokéFans in the cha](20260508-004-do-we-have-stone-age-pokéfans-in-the-cha/image.jpg)
+**Score:** 4,507 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260508-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,372 | **Source:** reddit/r/facepalm
+## Rest in piss
+![Rest in piss](20260508-005-rest-in-piss/image.jpg)
+**Score:** 402 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## If you're going to steal a video, maybe don't steal one of the most iconic video
-![If you're going to steal a video, maybe ](20260508-006-if-youre-going-to-steal-a-video-maybe-do/image.jpg)
-**Score:** 11,938 | **Source:** reddit/r/facepalm
+## And now I can't unseee it
+![And now I can't unseee it](20260508-006-and-now-i-cant-unseee-it/image.jpg)
+**Score:** 1,063 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## outperforming the inflation rate
-![outperforming the inflation rate](20260508-007-outperforming-the-inflation-rate/image.jpg)
-**Score:** 65,393 | **Source:** reddit/r/technicallythetruth
+## Oddly specific Sweden
+![Oddly specific Sweden](20260508-007-oddly-specific-sweden/image.jpg)
+**Score:** 813 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## geometry sus
-![geometry sus](20260508-008-geometry-sus/image.jpg)
-**Score:** 77 | **Source:** reddit/r/suspiciouslyspecific
+## Shrimp fried rice
+![Shrimp fried rice](20260508-008-shrimp-fried-rice/image.jpg)
+**Score:** 512 | **Source:** reddit/r/HolUp
 
 ---
 
-## tell me if this is wrong?
-![tell me if this is wrong?](20260508-009-tell-me-if-this-is-wrong/image.jpg)
-**Score:** 90 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## International Space Station Toilet Tracker
-![International Space Station Toilet Track](20260508-010-international-space-station-toilet-track/image.jpg)
-**Score:** 280 | **Source:** reddit/r/oddlyspecific
-
----
-
-## You can't rape a .38
-![You can't rape a .38](20260508-011-you-cant-rape-a-38/image.jpg)
-**Score:** 101 | **Source:** reddit/r/oddlyspecific
-
----
-
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260508-012-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 94 | **Source:** reddit/r/HolUp
-
----
-
-## My gut reaction is not good
-![My gut reaction is not good](20260508-013-my-gut-reaction-is-not-good/image.jpg)
-**Score:** 2,302 | **Source:** reddit/r/dankmemes
-
----
-
-## Brian Griffin?
-![Brian Griffin?](20260508-014-brian-griffin/image.jpg)
-**Score:** 713 | **Source:** reddit/r/memes
-
----
-
-## True story, bro.
-![True story, bro.](20260508-015-true-story-bro/image.jpg)
-**Score:** 114 | **Source:** reddit/r/dankmemes
+## Futabu anyone ???
+![Futabu anyone ???](20260508-009-futabu-anyone/image.jpg)
+**Score:** 2,372 | **Source:** reddit/r/HolUp
 
 ---
 
 ## What a gas
-![What a gas](20260508-016-what-a-gas/image.jpg)
-**Score:** 618 | **Source:** reddit/r/memes
+![What a gas](20260508-010-what-a-gas/image.jpg)
+**Score:** 727 | **Source:** reddit/r/memes
 
 ---
 
-## I am watching warhammer 40k
-![I am watching warhammer 40k](20260508-017-i-am-watching-warhammer-40k/image.jpg)
-**Score:** 10,231 | **Source:** reddit/r/dankmemes
+## Realistic ones
+![Realistic ones](20260508-011-realistic-ones/image.jpg)
+**Score:** 4,153 | **Source:** reddit/r/memes
 
 ---
 
-## That is very frustrating
-![That is very frustrating](20260508-018-that-is-very-frustrating/image.jpg)
-**Score:** 313 | **Source:** reddit/r/dankmemes
+## A tragic case of Capitalist Cataracts.
+![A tragic case of Capitalist Cataracts.](20260508-012-a-tragic-case-of-capitalist-cataracts/image.jpg)
+**Score:** 117 | **Source:** reddit/r/memes
 
 ---
 
-## The struggle is real
-![The struggle is real](20260508-019-the-struggle-is-real/image.jpg)
-**Score:** 71 | **Source:** reddit/r/memes
+## It's SO important to them.  Meanwhile, I didn't even have a desk or nametag anym
+![It's SO important to them.  Meanwhile, I](20260508-013-its-so-important-to-them-meanwhile-i-did/image.jpg)
+**Score:** 97 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Hello from across the pond.
-![Hello from across the pond.](20260508-020-hello-from-across-the-pond/image.jpg)
-**Score:** 90 | **Source:** reddit/r/dankmemes
+## Current life update 🥲🥲
+![Current life update 🥲🥲](20260508-014-current-life-update/image.jpg)
+**Score:** 1,311 | **Source:** reddit/r/dankmemes
+
+---
+
+## Wtf is it even possible 😭😭🙏
+![Wtf is it even possible 😭😭🙏](20260508-015-wtf-is-it-even-possible/image.jpg)
+**Score:** 1,621 | **Source:** reddit/r/dankmemes
+
+---
+
+## Task failed successfully
+![Task failed successfully](20260508-016-task-failed-successfully/image.jpg)
+**Score:** 153 | **Source:** reddit/r/memes
+
+---
+
+## Every “just one more episode” decision has consequences
+![Every “just one more episode” decision h](20260508-017-every-just-one-more-episode-decision-has/image.jpg)
+**Score:** 174 | **Source:** reddit/r/memes
+
+---
+
+## I didn't agree to install a DLC
+![I didn't agree to install a DLC](20260508-018-i-didnt-agree-to-install-a-dlc/image.jpg)
+**Score:** 295 | **Source:** reddit/r/dankmemes
+
+---
+
+## Check your storage for a 4GB AI model if you use Chrome
+![Check your storage for a 4GB AI model if](20260508-019-check-your-storage-for-a-4gb-ai-model-if/image.jpg)
+**Score:** 11,008 | **Source:** reddit/r/memes
+
+---
+
+## Stay tuned for covid season 2
+![Stay tuned for covid season 2](20260508-020-stay-tuned-for-covid-season-2/image.jpg)
+**Score:** 189 | **Source:** reddit/r/memes
 
 ---

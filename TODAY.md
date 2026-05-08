@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-09 00:17
+# Meme Feed — 2026-05-09 04:18
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Read that again
-![Read that again](20260509-001-read-that-again/image.jpg)
-**Score:** 1,407 | **Source:** reddit/r/WhitePeopleTwitter
-
----
-
-## "Don't play games with me, kid," coming from someone his age is also, contextual
-!["Don't play games with me, kid," coming ](20260509-002-dont-play-games-with-me-kid-coming-from-/image.jpg)
-**Score:** 5,020 | **Source:** reddit/r/WhitePeopleTwitter
-
----
-
-## Too many people are too mad about this non issue
-![Too many people are too mad about this n](20260509-003-too-many-people-are-too-mad-about-this-n/image.jpg)
-**Score:** 2,954 | **Source:** reddit/r/BlackPeopleTwitter
-
----
-
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260509-004-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 2,138 | **Source:** reddit/r/facepalm
-
----
-
 ## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260509-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,372 | **Source:** reddit/r/facepalm
+![Scammer pretending to be me is letting m](20260509-001-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,371 | **Source:** reddit/r/facepalm
 
 ---
 
-## outperforming the inflation rate
-![outperforming the inflation rate](20260509-006-outperforming-the-inflation-rate/image.jpg)
-**Score:** 65,416 | **Source:** reddit/r/technicallythetruth
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260509-002-well-did-they-accept-or-not/image.jpg)
+**Score:** 832 | **Source:** reddit/r/facepalm
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260509-007-enjoy-your-hot-water/image.jpg)
-**Score:** 983 | **Source:** reddit/r/technicallythetruth
+## I Ordered a Burrito Bowl at Chipotle
+![I Ordered a Burrito Bowl at Chipotle](20260509-003-i-ordered-a-burrito-bowl-at-chipotle/image.jpg)
+**Score:** 4,405 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## When the sausages are sus
-![When the sausages are sus](20260509-008-when-the-sausages-are-sus/image.jpg)
-**Score:** 103 | **Source:** reddit/r/suspiciouslyspecific
+## geometry sus
+![geometry sus](20260509-004-geometry-sus/image.jpg)
+**Score:** 78 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Oddly specific Sweden
-![Oddly specific Sweden](20260509-009-oddly-specific-sweden/image.jpg)
-**Score:** 893 | **Source:** reddit/r/oddlyspecific
+## Nature is beautiful
+![Nature is beautiful](20260509-005-nature-is-beautiful/image.jpg)
+**Score:** 5,030 | **Source:** reddit/r/HolUp
 
 ---
 
-## International Space Station Toilet Tracker
-![International Space Station Toilet Track](20260509-010-international-space-station-toilet-track/image.jpg)
-**Score:** 287 | **Source:** reddit/r/oddlyspecific
+## It's SO important to them.  Meanwhile, I didn't even have a desk or nametag anym
+![It's SO important to them.  Meanwhile, I](20260509-006-its-so-important-to-them-meanwhile-i-did/image.jpg)
+**Score:** 100 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Wtf is it even possible 😭😭🙏
-![Wtf is it even possible 😭😭🙏](20260509-011-wtf-is-it-even-possible/image.jpg)
-**Score:** 1,635 | **Source:** reddit/r/dankmemes
+## "We're great friends, I promise."
+!["We're great friends, I promise."](20260509-007-were-great-friends-i-promise/image.jpg)
+**Score:** 648 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Hello from across the pond.
-![Hello from across the pond.](20260509-012-hello-from-across-the-pond/image.jpg)
-**Score:** 104 | **Source:** reddit/r/dankmemes
+## Patient Zero found?!?
+![Patient Zero found?!?](20260509-008-patient-zero-found/image.jpg)
+**Score:** 6,624 | **Source:** reddit/r/memes
 
 ---
 
-## How AI companies proliferate
-![How AI companies proliferate](20260509-013-how-ai-companies-proliferate/image.jpg)
-**Score:** 99 | **Source:** reddit/r/dankmemes
-
----
-
-## ASI: Intelligence beyond imagination
-![ASI: Intelligence beyond imagination](20260509-014-asi-intelligence-beyond-imagination/image.jpg)
-**Score:** 729 | **Source:** reddit/r/dankmemes
+## i am Just a Sensitive Young Man in the World of evil Foids
+![i am Just a Sensitive Young Man in the W](20260509-009-i-am-just-a-sensitive-young-man-in-the-w/image.jpg)
+**Score:** 499 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Gen Z these days be like:
-![Gen Z these days be like:](20260509-015-gen-z-these-days-be-like/image.jpg)
-**Score:** 797 | **Source:** reddit/r/memes
+![Gen Z these days be like:](20260509-010-gen-z-these-days-be-like/image.jpg)
+**Score:** 804 | **Source:** reddit/r/memes
 
 ---
 
-## "But boss, I could just heat up the coff- gahk!"
-!["But boss, I could just heat up the coff](20260509-016-but-boss-i-could-just-heat-up-the-coff-g/image.jpg)
-**Score:** 114 | **Source:** reddit/r/dankmemes
+## He wins either way
+![He wins either way](20260509-011-he-wins-either-way/image.jpg)
+**Score:** 66 | **Source:** reddit/r/memes
 
 ---
 
 ## Current life update 🥲🥲
-![Current life update 🥲🥲](20260509-017-current-life-update/image.jpg)
-**Score:** 1,324 | **Source:** reddit/r/dankmemes
+![Current life update 🥲🥲](20260509-012-current-life-update/image.jpg)
+**Score:** 1,335 | **Source:** reddit/r/dankmemes
 
 ---
 
-## That is very frustrating
-![That is very frustrating](20260509-018-that-is-very-frustrating/image.jpg)
-**Score:** 328 | **Source:** reddit/r/dankmemes
+## Task failed successfully
+![Task failed successfully](20260509-013-task-failed-successfully/image.jpg)
+**Score:** 204 | **Source:** reddit/r/memes
 
 ---
 
-## Aged like Hg-197
-![Aged like Hg-197](20260509-019-aged-like-hg-197/image.jpg)
-**Score:** 1,663 | **Source:** reddit/r/dankmemes
+## He is so happy
+![He is so happy](20260509-014-he-is-so-happy/image.jpg)
+**Score:** 311 | **Source:** reddit/r/memes
 
 ---
 
-## They think I'm disciplined
-![They think I'm disciplined](20260509-020-they-think-im-disciplined/image.jpg)
-**Score:** 152 | **Source:** reddit/r/memes
+## I didn't agree to install a DLC
+![I didn't agree to install a DLC](20260509-015-i-didnt-agree-to-install-a-dlc/image.jpg)
+**Score:** 298 | **Source:** reddit/r/dankmemes
+
+---
+
+## It's sad that so many games come to mind
+![It's sad that so many games come to mind](20260509-016-its-sad-that-so-many-games-come-to-mind/image.jpg)
+**Score:** 6,527 | **Source:** reddit/r/memes
+
+---
+
+## Job market
+![Job market](20260509-017-job-market/image.jpg)
+**Score:** 6,268 | **Source:** reddit/r/dankmemes
+
+---
+
+## Happy Birthday!
+![Happy Birthday!](20260509-018-happy-birthday/image.jpg)
+**Score:** 2,507 | **Source:** reddit/r/dankmemes
+
+---
+
+## What a gas
+![What a gas](20260509-019-what-a-gas/image.jpg)
+**Score:** 926 | **Source:** reddit/r/memes
+
+---
+
+## Realistic ones
+![Realistic ones](20260509-020-realistic-ones/image.jpg)
+**Score:** 4,744 | **Source:** reddit/r/memes
 
 ---

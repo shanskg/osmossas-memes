@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-09 20:18
+# Meme Feed — 2026-05-10 00:17
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## She was a honeypot deployed to provide updates on their progress
-![She was a honeypot deployed to provide u](20260509-001-she-was-a-honeypot-deployed-to-provide-u/image.jpg)
-**Score:** 13,627 | **Source:** reddit/r/BlackPeopleTwitter
+## Obama's deal
+![Obama's deal](20260510-001-obamas-deal/image.jpg)
+**Score:** 26,638 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## I've never seen them lose a case
-![I've never seen them lose a case](20260509-002-ive-never-seen-them-lose-a-case/image.jpg)
-**Score:** 9,405 | **Source:** reddit/r/BlackPeopleTwitter
+## Keep an eye out for the quiet ones
+![Keep an eye out for the quiet ones](20260510-002-keep-an-eye-out-for-the-quiet-ones/image.jpg)
+**Score:** 5,280 | **Source:** reddit/r/BlackPeopleTwitter
+
+---
+
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260510-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,377 | **Source:** reddit/r/facepalm
 
 ---
 
 ## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260509-003-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 2,141 | **Source:** reddit/r/facepalm
+![South Korean Pilots Were Taking Selfies ](20260510-004-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 2,137 | **Source:** reddit/r/facepalm
 
 ---
 
-## If you're going to steal a video, maybe don't steal one of the most iconic video
-![If you're going to steal a video, maybe ](20260509-004-if-youre-going-to-steal-a-video-maybe-do/image.jpg)
-**Score:** 12,305 | **Source:** reddit/r/facepalm
+## A shower is hot
+![A shower is hot](20260510-005-a-shower-is-hot/image.jpg)
+**Score:** 1,200 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Do we have stone age PokéFans in the chat?
-![Do we have stone age PokéFans in the cha](20260509-005-do-we-have-stone-age-pokéfans-in-the-cha/image.jpg)
-**Score:** 4,515 | **Source:** reddit/r/technicallythetruth
+## An insult or Anne in salt?
+![An insult or Anne in salt?](20260510-006-an-insult-or-anne-in-salt/image.jpg)
+**Score:** 3,894 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## This surely must be a major loss for Glitch Productions...
-![This surely must be a major loss for Gli](20260509-006-this-surely-must-be-a-major-loss-for-gli/image.jpg)
-**Score:** 112 | **Source:** reddit/r/technicallythetruth
+## SUStainable Copper
+![SUStainable Copper](20260510-007-sustainable-copper/image.jpg)
+**Score:** 260 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## why does it happen though one leg one arm out is perfection
-![why does it happen though one leg one ar](20260509-007-why-does-it-happen-though-one-leg-one-ar/image.jpg)
-**Score:** 1,091 | **Source:** reddit/r/oddlyspecific
+## among oose
+![among oose](20260510-008-among-oose/image.jpg)
+**Score:** 521 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## Deer jerky, Budweiser &amp; pickles
+![Deer jerky, Budweiser &amp; pickles](20260510-009-deer-jerky-budweiser-amp-pickles/image.jpg)
+**Score:** 518 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## Nature is beautiful
-![Nature is beautiful](20260509-008-nature-is-beautiful/image.jpg)
-**Score:** 6,545 | **Source:** reddit/r/HolUp
+![Nature is beautiful](20260510-010-nature-is-beautiful/image.jpg)
+**Score:** 6,681 | **Source:** reddit/r/HolUp
 
 ---
 
-## "We're great friends, I promise."
-!["We're great friends, I promise."](20260509-009-were-great-friends-i-promise/image.jpg)
-**Score:** 659 | **Source:** reddit/r/dankmemes
+## Scientology speedruns are insane
+![Scientology speedruns are insane](20260510-011-scientology-speedruns-are-insane/image.jpg)
+**Score:** 262 | **Source:** reddit/r/memes
 
 ---
 
-## Breaking News:
-![Breaking News:](20260509-010-breaking-news/image.jpg)
-**Score:** 59 | **Source:** reddit/r/memes
+## r3ddit in a nutshell
+![r3ddit in a nutshell](20260510-012-r3ddit-in-a-nutshell/image.jpg)
+**Score:** 485 | **Source:** reddit/r/memes
 
 ---
 
 ## A different league
-![A different league](20260509-011-a-different-league/image.jpg)
-**Score:** 7,912 | **Source:** reddit/r/memes
+![A different league](20260510-013-a-different-league/image.jpg)
+**Score:** 11,295 | **Source:** reddit/r/memes
 
 ---
 
-## There's that
-![There's that](20260509-012-theres-that/image.jpg)
-**Score:** 944 | **Source:** reddit/r/dankmemes
-
----
-
-## Happy Birthday!
-![Happy Birthday!](20260509-013-happy-birthday/image.jpg)
-**Score:** 3,472 | **Source:** reddit/r/dankmemes
-
----
-
-## ASI: Intelligence beyond imagination
-![ASI: Intelligence beyond imagination](20260509-014-asi-intelligence-beyond-imagination/image.jpg)
-**Score:** 822 | **Source:** reddit/r/dankmemes
-
----
-
-## "But boss, I could just heat up the coff- gahk!"
-!["But boss, I could just heat up the coff](20260509-015-but-boss-i-could-just-heat-up-the-coff-g/image.jpg)
-**Score:** 117 | **Source:** reddit/r/dankmemes
-
----
-
-## True story, bro.
-![True story, bro.](20260509-016-true-story-bro/image.jpg)
-**Score:** 136 | **Source:** reddit/r/dankmemes
+## Trimming your nose hair helps.
+![Trimming your nose hair helps.](20260510-014-trimming-your-nose-hair-helps/image.jpg)
+**Score:** 72 | **Source:** reddit/r/memes
 
 ---
 
 ## He is so happy
-![He is so happy](20260509-017-he-is-so-happy/image.jpg)
-**Score:** 603 | **Source:** reddit/r/memes
+![He is so happy](20260510-015-he-is-so-happy/image.jpg)
+**Score:** 1,967 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Most organic media reporting
-![Most organic media reporting](20260509-018-most-organic-media-reporting/image.jpg)
-**Score:** 2,090 | **Source:** reddit/r/dankmemes
-
----
-
-## Hello from across the pond.
-![Hello from across the pond.](20260509-019-hello-from-across-the-pond/image.jpg)
-**Score:** 107 | **Source:** reddit/r/dankmemes
+## Job market
+![Job market](20260510-016-job-market/image.jpg)
+**Score:** 6,304 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Controlling ASI will be easy
-![Controlling ASI will be easy](20260509-020-controlling-asi-will-be-easy/image.jpg)
-**Score:** 635 | **Source:** reddit/r/dankmemes
+![Controlling ASI will be easy](20260510-017-controlling-asi-will-be-easy/image.jpg)
+**Score:** 658 | **Source:** reddit/r/dankmemes
+
+---
+
+## That is very frustrating
+![That is very frustrating](20260510-018-that-is-very-frustrating/image.jpg)
+**Score:** 334 | **Source:** reddit/r/dankmemes
+
+---
+
+## That's just downright mad
+![That's just downright mad](20260510-019-thats-just-downright-mad/image.jpg)
+**Score:** 3,215 | **Source:** reddit/r/dankmemes
+
+---
+
+## Hello from across the pond.
+![Hello from across the pond.](20260510-020-hello-from-across-the-pond/image.jpg)
+**Score:** 105 | **Source:** reddit/r/dankmemes
 
 ---

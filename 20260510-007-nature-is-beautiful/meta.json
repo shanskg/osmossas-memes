@@ -6,5 +6,7 @@
   "subreddit": "reddit/r/HolUp",
   "image_path": "20260510-007-nature-is-beautiful/image.jpg",
   "scraped_at": "2026-05-10T20:17:21.652393",
-  "status": "pending"
+  "status": "video_v2",
+  "video_path": "videos/20260510-007-nature-is-beautiful.mp4",
+  "background": "bg_130221_004.mp4"
 }

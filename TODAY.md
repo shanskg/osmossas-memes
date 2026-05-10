@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-10 20:18
+# Meme Feed — 2026-05-11 00:18
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Data center in Georgia straight-up stole thirty million gallons of water
-![Data center in Georgia straight-up stole](20260510-001-data-center-in-georgia-straight-up-stole/image.jpg)
-**Score:** 7,965 | **Source:** reddit/r/WhitePeopleTwitter
+## The president called a black woman BI*CH
+![The president called a black woman BI*CH](20260511-001-the-president-called-a-black-woman-bich/image.jpg)
+**Score:** 15,269 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## I've never seen them lose a case
-![I've never seen them lose a case](20260510-002-ive-never-seen-them-lose-a-case/image.jpg)
-**Score:** 9,412 | **Source:** reddit/r/BlackPeopleTwitter
+## IndyCar launches then rapidly deletes "One Nation, One Race" t-shirt
+![IndyCar launches then rapidly deletes "O](20260511-002-indycar-launches-then-rapidly-deletes-on/image.jpg)
+**Score:** 10,721 | **Source:** reddit/r/facepalm
 
 ---
 
-## Yes, I saw what you saw.
-![Yes, I saw what you saw.](20260510-003-yes-i-saw-what-you-saw/image.jpg)
-**Score:** 4,985 | **Source:** reddit/r/BlackPeopleTwitter
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260511-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,376 | **Source:** reddit/r/facepalm
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260510-004-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 2,134 | **Source:** reddit/r/facepalm
+## This surely must be a major loss for Glitch Productions...
+![This surely must be a major loss for Gli](20260511-004-this-surely-must-be-a-major-loss-for-gli/image.jpg)
+**Score:** 120 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## An insult or Anne in salt?
-![An insult or Anne in salt?](20260510-005-an-insult-or-anne-in-salt/image.jpg)
-**Score:** 3,902 | **Source:** reddit/r/technicallythetruth
+## Enjoy your hot water
+![Enjoy your hot water](20260511-005-enjoy-your-hot-water/image.jpg)
+**Score:** 982 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Just show it, Dave
-![Just show it, Dave](20260510-006-just-show-it-dave/image.jpg)
-**Score:** 398 | **Source:** reddit/r/oddlyspecific
+## Look at this track in F-zero (1991, SNES)
+![Look at this track in F-zero (1991, SNES](20260511-006-look-at-this-track-in-f-zero-1991-snes/image.jpg)
+**Score:** 71 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Nature is beautiful
-![Nature is beautiful](20260510-007-nature-is-beautiful/image.jpg)
-**Score:** 6,961 | **Source:** reddit/r/HolUp
+## Kate is 98.7% L. Crispatus Dominant
+![Kate is 98.7% L. Crispatus Dominant](20260511-007-kate-is-987-l-crispatus-dominant/image.jpg)
+**Score:** 712 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## That is very frustrating
-![That is very frustrating](20260510-008-that-is-very-frustrating/image.jpg)
-**Score:** 350 | **Source:** reddit/r/dankmemes
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260511-008-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 92 | **Source:** reddit/r/HolUp
 
 ---
 
-## Scientology speedruns are insane
-![Scientology speedruns are insane](20260510-009-scientology-speedruns-are-insane/image.jpg)
-**Score:** 551 | **Source:** reddit/r/memes
+## Well that makes sense
+![Well that makes sense](20260511-009-well-that-makes-sense/image.jpg)
+**Score:** 1,111 | **Source:** reddit/r/HolUp
 
 ---
 
-## He is so happy
-![He is so happy](20260510-010-he-is-so-happy/image.jpg)
-**Score:** 2,387 | **Source:** reddit/r/dankmemes
-
----
-
-## I didn't agree to install a DLC
-![I didn't agree to install a DLC](20260510-011-i-didnt-agree-to-install-a-dlc/image.jpg)
-**Score:** 312 | **Source:** reddit/r/dankmemes
+## My heart skipped a beat
+![My heart skipped a beat](20260511-010-my-heart-skipped-a-beat/image.jpg)
+**Score:** 45,986 | **Source:** reddit/r/memes
 
 ---
 
 ## -Cook the most delicious food --&gt; abandon cooking for months --&gt; refuse to
-![-Cook the most delicious food --&gt; aba](20260510-012-cook-the-most-delicious-food-gt-abandon-/image.jpg)
-**Score:** 409 | **Source:** reddit/r/memes
+![-Cook the most delicious food --&gt; aba](20260511-011-cook-the-most-delicious-food-gt-abandon-/image.jpg)
+**Score:** 426 | **Source:** reddit/r/memes
 
 ---
 
-## Trimming your nose hair helps.
-![Trimming your nose hair helps.](20260510-013-trimming-your-nose-hair-helps/image.jpg)
-**Score:** 147 | **Source:** reddit/r/memes
+## He is so happy
+![He is so happy](20260511-012-he-is-so-happy/image.jpg)
+**Score:** 2,397 | **Source:** reddit/r/dankmemes
 
 ---
 
-## ASI: Intelligence beyond imagination
-![ASI: Intelligence beyond imagination](20260510-014-asi-intelligence-beyond-imagination/image.jpg)
-**Score:** 840 | **Source:** reddit/r/dankmemes
+## There's that
+![There's that](20260511-013-theres-that/image.jpg)
+**Score:** 1,014 | **Source:** reddit/r/dankmemes
 
 ---
 
-## The Sugar ahh..
-![The Sugar ahh..](20260510-015-the-sugar-ahh/image.jpg)
-**Score:** 3,128 | **Source:** reddit/r/memes
+## Poor Justin Bieber
+![Poor Justin Bieber](20260511-014-poor-justin-bieber/image.jpg)
+**Score:** 8,644 | **Source:** reddit/r/memes
 
 ---
 
-## New meds who dis?
-![New meds who dis?](20260510-016-new-meds-who-dis/image.jpg)
-**Score:** 736 | **Source:** reddit/r/dankmemes
+## i hate english class
+![i hate english class](20260511-015-i-hate-english-class/image.jpg)
+**Score:** 963 | **Source:** reddit/r/memes
 
 ---
 
-## I'll shower tomorrow
-![I'll shower tomorrow](20260510-017-ill-shower-tomorrow/image.jpg)
-**Score:** 2,467 | **Source:** reddit/r/dankmemes
+## Current life update 🥲🥲
+![Current life update 🥲🥲](20260511-016-current-life-update/image.jpg)
+**Score:** 1,354 | **Source:** reddit/r/dankmemes
+
+---
+
+## Wtf is it even possible 😭😭🙏
+![Wtf is it even possible 😭😭🙏](20260511-017-wtf-is-it-even-possible/image.jpg)
+**Score:** 1,667 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Most organic media reporting
-![Most organic media reporting](20260510-018-most-organic-media-reporting/image.jpg)
-**Score:** 2,110 | **Source:** reddit/r/dankmemes
+![Most organic media reporting](20260511-018-most-organic-media-reporting/image.jpg)
+**Score:** 2,113 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Hello from across the pond.
-![Hello from across the pond.](20260510-019-hello-from-across-the-pond/image.jpg)
-**Score:** 107 | **Source:** reddit/r/dankmemes
+## Mai facorite meme
+![Mai facorite meme](20260511-019-mai-facorite-meme/image.jpg)
+**Score:** 2,765 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Self-Snitching at it's finest. They Not Like Us
-![Self-Snitching at it's finest. They Not ](20260510-020-self-snitching-at-its-finest-they-not-li/image.jpg)
-**Score:** 1,857 | **Source:** reddit/r/dankmemes
+## ASI: Intelligence beyond imagination
+![ASI: Intelligence beyond imagination](20260511-020-asi-intelligence-beyond-imagination/image.jpg)
+**Score:** 843 | **Source:** reddit/r/dankmemes
 
 ---

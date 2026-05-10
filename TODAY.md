@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-10 04:19
+# Meme Feed — 2026-05-10 08:17
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## The president called a black woman BI*CH
-![The president called a black woman BI*CH](20260510-001-the-president-called-a-black-woman-bich/image.jpg)
-**Score:** 2,606 | **Source:** reddit/r/BlackPeopleTwitter
+## Obama's deal
+![Obama's deal](20260510-001-obamas-deal/image.jpg)
+**Score:** 26,820 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
 ## What's done in the light will get more bright
 ![What's done in the light will get more b](20260510-002-whats-done-in-the-light-will-get-more-br/image.jpg)
-**Score:** 1,411 | **Source:** reddit/r/BlackPeopleTwitter
+**Score:** 1,413 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260510-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,177 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260510-003-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,368 | **Source:** reddit/r/facepalm
 
 ---
 
-## IndyCar launches then rapidly deletes "One Nation, One Race" t-shirt
-![IndyCar launches then rapidly deletes "O](20260510-004-indycar-launches-then-rapidly-deletes-on/image.jpg)
-**Score:** 10,321 | **Source:** reddit/r/facepalm
+## Enjoy your hot water
+![Enjoy your hot water](20260510-004-enjoy-your-hot-water/image.jpg)
+**Score:** 984 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## outperforming the inflation rate
-![outperforming the inflation rate](20260510-005-outperforming-the-inflation-rate/image.jpg)
-**Score:** 65,435 | **Source:** reddit/r/technicallythetruth
+## A shower is hot
+![A shower is hot](20260510-005-a-shower-is-hot/image.jpg)
+**Score:** 1,202 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## I Ordered a Burrito Bowl at Chipotle
-![I Ordered a Burrito Bowl at Chipotle](20260510-006-i-ordered-a-burrito-bowl-at-chipotle/image.jpg)
-**Score:** 4,407 | **Source:** reddit/r/technicallythetruth
+## geometry sus
+![geometry sus](20260510-006-geometry-sus/image.jpg)
+**Score:** 75 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## It may appear to be anime, but if you take a closer look
-![It may appear to be anime, but if you ta](20260510-007-it-may-appear-to-be-anime-but-if-you-tak/image.jpg)
-**Score:** 385 | **Source:** reddit/r/suspiciouslyspecific
+## Forming a child fight club in Arkansas
+![Forming a child fight club in Arkansas](20260510-007-forming-a-child-fight-club-in-arkansas/image.jpg)
+**Score:** 156 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Deer jerky, Budweiser &amp; pickles
-![Deer jerky, Budweiser &amp; pickles](20260510-008-deer-jerky-budweiser-amp-pickles/image.jpg)
-**Score:** 517 | **Source:** reddit/r/oddlyspecific
+## Well that makes sense
+![Well that makes sense](20260510-008-well-that-makes-sense/image.jpg)
+**Score:** 1,070 | **Source:** reddit/r/HolUp
 
 ---
 
-## Futabu anyone ???
-![Futabu anyone ???](20260510-009-futabu-anyone/image.jpg)
-**Score:** 2,372 | **Source:** reddit/r/HolUp
+## Life Over Lust
+![Life Over Lust](20260510-009-life-over-lust/image.jpg)
+**Score:** 1,801 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260510-010-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 93 | **Source:** reddit/r/HolUp
+## Wow bro that was hilarious
+![Wow bro that was hilarious](20260510-010-wow-bro-that-was-hilarious/image.jpg)
+**Score:** 1,788 | **Source:** reddit/r/memes
 
 ---
 
-## r3ddit in a nutshell
-![r3ddit in a nutshell](20260510-011-r3ddit-in-a-nutshell/image.jpg)
-**Score:** 562 | **Source:** reddit/r/memes
+## Dio! me, was it but title, a was this thought You
+![Dio! me, was it but title, a was this th](20260510-011-dio-me-was-it-but-title-a-was-this-thoug/image.jpg)
+**Score:** 4,612 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Current life update 🥲🥲
-![Current life update 🥲🥲](20260510-012-current-life-update/image.jpg)
-**Score:** 1,347 | **Source:** reddit/r/dankmemes
-
----
-
-## Happy Birthday!
-![Happy Birthday!](20260510-013-happy-birthday/image.jpg)
-**Score:** 3,669 | **Source:** reddit/r/dankmemes
-
----
-
-## I didn't agree to install a DLC
-![I didn't agree to install a DLC](20260510-014-i-didnt-agree-to-install-a-dlc/image.jpg)
-**Score:** 307 | **Source:** reddit/r/dankmemes
+## -Cook the most delicious food --&gt; abandon cooking for months --&gt; refuse to
+![-Cook the most delicious food --&gt; aba](20260510-012-cook-the-most-delicious-food-gt-abandon-/image.jpg)
+**Score:** 319 | **Source:** reddit/r/memes
 
 ---
 
 ## Patient Zero found?!?
-![Patient Zero found?!?](20260510-015-patient-zero-found/image.jpg)
-**Score:** 11,705 | **Source:** reddit/r/memes
+![Patient Zero found?!?](20260510-013-patient-zero-found/image.jpg)
+**Score:** 11,856 | **Source:** reddit/r/memes
 
 ---
 
-## i am Just a Sensitive Young Man in the World of evil Foids
-![i am Just a Sensitive Young Man in the W](20260510-016-i-am-just-a-sensitive-young-man-in-the-w/image.jpg)
-**Score:** 504 | **Source:** reddit/r/dankmemes
+## There's that
+![There's that](20260510-014-theres-that/image.jpg)
+**Score:** 987 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Job market
-![Job market](20260510-017-job-market/image.jpg)
-**Score:** 6,300 | **Source:** reddit/r/dankmemes
+## Controlling ASI will be easy
+![Controlling ASI will be easy](20260510-015-controlling-asi-will-be-easy/image.jpg)
+**Score:** 697 | **Source:** reddit/r/dankmemes
 
 ---
 
-## ASI: Intelligence beyond imagination
-![ASI: Intelligence beyond imagination](20260510-018-asi-intelligence-beyond-imagination/image.jpg)
-**Score:** 840 | **Source:** reddit/r/dankmemes
+## I'll shower tomorrow
+![I'll shower tomorrow](20260510-016-ill-shower-tomorrow/image.jpg)
+**Score:** 63 | **Source:** reddit/r/dankmemes
 
 ---
 
-## He is so happy
-![He is so happy](20260510-019-he-is-so-happy/image.jpg)
-**Score:** 642 | **Source:** reddit/r/memes
+## Most organic media reporting
+![Most organic media reporting](20260510-017-most-organic-media-reporting/image.jpg)
+**Score:** 2,100 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Who tf still watches this show anyway?? 🥀
-![Who tf still watches this show anyway?? ](20260510-020-who-tf-still-watches-this-show-anyway/image.jpg)
-**Score:** 57 | **Source:** reddit/r/memes
+## I am FREEEEE
+![I am FREEEEE](20260510-018-i-am-freeeee/image.jpg)
+**Score:** 360 | **Source:** reddit/r/dankmemes
+
+---
+
+## "We're great friends, I promise."
+!["We're great friends, I promise."](20260510-019-were-great-friends-i-promise/image.jpg)
+**Score:** 670 | **Source:** reddit/r/dankmemes
+
+---
+
+## Happy Birthday!
+![Happy Birthday!](20260510-020-happy-birthday/image.jpg)
+**Score:** 3,730 | **Source:** reddit/r/dankmemes
 
 ---

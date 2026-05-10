@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-11 04:17
+# Meme Feed — 2026-05-11 07:21
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## The president called a black woman BI*CH
-![The president called a black woman BI*CH](20260511-001-the-president-called-a-black-woman-bich/image.jpg)
-**Score:** 16,165 | **Source:** reddit/r/BlackPeopleTwitter
+## Poor Spider
+![Poor Spider](20260511-001-poor-spider/image.jpg)
+**Score:** 1,392 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260511-002-well-did-they-accept-or-not/image.jpg)
-**Score:** 840 | **Source:** reddit/r/facepalm
+## Obama's deal
+![Obama's deal](20260511-002-obamas-deal/image.jpg)
+**Score:** 27,119 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260511-003-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,188 | **Source:** reddit/r/facepalm
+## What's done in the light will get more bright
+![What's done in the light will get more b](20260511-003-whats-done-in-the-light-will-get-more-br/image.jpg)
+**Score:** 1,414 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260511-004-i-just-opened-youtube/image.jpg)
-**Score:** 9,001 | **Source:** reddit/r/technicallythetruth
+## If you're going to steal a video, maybe don't steal one of the most iconic video
+![If you're going to steal a video, maybe ](20260511-004-if-youre-going-to-steal-a-video-maybe-do/image.jpg)
+**Score:** 12,631 | **Source:** reddit/r/facepalm
+
+---
+
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260511-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,369 | **Source:** reddit/r/facepalm
+
+---
+
+## To be fair an Avocado is just Guacamole in ball form.
+![To be fair an Avocado is just Guacamole ](20260511-006-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
+**Score:** 10,112 | **Source:** reddit/r/technicallythetruth
 
 ---
 
 ## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
-![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260511-005-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
-**Score:** 11,781 | **Source:** reddit/r/technicallythetruth
+![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260511-007-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
+**Score:** 11,782 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## My 7 year old would love to know what others think of his drawing! Sus?
-![My 7 year old would love to know what ot](20260511-006-my-7-year-old-would-love-to-know-what-ot/image.jpg)
-**Score:** 1,255 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## Guess what game this is (hint it has among us in the name)
-![Guess what game this is (hint it has amo](20260511-007-guess-what-game-this-is-hint-it-has-amon/image.jpg)
-**Score:** 158 | **Source:** reddit/r/suspiciouslyspecific
+## The people who reach midlife with no close friends aren't unlikable they're ofte
+![The people who reach midlife with no clo](20260511-008-the-people-who-reach-midlife-with-no-clo/image.jpg)
+**Score:** 145 | **Source:** reddit/r/oddlyspecific
 
 ---
 
 ## Deer jerky, Budweiser &amp; pickles
-![Deer jerky, Budweiser &amp; pickles](20260511-008-deer-jerky-budweiser-amp-pickles/image.jpg)
-**Score:** 528 | **Source:** reddit/r/oddlyspecific
+![Deer jerky, Budweiser &amp; pickles](20260511-009-deer-jerky-budweiser-amp-pickles/image.jpg)
+**Score:** 538 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Well that makes sense
-![Well that makes sense](20260511-009-well-that-makes-sense/image.jpg)
-**Score:** 1,134 | **Source:** reddit/r/HolUp
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260511-010-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 97 | **Source:** reddit/r/HolUp
 
 ---
 
-## -Cook the most delicious food --&gt; abandon cooking for months --&gt; refuse to
-![-Cook the most delicious food --&gt; aba](20260511-010-cook-the-most-delicious-food-gt-abandon-/image.jpg)
-**Score:** 442 | **Source:** reddit/r/memes
+## New meds who dis?
+![New meds who dis?](20260511-011-new-meds-who-dis/image.jpg)
+**Score:** 2,176 | **Source:** reddit/r/dankmemes
+
+---
+
+## "We're great friends, I promise."
+!["We're great friends, I promise."](20260511-012-were-great-friends-i-promise/image.jpg)
+**Score:** 663 | **Source:** reddit/r/dankmemes
+
+---
+
+## The Sugar ahh..
+![The Sugar ahh..](20260511-013-the-sugar-ahh/image.jpg)
+**Score:** 4,484 | **Source:** reddit/r/memes
 
 ---
 
 ## My heart skipped a beat
-![My heart skipped a beat](20260511-011-my-heart-skipped-a-beat/image.jpg)
-**Score:** 46,698 | **Source:** reddit/r/memes
+![My heart skipped a beat](20260511-014-my-heart-skipped-a-beat/image.jpg)
+**Score:** 46,989 | **Source:** reddit/r/memes
 
 ---
 
-## That is very frustrating
-![That is very frustrating](20260511-012-that-is-very-frustrating/image.jpg)
-**Score:** 345 | **Source:** reddit/r/dankmemes
+## you need the government.
+![you need the government.](20260511-015-you-need-the-government/image.jpg)
+**Score:** 51 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Mai facorite meme
-![Mai facorite meme](20260511-013-mai-facorite-meme/image.jpg)
-**Score:** 3,011 | **Source:** reddit/r/dankmemes
+## David, I just want to help you. You can explain your "dank meme" to me if you wa
+![David, I just want to help you. You can ](20260511-016-david-i-just-want-to-help-you-you-can-ex/image.jpg)
+**Score:** 99 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Happy Birthday!
-![Happy Birthday!](20260511-014-happy-birthday/image.jpg)
-**Score:** 3,815 | **Source:** reddit/r/dankmemes
-
----
-
-## B ujumf dbse!
-![B ujumf dbse!](20260511-015-b-ujumf-dbse/image.jpg)
-**Score:** 56 | **Source:** reddit/r/dankmemes
-
----
-
-## i hate english class
-![i hate english class](20260511-016-i-hate-english-class/image.jpg)
-**Score:** 1,054 | **Source:** reddit/r/memes
-
----
-
-## ASI: Intelligence beyond imagination
-![ASI: Intelligence beyond imagination](20260511-017-asi-intelligence-beyond-imagination/image.jpg)
-**Score:** 853 | **Source:** reddit/r/dankmemes
-
----
-
-## I don't care that a book I didn't read has a character with a different skin col
-![I don't care that a book I didn't read h](20260511-018-i-dont-care-that-a-book-i-didnt-read-has/image.jpg)
-**Score:** 1,018 | **Source:** reddit/r/dankmemes
+## Who tf still watches this show anyway?? 🥀
+![Who tf still watches this show anyway?? ](20260511-017-who-tf-still-watches-this-show-anyway/image.jpg)
+**Score:** 392 | **Source:** reddit/r/memes
 
 ---
 
 ## Poor Justin Bieber
-![Poor Justin Bieber](20260511-019-poor-justin-bieber/image.jpg)
-**Score:** 14,931 | **Source:** reddit/r/memes
+![Poor Justin Bieber](20260511-018-poor-justin-bieber/image.jpg)
+**Score:** 16,758 | **Source:** reddit/r/memes
 
 ---
 
-## Demon prince chokes me out until I piss myself trilogy is best selling book amon
-![Demon prince chokes me out until I piss ](20260511-020-demon-prince-chokes-me-out-until-i-piss-/image.jpg)
-**Score:** 1,031 | **Source:** reddit/r/dankmemes
+## Don't forget your Juggernog
+![Don't forget your Juggernog](20260511-019-dont-forget-your-juggernog/image.jpg)
+**Score:** 706 | **Source:** reddit/r/dankmemes
+
+---
+
+## My humble way to support developers
+![My humble way to support developers](20260511-020-my-humble-way-to-support-developers/image.jpg)
+**Score:** 5,945 | **Source:** reddit/r/memes
 
 ---

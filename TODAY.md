@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-11 20:22
+# Meme Feed — 2026-05-12 00:17
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## JD Vance needs $100 cash payments and referral bonuses to have a rally audience.
-![JD Vance needs $100 cash payments and re](20260511-001-jd-vance-needs-100-cash-payments-and-ref/image.jpg)
-**Score:** 2,959 | **Source:** reddit/r/WhitePeopleTwitter
+## I’m old enough to remember when Idiocracy was just a fun, nonsensical movie…
+![I’m old enough to remember when Idiocrac](20260512-001-im-old-enough-to-remember-when-idiocracy/image.jpg)
+**Score:** 8,575 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## If only someone had warned us about the dangers of the Torment Nexus!
-![If only someone had warned us about the ](20260511-002-if-only-someone-had-warned-us-about-the-/image.jpg)
-**Score:** 188 | **Source:** reddit/r/WhitePeopleTwitter
+## Whac-A-C-suite would be quite the game to play
+![Whac-A-C-suite would be quite the game t](20260512-002-whac-a-c-suite-would-be-quite-the-game-t/image.jpg)
+**Score:** 8,343 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Pool stretches from here to Scotland
-![Pool stretches from here to Scotland](20260511-003-pool-stretches-from-here-to-scotland/image.jpg)
-**Score:** 10,057 | **Source:** reddit/r/BlackPeopleTwitter
+## Too many people are too mad about this non issue
+![Too many people are too mad about this n](20260512-003-too-many-people-are-too-mad-about-this-n/image.jpg)
+**Score:** 3,058 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260511-004-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 2,141 | **Source:** reddit/r/facepalm
+## Scammer pretending to be me is letting me know I OK'd paying the scammer.
+![Scammer pretending to be me is letting m](20260512-004-scammer-pretending-to-be-me-is-letting-m/image.jpg)
+**Score:** 1,375 | **Source:** reddit/r/facepalm
 
 ---
 
-## Look at this track in F-zero (1991, SNES)
-![Look at this track in F-zero (1991, SNES](20260511-005-look-at-this-track-in-f-zero-1991-snes/image.jpg)
-**Score:** 68 | **Source:** reddit/r/suspiciouslyspecific
+## Wild TTT found in the wild
+![Wild TTT found in the wild](20260512-005-wild-ttt-found-in-the-wild/image.jpg)
+**Score:** 493 | **Source:** reddit/r/technicallythetruth
+
+---
+
+## An insult or Anne in salt?
+![An insult or Anne in salt?](20260512-006-an-insult-or-anne-in-salt/image.jpg)
+**Score:** 3,901 | **Source:** reddit/r/technicallythetruth
+
+---
+
+## among oose
+![among oose](20260512-007-among-oose/image.jpg)
+**Score:** 522 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
 ## International Space Station Toilet Tracker
-![International Space Station Toilet Track](20260511-006-international-space-station-toilet-track/image.jpg)
-**Score:** 312 | **Source:** reddit/r/oddlyspecific
+![International Space Station Toilet Track](20260512-008-international-space-station-toilet-track/image.jpg)
+**Score:** 316 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## I made a 3x3 of my favorite female video game characters
-![I made a 3x3 of my favorite female video](20260511-007-i-made-a-3x3-of-my-favorite-female-video/image.jpg)
-**Score:** 134 | **Source:** reddit/r/HolUp
+## The people who reach midlife with no close friends aren't unlikable they're ofte
+![The people who reach midlife with no clo](20260512-009-the-people-who-reach-midlife-with-no-clo/image.jpg)
+**Score:** 152 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Nature is beautiful
-![Nature is beautiful](20260511-008-nature-is-beautiful/image.jpg)
-**Score:** 7,178 | **Source:** reddit/r/HolUp
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260512-010-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 93 | **Source:** reddit/r/HolUp
 
 ---
 
 ## Mai facorite meme
-![Mai facorite meme](20260511-009-mai-facorite-meme/image.jpg)
-**Score:** 3,422 | **Source:** reddit/r/dankmemes
+![Mai facorite meme](20260512-011-mai-facorite-meme/image.jpg)
+**Score:** 3,457 | **Source:** reddit/r/dankmemes
+
+---
+
+## Based on a true story
+![Based on a true story](20260512-012-based-on-a-true-story/image.jpg)
+**Score:** 658 | **Source:** reddit/r/memes
+
+---
+
+## I'll shower tomorrow
+![I'll shower tomorrow](20260512-013-ill-shower-tomorrow/image.jpg)
+**Score:** 4,416 | **Source:** reddit/r/dankmemes
+
+---
+
+## Demon prince chokes me out until I piss myself trilogy is best selling book amon
+![Demon prince chokes me out until I piss ](20260512-014-demon-prince-chokes-me-out-until-i-piss-/image.jpg)
+**Score:** 4,401 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## It's always the good ones
-![It's always the good ones](20260511-010-its-always-the-good-ones/image.jpg)
-**Score:** 9,139 | **Source:** reddit/r/memes
-
----
-
-## On a daily
-![On a daily](20260511-011-on-a-daily/image.jpg)
-**Score:** 212 | **Source:** reddit/r/memes
-
----
-
-## it happens everytime
-![it happens everytime](20260511-012-it-happens-everytime/image.jpg)
-**Score:** 227 | **Source:** reddit/r/memes
-
----
-
-## Life is like that, I guess...
-![Life is like that, I guess...](20260511-013-life-is-like-that-i-guess/image.jpg)
-**Score:** 11,855 | **Source:** reddit/r/dankmemes
+![It's always the good ones](20260512-015-its-always-the-good-ones/image.jpg)
+**Score:** 11,565 | **Source:** reddit/r/memes
 
 ---
 
 ## i hate english class
-![i hate english class](20260511-014-i-hate-english-class/image.jpg)
-**Score:** 1,188 | **Source:** reddit/r/memes
+![i hate english class](20260512-016-i-hate-english-class/image.jpg)
+**Score:** 1,199 | **Source:** reddit/r/memes
 
 ---
 
-## Money, oh money. I gotta get my hands on some…
-![Money, oh money. I gotta get my hands on](20260511-015-money-oh-money-i-gotta-get-my-hands-on-s/image.jpg)
-**Score:** 73 | **Source:** reddit/r/memes
+## Kim Jong meme
+![Kim Jong meme](20260512-017-kim-jong-meme/image.jpg)
+**Score:** 2,151 | **Source:** reddit/r/memes
 
 ---
 
-## I guide others to a treasure i can't possess
-![I guide others to a treasure i can't pos](20260511-016-i-guide-others-to-a-treasure-i-cant-poss/image.jpg)
-**Score:** 10,694 | **Source:** reddit/r/memes
+## On a daily
+![On a daily](20260512-018-on-a-daily/image.jpg)
+**Score:** 243 | **Source:** reddit/r/memes
 
 ---
 
-## Oh, aye, cap'n.
-![Oh, aye, cap'n.](20260511-017-oh-aye-capn/image.jpg)
-**Score:** 109 | **Source:** reddit/r/memes
+## I hate the world right now.
+![I hate the world right now.](20260512-019-i-hate-the-world-right-now/image.jpg)
+**Score:** 174 | **Source:** reddit/r/memes
 
 ---
 
-## No wonder they are so depressed
-![No wonder they are so depressed](20260511-018-no-wonder-they-are-so-depressed/image.jpg)
-**Score:** 133 | **Source:** reddit/r/memes
-
----
-
-## He is so happy
-![He is so happy](20260511-019-he-is-so-happy/image.jpg)
-**Score:** 2,428 | **Source:** reddit/r/dankmemes
-
----
-
-## Words of affirmation
-![Words of affirmation](20260511-020-words-of-affirmation/image.jpg)
-**Score:** 194 | **Source:** reddit/r/memes
+## you need the government.
+![you need the government.](20260512-020-you-need-the-government/image.jpg)
+**Score:** 54 | **Source:** reddit/r/dankmemes
 
 ---

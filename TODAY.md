@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-11 07:21
+# Meme Feed — 2026-05-11 08:17
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## Poor Spider
-![Poor Spider](20260511-001-poor-spider/image.jpg)
-**Score:** 1,392 | **Source:** reddit/r/WhitePeopleTwitter
+## At least run the posters by someone first
+![At least run the posters by someone firs](20260511-001-at-least-run-the-posters-by-someone-firs/image.jpg)
+**Score:** 6,179 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Obama's deal
-![Obama's deal](20260511-002-obamas-deal/image.jpg)
-**Score:** 27,119 | **Source:** reddit/r/BlackPeopleTwitter
+## Maybe she thought Met just stood for any kind of Metro?
+![Maybe she thought Met just stood for any](20260511-002-maybe-she-thought-met-just-stood-for-any/image.jpg)
+**Score:** 2,899 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## What's done in the light will get more bright
-![What's done in the light will get more b](20260511-003-whats-done-in-the-light-will-get-more-br/image.jpg)
-**Score:** 1,414 | **Source:** reddit/r/BlackPeopleTwitter
+## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
+![South Korean Pilots Were Taking Selfies ](20260511-003-south-korean-pilots-were-taking-selfies-/image.jpg)
+**Score:** 2,140 | **Source:** reddit/r/facepalm
 
 ---
 
-## If you're going to steal a video, maybe don't steal one of the most iconic video
-![If you're going to steal a video, maybe ](20260511-004-if-youre-going-to-steal-a-video-maybe-do/image.jpg)
-**Score:** 12,631 | **Source:** reddit/r/facepalm
+## IndyCar launches then rapidly deletes "One Nation, One Race" t-shirt
+![IndyCar launches then rapidly deletes "O](20260511-004-indycar-launches-then-rapidly-deletes-on/image.jpg)
+**Score:** 10,760 | **Source:** reddit/r/facepalm
 
 ---
 
-## Scammer pretending to be me is letting me know I OK'd paying the scammer.
-![Scammer pretending to be me is letting m](20260511-005-scammer-pretending-to-be-me-is-letting-m/image.jpg)
-**Score:** 1,369 | **Source:** reddit/r/facepalm
+## The detective didn't find it
+![The detective didn't find it](20260511-005-the-detective-didnt-find-it/image.jpg)
+**Score:** 33,909 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## To be fair an Avocado is just Guacamole in ball form.
-![To be fair an Avocado is just Guacamole ](20260511-006-to-be-fair-an-avocado-is-just-guacamole-/image.jpg)
-**Score:** 10,112 | **Source:** reddit/r/technicallythetruth
+## i just opened youtube
+![i just opened youtube](20260511-006-i-just-opened-youtube/image.jpg)
+**Score:** 8,999 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
-![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260511-007-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
-**Score:** 11,782 | **Source:** reddit/r/technicallythetruth
+## Guess what game this is (hint it has among us in the name)
+![Guess what game this is (hint it has amo](20260511-007-guess-what-game-this-is-hint-it-has-amon/image.jpg)
+**Score:** 159 | **Source:** reddit/r/suspiciouslyspecific
+
+---
+
+## My 7 year old would love to know what others think of his drawing! Sus?
+![My 7 year old would love to know what ot](20260511-008-my-7-year-old-would-love-to-know-what-ot/image.jpg)
+**Score:** 1,250 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
 ## The people who reach midlife with no close friends aren't unlikable they're ofte
-![The people who reach midlife with no clo](20260511-008-the-people-who-reach-midlife-with-no-clo/image.jpg)
+![The people who reach midlife with no clo](20260511-009-the-people-who-reach-midlife-with-no-clo/image.jpg)
 **Score:** 145 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Deer jerky, Budweiser &amp; pickles
-![Deer jerky, Budweiser &amp; pickles](20260511-009-deer-jerky-budweiser-amp-pickles/image.jpg)
-**Score:** 538 | **Source:** reddit/r/oddlyspecific
+## Biology teacher is not fun
+![Biology teacher is not fun](20260511-010-biology-teacher-is-not-fun/image.jpg)
+**Score:** 5,828 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## Even he's wondering if the allegations of him having an OF is Tru deau.
-![Even he's wondering if the allegations o](20260511-010-even-hes-wondering-if-the-allegations-of/image.jpg)
-**Score:** 97 | **Source:** reddit/r/HolUp
+## Nature is beautiful
+![Nature is beautiful](20260511-011-nature-is-beautiful/image.jpg)
+**Score:** 7,086 | **Source:** reddit/r/HolUp
 
 ---
 
-## New meds who dis?
-![New meds who dis?](20260511-011-new-meds-who-dis/image.jpg)
-**Score:** 2,176 | **Source:** reddit/r/dankmemes
-
----
-
-## "We're great friends, I promise."
-!["We're great friends, I promise."](20260511-012-were-great-friends-i-promise/image.jpg)
-**Score:** 663 | **Source:** reddit/r/dankmemes
-
----
-
-## The Sugar ahh..
-![The Sugar ahh..](20260511-013-the-sugar-ahh/image.jpg)
-**Score:** 4,484 | **Source:** reddit/r/memes
-
----
-
-## My heart skipped a beat
-![My heart skipped a beat](20260511-014-my-heart-skipped-a-beat/image.jpg)
-**Score:** 46,989 | **Source:** reddit/r/memes
-
----
-
-## you need the government.
-![you need the government.](20260511-015-you-need-the-government/image.jpg)
-**Score:** 51 | **Source:** reddit/r/dankmemes
-
----
-
-## David, I just want to help you. You can explain your "dank meme" to me if you wa
-![David, I just want to help you. You can ](20260511-016-david-i-just-want-to-help-you-you-can-ex/image.jpg)
-**Score:** 99 | **Source:** reddit/r/dankmemes
-
----
-
-## Who tf still watches this show anyway?? 🥀
-![Who tf still watches this show anyway?? ](20260511-017-who-tf-still-watches-this-show-anyway/image.jpg)
-**Score:** 392 | **Source:** reddit/r/memes
-
----
-
-## Poor Justin Bieber
-![Poor Justin Bieber](20260511-018-poor-justin-bieber/image.jpg)
-**Score:** 16,758 | **Source:** reddit/r/memes
+## -Cook the most delicious food --&gt; abandon cooking for months --&gt; refuse to
+![-Cook the most delicious food --&gt; aba](20260511-012-cook-the-most-delicious-food-gt-abandon-/image.jpg)
+**Score:** 449 | **Source:** reddit/r/memes
 
 ---
 
 ## Don't forget your Juggernog
-![Don't forget your Juggernog](20260511-019-dont-forget-your-juggernog/image.jpg)
-**Score:** 706 | **Source:** reddit/r/dankmemes
+![Don't forget your Juggernog](20260511-013-dont-forget-your-juggernog/image.jpg)
+**Score:** 710 | **Source:** reddit/r/dankmemes
 
 ---
 
-## My humble way to support developers
-![My humble way to support developers](20260511-020-my-humble-way-to-support-developers/image.jpg)
-**Score:** 5,945 | **Source:** reddit/r/memes
+## Self-Snitching at it's finest. They Not Like Us
+![Self-Snitching at it's finest. They Not ](20260511-014-self-snitching-at-its-finest-they-not-li/image.jpg)
+**Score:** 3,687 | **Source:** reddit/r/dankmemes
+
+---
+
+## Kim Jong meme
+![Kim Jong meme](20260511-015-kim-jong-meme/image.jpg)
+**Score:** 682 | **Source:** reddit/r/memes
+
+---
+
+## Job market
+![Job market](20260511-016-job-market/image.jpg)
+**Score:** 6,338 | **Source:** reddit/r/dankmemes
+
+---
+
+## New meds who dis?
+![New meds who dis?](20260511-017-new-meds-who-dis/image.jpg)
+**Score:** 2,311 | **Source:** reddit/r/dankmemes
+
+---
+
+## David, I just want to help you. You can explain your "dank meme" to me if you wa
+![David, I just want to help you. You can ](20260511-018-david-i-just-want-to-help-you-you-can-ex/image.jpg)
+**Score:** 113 | **Source:** reddit/r/dankmemes
+
+---
+
+## Controlling ASI will be easy
+![Controlling ASI will be easy](20260511-019-controlling-asi-will-be-easy/image.jpg)
+**Score:** 719 | **Source:** reddit/r/dankmemes
+
+---
+
+## ASI: Intelligence beyond imagination
+![ASI: Intelligence beyond imagination](20260511-020-asi-intelligence-beyond-imagination/image.jpg)
+**Score:** 853 | **Source:** reddit/r/dankmemes
 
 ---

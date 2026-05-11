@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-11 08:17
+# Meme Feed — 2026-05-11 12:18
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
+## Poor Spider
+![Poor Spider](20260511-001-poor-spider/image.jpg)
+**Score:** 1,416 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
+## If only someone had warned us about the dangers of the Torment Nexus!
+![If only someone had warned us about the ](20260511-002-if-only-someone-had-warned-us-about-the-/image.jpg)
+**Score:** 129 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
 ## At least run the posters by someone first
-![At least run the posters by someone firs](20260511-001-at-least-run-the-posters-by-someone-firs/image.jpg)
-**Score:** 6,179 | **Source:** reddit/r/BlackPeopleTwitter
+![At least run the posters by someone firs](20260511-003-at-least-run-the-posters-by-someone-firs/image.jpg)
+**Score:** 6,185 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Maybe she thought Met just stood for any kind of Metro?
-![Maybe she thought Met just stood for any](20260511-002-maybe-she-thought-met-just-stood-for-any/image.jpg)
-**Score:** 2,899 | **Source:** reddit/r/BlackPeopleTwitter
+## Pool stretches from here to Scotland
+![Pool stretches from here to Scotland](20260511-004-pool-stretches-from-here-to-scotland/image.jpg)
+**Score:** 10,032 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## South Korean Pilots Were Taking Selfies Before Mid-Air Collision Involving 2 Fig
-![South Korean Pilots Were Taking Selfies ](20260511-003-south-korean-pilots-were-taking-selfies-/image.jpg)
-**Score:** 2,140 | **Source:** reddit/r/facepalm
+## intelligence is not dangerous
+![intelligence is not dangerous](20260511-005-intelligence-is-not-dangerous/image.jpg)
+**Score:** 55,853 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## IndyCar launches then rapidly deletes "One Nation, One Race" t-shirt
-![IndyCar launches then rapidly deletes "O](20260511-004-indycar-launches-then-rapidly-deletes-on/image.jpg)
-**Score:** 10,760 | **Source:** reddit/r/facepalm
+## Just show it, Dave
+![Just show it, Dave](20260511-006-just-show-it-dave/image.jpg)
+**Score:** 475 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## The detective didn't find it
-![The detective didn't find it](20260511-005-the-detective-didnt-find-it/image.jpg)
-**Score:** 33,909 | **Source:** reddit/r/technicallythetruth
+## Futabu anyone ???
+![Futabu anyone ???](20260511-007-futabu-anyone/image.jpg)
+**Score:** 2,369 | **Source:** reddit/r/HolUp
 
 ---
 
-## i just opened youtube
-![i just opened youtube](20260511-006-i-just-opened-youtube/image.jpg)
-**Score:** 8,999 | **Source:** reddit/r/technicallythetruth
-
----
-
-## Guess what game this is (hint it has among us in the name)
-![Guess what game this is (hint it has amo](20260511-007-guess-what-game-this-is-hint-it-has-amon/image.jpg)
-**Score:** 159 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## My 7 year old would love to know what others think of his drawing! Sus?
-![My 7 year old would love to know what ot](20260511-008-my-7-year-old-would-love-to-know-what-ot/image.jpg)
-**Score:** 1,250 | **Source:** reddit/r/suspiciouslyspecific
-
----
-
-## The people who reach midlife with no close friends aren't unlikable they're ofte
-![The people who reach midlife with no clo](20260511-009-the-people-who-reach-midlife-with-no-clo/image.jpg)
-**Score:** 145 | **Source:** reddit/r/oddlyspecific
-
----
-
-## Biology teacher is not fun
-![Biology teacher is not fun](20260511-010-biology-teacher-is-not-fun/image.jpg)
-**Score:** 5,828 | **Source:** reddit/r/oddlyspecific
-
----
-
-## Nature is beautiful
-![Nature is beautiful](20260511-011-nature-is-beautiful/image.jpg)
-**Score:** 7,086 | **Source:** reddit/r/HolUp
-
----
-
-## -Cook the most delicious food --&gt; abandon cooking for months --&gt; refuse to
-![-Cook the most delicious food --&gt; aba](20260511-012-cook-the-most-delicious-food-gt-abandon-/image.jpg)
-**Score:** 449 | **Source:** reddit/r/memes
-
----
-
-## Don't forget your Juggernog
-![Don't forget your Juggernog](20260511-013-dont-forget-your-juggernog/image.jpg)
-**Score:** 710 | **Source:** reddit/r/dankmemes
-
----
-
-## Self-Snitching at it's finest. They Not Like Us
-![Self-Snitching at it's finest. They Not ](20260511-014-self-snitching-at-its-finest-they-not-li/image.jpg)
-**Score:** 3,687 | **Source:** reddit/r/dankmemes
-
----
-
-## Kim Jong meme
-![Kim Jong meme](20260511-015-kim-jong-meme/image.jpg)
-**Score:** 682 | **Source:** reddit/r/memes
-
----
-
-## Job market
-![Job market](20260511-016-job-market/image.jpg)
-**Score:** 6,338 | **Source:** reddit/r/dankmemes
-
----
-
-## New meds who dis?
-![New meds who dis?](20260511-017-new-meds-who-dis/image.jpg)
-**Score:** 2,311 | **Source:** reddit/r/dankmemes
-
----
-
-## David, I just want to help you. You can explain your "dank meme" to me if you wa
-![David, I just want to help you. You can ](20260511-018-david-i-just-want-to-help-you-you-can-ex/image.jpg)
-**Score:** 113 | **Source:** reddit/r/dankmemes
+## Shrimp fried rice
+![Shrimp fried rice](20260511-008-shrimp-fried-rice/image.jpg)
+**Score:** 581 | **Source:** reddit/r/HolUp
 
 ---
 
 ## Controlling ASI will be easy
-![Controlling ASI will be easy](20260511-019-controlling-asi-will-be-easy/image.jpg)
-**Score:** 719 | **Source:** reddit/r/dankmemes
+![Controlling ASI will be easy](20260511-009-controlling-asi-will-be-easy/image.jpg)
+**Score:** 721 | **Source:** reddit/r/dankmemes
 
 ---
 
-## ASI: Intelligence beyond imagination
-![ASI: Intelligence beyond imagination](20260511-020-asi-intelligence-beyond-imagination/image.jpg)
-**Score:** 853 | **Source:** reddit/r/dankmemes
+## it happens everytime
+![it happens everytime](20260511-010-it-happens-everytime/image.jpg)
+**Score:** 76 | **Source:** reddit/r/memes
+
+---
+
+## On a daily
+![On a daily](20260511-011-on-a-daily/image.jpg)
+**Score:** 88 | **Source:** reddit/r/memes
+
+---
+
+## Happy Birthday!
+![Happy Birthday!](20260511-012-happy-birthday/image.jpg)
+**Score:** 3,821 | **Source:** reddit/r/dankmemes
+
+---
+
+## A different league
+![A different league](20260511-013-a-different-league/image.jpg)
+**Score:** 18,327 | **Source:** reddit/r/memes
+
+---
+
+## you need the government.
+![you need the government.](20260511-014-you-need-the-government/image.jpg)
+**Score:** 50 | **Source:** reddit/r/dankmemes
+
+---
+
+## Poor Justin Bieber
+![Poor Justin Bieber](20260511-015-poor-justin-bieber/image.jpg)
+**Score:** 19,758 | **Source:** reddit/r/memes
+
+---
+
+## "We're great friends, I promise."
+!["We're great friends, I promise."](20260511-016-were-great-friends-i-promise/image.jpg)
+**Score:** 670 | **Source:** reddit/r/dankmemes
+
+---
+
+## I guide others to a treasure i can't possess
+![I guide others to a treasure i can't pos](20260511-017-i-guide-others-to-a-treasure-i-cant-poss/image.jpg)
+**Score:** 7,890 | **Source:** reddit/r/memes
+
+---
+
+## The Sugar ahh..
+![The Sugar ahh..](20260511-018-the-sugar-ahh/image.jpg)
+**Score:** 4,813 | **Source:** reddit/r/memes
+
+---
+
+## It's always the good ones
+![It's always the good ones](20260511-019-its-always-the-good-ones/image.jpg)
+**Score:** 2,138 | **Source:** reddit/r/memes
+
+---
+
+## star wars taxation
+![star wars taxation](20260511-020-star-wars-taxation/image.jpg)
+**Score:** 201 | **Source:** reddit/r/dankmemes
 
 ---

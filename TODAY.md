@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-12 04:24
+# Meme Feed — 2026-05-12 04:25
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
-## A unique Mother's Day message
-![A unique Mother's Day message](20260512-001-a-unique-mothers-day-message/image.jpg)
-**Score:** 192 | **Source:** reddit/r/WhitePeopleTwitter
+## I've never seen them lose a case
+![I've never seen them lose a case](20260512-001-ive-never-seen-them-lose-a-case/image.jpg)
+**Score:** 9,420 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Yes, I saw what you saw.
-![Yes, I saw what you saw.](20260512-002-yes-i-saw-what-you-saw/image.jpg)
-**Score:** 4,994 | **Source:** reddit/r/BlackPeopleTwitter
+## What's done in the light will get more bright
+![What's done in the light will get more b](20260512-002-whats-done-in-the-light-will-get-more-br/image.jpg)
+**Score:** 1,413 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Maybe she thought Met just stood for any kind of Metro?
-![Maybe she thought Met just stood for any](20260512-003-maybe-she-thought-met-just-stood-for-any/image.jpg)
-**Score:** 2,938 | **Source:** reddit/r/BlackPeopleTwitter
+## Well? Did they accept or not?
+![Well? Did they accept or not?](20260512-003-well-did-they-accept-or-not/image.jpg)
+**Score:** 841 | **Source:** reddit/r/facepalm
 
 ---
 
-## Cops chase and handcuff another cop who was responding to an emergency
-![Cops chase and handcuff another cop who ](20260512-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
-**Score:** 5,183 | **Source:** reddit/r/facepalm
+## His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩
+![His legs on hurt, mine will •̩̩̩̩ᯅ•̩̩̩](20260512-004-his-legs-on-hurt-mine-will-ᯅ/image.jpg)
+**Score:** 11,783 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## If you're going to steal a video, maybe don't steal one of the most iconic video
-![If you're going to steal a video, maybe ](20260512-005-if-youre-going-to-steal-a-video-maybe-do/image.jpg)
-**Score:** 12,713 | **Source:** reddit/r/facepalm
+## He didn't sound like much of anything in there
+![He didn't sound like much of anything in](20260512-005-he-didnt-sound-like-much-of-anything-in-/image.jpg)
+**Score:** 1,854 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## Enjoy your hot water
-![Enjoy your hot water](20260512-006-enjoy-your-hot-water/image.jpg)
-**Score:** 986 | **Source:** reddit/r/technicallythetruth
+## GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS 
+![GUYS GUYS GUYS GUYS GUYS GUYS GUYS GUYS ](20260512-006-guys-guys-guys-guys-guys-guys-guys-guys-/image.jpg)
+**Score:** 317 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Juicy Amogus pics
-![Juicy Amogus pics](20260512-007-juicy-amogus-pics/image.jpg)
-**Score:** 809 | **Source:** reddit/r/suspiciouslyspecific
+## among oose
+![among oose](20260512-007-among-oose/image.jpg)
+**Score:** 521 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Five Guys refunded a $263.27 Doordash order for being too gluttonous
-![Five Guys refunded a $263.27 Doordash or](20260512-008-five-guys-refunded-a-26327-doordash-orde/image.jpg)
-**Score:** 60 | **Source:** reddit/r/oddlyspecific
+## The people who reach midlife with no close friends aren't unlikable they're ofte
+![The people who reach midlife with no clo](20260512-008-the-people-who-reach-midlife-with-no-clo/image.jpg)
+**Score:** 149 | **Source:** reddit/r/oddlyspecific
 
 ---
 
-## AI is everywhere
-![AI is everywhere](20260512-009-ai-is-everywhere/image.jpg)
-**Score:** 1,044 | **Source:** reddit/r/HolUp
+## Nature is beautiful
+![Nature is beautiful](20260512-009-nature-is-beautiful/image.jpg)
+**Score:** 7,250 | **Source:** reddit/r/HolUp
 
 ---
 
-## Life is like that, I guess...
-![Life is like that, I guess...](20260512-010-life-is-like-that-i-guess/image.jpg)
-**Score:** 11,863 | **Source:** reddit/r/dankmemes
-
----
-
-## Demon prince chokes me out until I piss myself trilogy is best selling book amon
-![Demon prince chokes me out until I piss ](20260512-011-demon-prince-chokes-me-out-until-i-piss-/image.jpg)
-**Score:** 4,629 | **Source:** reddit/r/dankmemes
-
----
-
-## On a daily
-![On a daily](20260512-012-on-a-daily/image.jpg)
-**Score:** 269 | **Source:** reddit/r/memes
-
----
-
-## Mai facorite meme
-![Mai facorite meme](20260512-013-mai-facorite-meme/image.jpg)
-**Score:** 3,484 | **Source:** reddit/r/dankmemes
-
----
-
-## Based on a true story
-![Based on a true story](20260512-014-based-on-a-true-story/image.jpg)
-**Score:** 1,048 | **Source:** reddit/r/memes
-
----
-
-## Poor Justin Bieber
-![Poor Justin Bieber](20260512-015-poor-justin-bieber/image.jpg)
-**Score:** 24,116 | **Source:** reddit/r/memes
-
----
-
-## It's so repulsive all the time!
-![It's so repulsive all the time!](20260512-016-its-so-repulsive-all-the-time/image.jpg)
-**Score:** 51 | **Source:** reddit/r/memes
-
----
-
-## I mean, who isn't?
-![I mean, who isn't?](20260512-017-i-mean-who-isnt/image.jpg)
-**Score:** 201 | **Source:** reddit/r/dankmemes
-
----
-
-## Game of the year, who dis??
-![Game of the year, who dis??](20260512-018-game-of-the-year-who-dis/image.jpg)
-**Score:** 1,286 | **Source:** reddit/r/dankmemes
-
----
-
-## So today we are learning
-![So today we are learning](20260512-019-so-today-we-are-learning/image.jpg)
-**Score:** 10,002 | **Source:** reddit/r/memes
+## Even he's wondering if the allegations of him having an OF is Tru deau.
+![Even he's wondering if the allegations o](20260512-010-even-hes-wondering-if-the-allegations-of/image.jpg)
+**Score:** 94 | **Source:** reddit/r/HolUp
 
 ---
 
 ## No wonder they are so depressed
-![No wonder they are so depressed](20260512-020-no-wonder-they-are-so-depressed/image.jpg)
+![No wonder they are so depressed](20260512-011-no-wonder-they-are-so-depressed/image.jpg)
 **Score:** 231 | **Source:** reddit/r/memes
+
+---
+
+## So today we are learning
+![So today we are learning](20260512-012-so-today-we-are-learning/image.jpg)
+**Score:** 10,002 | **Source:** reddit/r/memes
+
+---
+
+## Life is like that, I guess...
+![Life is like that, I guess...](20260512-013-life-is-like-that-i-guess/image.jpg)
+**Score:** 11,863 | **Source:** reddit/r/dankmemes
+
+---
+
+## On a daily
+![On a daily](20260512-014-on-a-daily/image.jpg)
+**Score:** 269 | **Source:** reddit/r/memes
+
+---
+
+## Based on a true story
+![Based on a true story](20260512-015-based-on-a-true-story/image.jpg)
+**Score:** 1,048 | **Source:** reddit/r/memes
+
+---
+
+## Mai facorite meme
+![Mai facorite meme](20260512-016-mai-facorite-meme/image.jpg)
+**Score:** 3,484 | **Source:** reddit/r/dankmemes
+
+---
+
+## Game of the year, who dis??
+![Game of the year, who dis??](20260512-017-game-of-the-year-who-dis/image.jpg)
+**Score:** 1,286 | **Source:** reddit/r/dankmemes
+
+---
+
+## I mean, who isn't?
+![I mean, who isn't?](20260512-018-i-mean-who-isnt/image.jpg)
+**Score:** 201 | **Source:** reddit/r/dankmemes
+
+---
+
+## Self-Snitching at it's finest. They Not Like Us
+![Self-Snitching at it's finest. They Not ](20260512-019-self-snitching-at-its-finest-they-not-li/image.jpg)
+**Score:** 4,077 | **Source:** reddit/r/dankmemes
+
+---
+
+## It's so repulsive all the time!
+![It's so repulsive all the time!](20260512-020-its-so-repulsive-all-the-time/image.jpg)
+**Score:** 51 | **Source:** reddit/r/memes
 
 ---

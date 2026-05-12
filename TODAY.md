@@ -1,125 +1,125 @@
-# Meme Feed — 2026-05-12 18:18
+# Meme Feed — 2026-05-12 20:18
 
 **Total:** 20 memes | Refresh every 10 min
 
 ---
 
+## Probably nothing to be alarmed about....right? RIGHT!?!?
+![Probably nothing to be alarmed about....](20260512-001-probably-nothing-to-be-alarmed-aboutrigh/image.jpg)
+**Score:** 392 | **Source:** reddit/r/WhitePeopleTwitter
+
+---
+
 ## Heartwarming Mother's Day story
-![Heartwarming Mother's Day story](20260512-001-heartwarming-mothers-day-story/image.jpg)
-**Score:** 7,846 | **Source:** reddit/r/WhitePeopleTwitter
+![Heartwarming Mother's Day story](20260512-002-heartwarming-mothers-day-story/image.jpg)
+**Score:** 7,857 | **Source:** reddit/r/WhitePeopleTwitter
 
 ---
 
-## Yes, I saw what you saw.
-![Yes, I saw what you saw.](20260512-002-yes-i-saw-what-you-saw/image.jpg)
-**Score:** 4,988 | **Source:** reddit/r/BlackPeopleTwitter
+## I should have known that casting James Earl Jones as Luke Skywalkers father was 
+![I should have known that casting James E](20260512-003-i-should-have-known-that-casting-james-e/image.jpg)
+**Score:** 4,436 | **Source:** reddit/r/BlackPeopleTwitter
 
 ---
 
-## Well? Did they accept or not?
-![Well? Did they accept or not?](20260512-003-well-did-they-accept-or-not/image.jpg)
-**Score:** 835 | **Source:** reddit/r/facepalm
+## Cops chase and handcuff another cop who was responding to an emergency
+![Cops chase and handcuff another cop who ](20260512-004-cops-chase-and-handcuff-another-cop-who-/image.jpg)
+**Score:** 5,185 | **Source:** reddit/r/facepalm
 
 ---
 
-## If you're going to steal a video, maybe don't steal one of the most iconic video
-![If you're going to steal a video, maybe ](20260512-004-if-youre-going-to-steal-a-video-maybe-do/image.jpg)
-**Score:** 12,766 | **Source:** reddit/r/facepalm
+## IndyCar launches then rapidly deletes "One Nation, One Race" t-shirt
+![IndyCar launches then rapidly deletes "O](20260512-005-indycar-launches-then-rapidly-deletes-on/image.jpg)
+**Score:** 10,879 | **Source:** reddit/r/facepalm
 
 ---
 
-## He didn't sound like much of anything in there
-![He didn't sound like much of anything in](20260512-005-he-didnt-sound-like-much-of-anything-in-/image.jpg)
-**Score:** 1,852 | **Source:** reddit/r/technicallythetruth
+## You should be able to say 'rest in peace' since people go to sleep to rest.
+![You should be able to say 'rest in peace](20260512-006-you-should-be-able-to-say-rest-in-peace-/image.jpg)
+**Score:** 416 | **Source:** reddit/r/technicallythetruth
 
 ---
 
-## When the sausages are sus
-![When the sausages are sus](20260512-006-when-the-sausages-are-sus/image.jpg)
-**Score:** 104 | **Source:** reddit/r/suspiciouslyspecific
+## outperforming the inflation rate
+![outperforming the inflation rate](20260512-007-outperforming-the-inflation-rate/image.jpg)
+**Score:** 65,472 | **Source:** reddit/r/technicallythetruth
 
 ---
 
 ## Bingo's eyes are lookin a little sus.
-![Bingo's eyes are lookin a little sus.](20260512-007-bingos-eyes-are-lookin-a-little-sus/image.jpg)
-**Score:** 242 | **Source:** reddit/r/suspiciouslyspecific
+![Bingo's eyes are lookin a little sus.](20260512-008-bingos-eyes-are-lookin-a-little-sus/image.jpg)
+**Score:** 241 | **Source:** reddit/r/suspiciouslyspecific
 
 ---
 
-## Just show it, Dave
-![Just show it, Dave](20260512-008-just-show-it-dave/image.jpg)
-**Score:** 507 | **Source:** reddit/r/oddlyspecific
+## New meds who dis?
+![New meds who dis?](20260512-009-new-meds-who-dis/image.jpg)
+**Score:** 2,736 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Nature is beautiful
-![Nature is beautiful](20260512-009-nature-is-beautiful/image.jpg)
-**Score:** 7,308 | **Source:** reddit/r/HolUp
-
----
-
-## David, I just want to help you. You can explain your "dank meme" to me if you wa
-![David, I just want to help you. You can ](20260512-010-david-i-just-want-to-help-you-you-can-ex/image.jpg)
-**Score:** 186 | **Source:** reddit/r/dankmemes
-
----
-
-## I mean, who isn't?
-![I mean, who isn't?](20260512-011-i-mean-who-isnt/image.jpg)
-**Score:** 862 | **Source:** reddit/r/dankmemes
+## I'll shower tomorrow
+![I'll shower tomorrow](20260512-010-ill-shower-tomorrow/image.jpg)
+**Score:** 4,465 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## Didn't help that my annual physical didn't even check for it 🙃🙃🙃
-![Didn't help that my annual physical didn](20260512-012-didnt-help-that-my-annual-physical-didnt/image.jpg)
-**Score:** 4,252 | **Source:** reddit/r/memes
+![Didn't help that my annual physical didn](20260512-011-didnt-help-that-my-annual-physical-didnt/image.jpg)
+**Score:** 4,670 | **Source:** reddit/r/memes
 
 ---
 
-## Happy Birthday!
-![Happy Birthday!](20260512-013-happy-birthday/image.jpg)
-**Score:** 3,824 | **Source:** reddit/r/dankmemes
+## Demon prince chokes me out until I piss myself trilogy is best selling book amon
+![Demon prince chokes me out until I piss ](20260512-012-demon-prince-chokes-me-out-until-i-piss-/image.jpg)
+**Score:** 4,795 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Do you love kvass as much as I do?
-![Do you love kvass as much as I do?](20260512-014-do-you-love-kvass-as-much-as-i-do/image.jpg)
-**Score:** 53 | **Source:** reddit/r/memes
+## The greatest test
+![The greatest test](20260512-013-the-greatest-test/image.jpg)
+**Score:** 2,710 | **Source:** reddit/r/dankmemes
 
 ---
 
-## Boomer genie
-![Boomer genie](20260512-015-boomer-genie/image.jpg)
-**Score:** 1,744 | **Source:** reddit/r/dankmemes
+## Based on a true story
+![Based on a true story](20260512-014-based-on-a-true-story/image.jpg)
+**Score:** 1,699 | **Source:** reddit/r/memes
 
 ---
 
-## I hate the world right now.
-![I hate the world right now.](20260512-016-i-hate-the-world-right-now/image.jpg)
-**Score:** 914 | **Source:** reddit/r/memes
+## Ready to be left behind
+![Ready to be left behind](20260512-015-ready-to-be-left-behind/image.jpg)
+**Score:** 271 | **Source:** reddit/r/memes
+
+---
+
+## the simulation won't fool me
+![the simulation won't fool me](20260512-016-the-simulation-wont-fool-me/image.jpg)
+**Score:** 66 | **Source:** reddit/r/dankmemes
 
 ---
 
 ## I thought May was where it ended, but it seems to always find a way.
 ![I thought May was where it ended, but it](20260512-017-i-thought-may-was-where-it-ended-but-it-/image.jpg)
-**Score:** 77 | **Source:** reddit/r/memes
+**Score:** 150 | **Source:** reddit/r/memes
 
 ---
 
-## Not 100% a Lady Superman
-![Not 100% a Lady Superman](20260512-018-not-100-a-lady-superman/image.jpg)
-**Score:** 1,538 | **Source:** reddit/r/memes
+## I hate the world right now.
+![I hate the world right now.](20260512-018-i-hate-the-world-right-now/image.jpg)
+**Score:** 939 | **Source:** reddit/r/memes
 
 ---
 
-## It's so repulsive all the time!
-![It's so repulsive all the time!](20260512-019-its-so-repulsive-all-the-time/image.jpg)
-**Score:** 71 | **Source:** reddit/r/memes
+## Ok, so who is with me?
+![Ok, so who is with me?](20260512-019-ok-so-who-is-with-me/image.jpg)
+**Score:** 1,052 | **Source:** reddit/r/memes
 
 ---
 
-## Poor Justin Bieber
-![Poor Justin Bieber](20260512-020-poor-justin-bieber/image.jpg)
-**Score:** 24,400 | **Source:** reddit/r/memes
+## It's always the good ones
+![It's always the good ones](20260512-020-its-always-the-good-ones/image.jpg)
+**Score:** 14,147 | **Source:** reddit/r/memes
 
 ---
